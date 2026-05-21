@@ -3,7 +3,7 @@ title: "7 Fabulous Things to do in Manila ..."
 description: "Visit Old Colonial Manila; Shop the Street Markets; Ride a Jeepney; Explore Beautiful Old Churches; Take a Manila Bay Sunset Cruise; More ..."
 url: "https://travel.allwomenstalk.com/fabulous-things-to-do-in-manila/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fabulous Things to do in Manila ...
@@ -54,16 +54,16 @@ Manila has as much to offer as the other great cities of South East Asia and if 
 
 ## Related Posts
 
-- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
-- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
 - [best small towns to visit in new england](https://travel.allwomenstalk.com/small-new-england-towns-that-you-must-visit/)
-- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
-- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
 - [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
-- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
-- [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
 - [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
+- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
+- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
 - [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
+- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
+- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
+- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
+- [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 - [7 Cool Things to do in Paris ...](https://travel.allwomenstalk.com/things-to-do-in-paris/)
 

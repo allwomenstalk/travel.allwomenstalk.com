@@ -3,7 +3,7 @@ title: "7 Best Irish Pubs in Britain to Celebrate St. Patricks Day ..."
 description: "The Liffey – Liverpool; Fiddlers Elbow – Brighton; The Tipperary – London; Seamus O’Donnells – Bristol; Mulligan’s – Manchester; More ..."
 url: "https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Best Irish Pubs in Britain to Celebrate St. Patricks Day ...
@@ -56,16 +56,16 @@ I’d love to hear about some more Irish pubs in Britain. With a Irish Grandfath
 
 ## Related Posts
 
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
 - [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
 - [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
 - [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
 - [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
 - [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 

@@ -3,7 +3,7 @@ title: "4 Fun Things to do in Kansas City ..."
 description: "Worlds of Fun; Winstead's; Country Club Plaza; Museums; More ..."
 url: "https://travel.allwomenstalk.com/top-things-to-do-to-in-kansas-city/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 4 Fun  Things to do in Kansas City ...
@@ -36,16 +36,16 @@ Kansas City has a ton of museum options when you are interested in learning some
 
 ## Related Posts
 
-- [celebrate gif friends](https://lifestyle.allwomenstalk.com/ways-to-celebrate-christmas-with-friends/)
-- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
-- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
-- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
-- [what to do on your 30th birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-30th-birthday/)
-- [top 10 things to do in toronto](https://travel.allwomenstalk.com/top-10-things-to-do-in-toronto/)
-- [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
 - [things to do when youre lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
-- [quirky date ideas](https://love.allwomenstalk.com/offbeat-date-ideas/)
+- [celebrate gif friends](https://lifestyle.allwomenstalk.com/ways-to-celebrate-christmas-with-friends/)
+- [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
+- [what to do on your 30th birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-30th-birthday/)
+- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
 - [things to do on your phone when bored](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-bored/)
+- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
+- [top 10 things to do in toronto](https://travel.allwomenstalk.com/top-10-things-to-do-in-toronto/)
+- [quirky date ideas](https://love.allwomenstalk.com/offbeat-date-ideas/)
+- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 - [10 Top Fun Things to do in San Francisco ...](https://travel.allwomenstalk.com/top-fun-things-to-do-in-san-francisco/)
 

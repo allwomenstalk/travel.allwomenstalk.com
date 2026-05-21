@@ -3,7 +3,7 @@ title: "7 Fun and Unusual Things to do in London This Summer ..."
 description: "Outdoor Cinema; Straddle the Earth; Dans Le Noir?; Graffiti Workshop; The Cave Experience; More ..."
 url: "https://travel.allwomenstalk.com/unusual-things-to-do-in-london/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fun and Unusual Things to do in London This Summer ...
@@ -54,16 +54,16 @@ Your list of summer activities in London this year can be more exciting by findi
 
 ## Related Posts
 
-- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
-- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
 - [summer day-stewart](https://lifestyle.allwomenstalk.com/of-my-favorite-things-to-do-in-summer/)
-- [nursing and pumping schedule newborn](https://allwomenstalk.com/tips-maintaining-pumping-nursing-schedule-summer/)
 - [how to cool off quickly](https://health.allwomenstalk.com/ways-to-cool-off-on-hot-days/)
+- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
 - [kid curdi](https://music.allwomenstalk.com/summer-playlists/)
-- [xvideos megan](https://travel.allwomenstalk.com/reasons-to-take-your-kids-to-a-national-park/)
-- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/vegan-recipes-for-summer/)
-- [summer camps for adults](https://travel.allwomenstalk.com/summer-camps-for-adults/)
 - [smores ritz bitz](https://food.allwomenstalk.com/delicious-pasta-salads-for-summer/)
+- [summer camps for adults](https://travel.allwomenstalk.com/summer-camps-for-adults/)
+- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/vegan-recipes-for-summer/)
+- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
+- [nursing and pumping schedule newborn](https://allwomenstalk.com/tips-maintaining-pumping-nursing-schedule-summer/)
+- [xvideos megan](https://travel.allwomenstalk.com/reasons-to-take-your-kids-to-a-national-park/)
 - [7 Unique Things to do at the Beach ...](https://travel.allwomenstalk.com/7-unique-things-to-do-at-the-beach/)
 - [7 Cool Things to do in Paris ...](https://travel.allwomenstalk.com/things-to-do-in-paris/)
 

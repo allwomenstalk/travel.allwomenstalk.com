@@ -3,7 +3,7 @@ title: "7 Foods You Should Not Eat before Flying ..."
 description: "Fast Food; Garlic; Sugar-Free Gum and Candy; Beans; Booze; More ..."
 url: "https://travel.allwomenstalk.com/foods-you-should-not-eat-before-flying/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Foods You Should Not Eat before Flying ...
@@ -56,16 +56,16 @@ So now you know the foods you should not eat before flying, what should you be e
 
 ## Related Posts
 
-- [of the following foods iron is best absorbed from](https://food.allwomenstalk.com/dishes-that-are-diet-friendly-and-delicious/)
-- [best superfood protein powder](https://food.allwomenstalk.com/potent-superfoods-for-stress-that-can-help-you-cope-with-anxiety/)
-- [percentage of water in orange](https://food.allwomenstalk.com/foods-that-increase-your-water-intake/)
 - [snacks to give you energy](https://food.allwomenstalk.com/healthy-snacks-for-energy-that-you-wont-be-able-to-get-enough-of/)
-- [meats low in calories](https://food.allwomenstalk.com/healthy-cuts-of-meat-that-are-low-in-fat-and-calories/)
-- [best foods to lose love handles](https://food.allwomenstalk.com/low-calorie-foods-that-are-actually-delicious/)
+- [substitutes for yogurt in smoothies](https://food.allwomenstalk.com/healthy-vegan-substitutes-for-smoothies/)
+- [of the following foods iron is best absorbed from](https://food.allwomenstalk.com/dishes-that-are-diet-friendly-and-delicious/)
+- [entree salads](https://food.allwomenstalk.com/tasty-entree-salads-to-help-you-get-your-veggie-fix/)
 - [8 sugars](https://health.allwomenstalk.com/sugars-your-body-needs-that-you-should-get-enough-of/)
 - [foods to make you run faster](https://food.allwomenstalk.com/foods-to-help-you-run-better/)
-- [entree salads](https://food.allwomenstalk.com/tasty-entree-salads-to-help-you-get-your-veggie-fix/)
-- [substitutes for yogurt in smoothies](https://food.allwomenstalk.com/healthy-vegan-substitutes-for-smoothies/)
+- [best superfood protein powder](https://food.allwomenstalk.com/potent-superfoods-for-stress-that-can-help-you-cope-with-anxiety/)
+- [percentage of water in orange](https://food.allwomenstalk.com/foods-that-increase-your-water-intake/)
+- [meats low in calories](https://food.allwomenstalk.com/healthy-cuts-of-meat-that-are-low-in-fat-and-calories/)
+- [best foods to lose love handles](https://food.allwomenstalk.com/low-calorie-foods-that-are-actually-delicious/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 - [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
 

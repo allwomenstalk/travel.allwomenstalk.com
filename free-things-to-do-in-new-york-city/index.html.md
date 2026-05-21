@@ -3,7 +3,7 @@ title: "7 Free Things to do in New York City ..."
 description: "Zip Lining across Manhattan; Summer Concerts; I Dream of Food; Movie in the Park; Comedy Shows; More ..."
 url: "https://travel.allwomenstalk.com/free-things-to-do-in-new-york-city/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Free Things to do in New York City ...
@@ -42,16 +42,16 @@ If you look hard enough, you will see that there are a lot of free events going 
 
 ## Related Posts
 
-- [fun filled activities](https://parenting.allwomenstalk.com/fun-filled-adventures-to-have-with-your-kids/)
-- [9 Fun Snow Day Activities to do with Your Kids ...](https://parenting.allwomenstalk.com/fun-snow-day-activities-to-do-with-your-kids/)
 - [loreal paris color riche le stylo smoky avant gard...](https://lifestyle.allwomenstalk.com/mommy-and-me-activities-to-enjoy-with-your-mom/)
-- [7 Great Runs That Will Make Your Day ...](https://running.allwomenstalk.com/great-runs-that-will-make-your-day/)
-- [7 Ways to Explore Nature in the Fall with Your Kid...](https://parenting.allwomenstalk.com/ways-to-explore-nature-in-the-fall-with-your-kids/)
 - [7 Awesome Outdoor Party Games That Everyone Will E...](https://lifestyle.allwomenstalk.com/awesome-outdoor-party-games-that-everyone-will-enjoy/)
 - [fun things to do in the fall with friends](https://lifestyle.allwomenstalk.com/fun-fall-activities-to-do-with-family-and-friends/)
+- [fun filled activities](https://parenting.allwomenstalk.com/fun-filled-adventures-to-have-with-your-kids/)
 - [7 Wonderful Ways to Make This a Memorable Fall ...](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-this-a-memorable-fall/)
-- [9 Things You Can do Now to Prepare for the Holiday...](https://lifestyle.allwomenstalk.com/things-you-can-do-now-to-prepare-for-the-holidays/)
+- [7 Great Runs That Will Make Your Day ...](https://running.allwomenstalk.com/great-runs-that-will-make-your-day/)
+- [7 Ways to Explore Nature in the Fall with Your Kid...](https://parenting.allwomenstalk.com/ways-to-explore-nature-in-the-fall-with-your-kids/)
 - [themed marathon races](https://running.allwomenstalk.com/best-themed-races-you-have-to-run/)
+- [9 Fun Snow Day Activities to do with Your Kids ...](https://parenting.allwomenstalk.com/fun-snow-day-activities-to-do-with-your-kids/)
+- [9 Things You Can do Now to Prepare for the Holiday...](https://lifestyle.allwomenstalk.com/things-you-can-do-now-to-prepare-for-the-holidays/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 - [7 Cool Things to do in Paris ...](https://travel.allwomenstalk.com/things-to-do-in-paris/)
 

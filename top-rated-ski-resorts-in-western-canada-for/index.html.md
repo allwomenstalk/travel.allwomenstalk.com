@@ -3,7 +3,7 @@ title: "7 Top Rated Ski Resorts in Western Canada for 2015 ..."
 description: "Revelstoke, British Columbia; Fernie, British Columbia; Sun Peaks, British Columbia; Big White, British Columbia; Whistler, British Columbia; More ..."
 url: "https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Top Rated Ski Resorts in Western Canada for 2015 ...
@@ -56,14 +56,14 @@ Canada is such a fabulous winter sports destination. There are just so many glor
 
 ## Related Posts
 
+- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
+- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
 - [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
 - [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
-- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
 - [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
-- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
-- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
+- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
 - [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)

@@ -3,7 +3,7 @@ title: "7 Famous Explorers Who Made Significant Discoveries ..."
 description: "Ferdinand Magellan; Hernan Cortes; Charles Darwin; Marco Polo; Lewis and Clark; More ..."
 url: "https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Famous Explorers Who Made Significant Discoveries ...
@@ -56,16 +56,16 @@ I think I would have like to have been Captain Cook who discovered Australia but
 
 ## Related Posts
 
-- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
-- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
-- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
 - [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
 - [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
+- [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
+- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
+- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
+- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
+- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
 - [7 Wonders of Egypt ...](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

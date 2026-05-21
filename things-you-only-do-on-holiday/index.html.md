@@ -3,7 +3,7 @@ title: "7 Things You Only do on Vacation ..."
 description: "Buying Useless Souvenirs; Bad Fashion Choices; Eating WAY Too Much; Eating Really Weird Stuff; Taking so Many Pics or Videos You Miss What’s Happening; More ..."
 url: "https://travel.allwomenstalk.com/things-you-only-do-on-holiday/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things You Only do on Vacation ...
@@ -56,15 +56,15 @@ How many of these things you only do on holiday are you guilty of? Food and drin
 
 ## Related Posts
 
-- [7 Medicines to Take when Travelling ...](https://travel.allwomenstalk.com/medicines-to-take-when-travelling/)
-- [9 Tips for Traveling with Small Children ...](https://parenting.allwomenstalk.com/tips-for-traveling-with-small-children-2/)
+- [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
 - [7 Things to Pack for a Weekend Road Trip ...](https://travel.allwomenstalk.com/things-to-pack-for-a-weekend-road-trip/)
 - [7 Travel Blunders You Should Avoid Committing ...](https://travel.allwomenstalk.com/travel-blunders-you-should-avoid-committing/)
-- [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
+- [7 Medicines to Take when Travelling ...](https://travel.allwomenstalk.com/medicines-to-take-when-travelling/)
 - [funny dietary requirements](https://travel.allwomenstalk.com/ultimate-tips-for-travelers-with-special-dietary-requirements/)
-- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
-- [7 Safety Tips Every Woman Who Travels Alone Should...](https://travel.allwomenstalk.com/safety-hacks-every-woman-who-travels-alone-should-know/)
+- [9 Tips for Traveling with Small Children ...](https://parenting.allwomenstalk.com/tips-for-traveling-with-small-children-2/)
 - [9 Tips for Travelling to Marrakech ...](https://travel.allwomenstalk.com/tips-for-travelling-to-marrakech/)
+- [7 Safety Tips Every Woman Who Travels Alone Should...](https://travel.allwomenstalk.com/safety-hacks-every-woman-who-travels-alone-should-know/)
+- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
 - [paris riche stylo bottomless](https://travel.allwomenstalk.com/ways-to-not-be-a-jerk-when-traveling/)
 - [8 Benefits of Holidaying Alone ...](https://travel.allwomenstalk.com/8-benefits-of-holidaying-alone/)
 - [10 Signs That You Need a Vacation ...](https://travel.allwomenstalk.com/10-signs-that-you-need-a-vacation/)

@@ -3,7 +3,7 @@ title: "7 Fun Facts about Washington D.C ..."
 description: "Private Subways; Swaying in the Wind; Capitol Competition; Made in China; Work Hard, Play Hard; More ..."
 url: "https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/"
 category: "travel"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fun Facts about Washington D.C ...
@@ -44,16 +44,16 @@ D.C. is one of the most historical cities in the United States, so it makes sens
 
 ## Related Posts
 
+- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
+- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
+- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
+- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
 - [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
-- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
-- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
 - [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
-- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [7 Facts on Florida ...](https://travel.allwomenstalk.com/7-facts-on-florida/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 
