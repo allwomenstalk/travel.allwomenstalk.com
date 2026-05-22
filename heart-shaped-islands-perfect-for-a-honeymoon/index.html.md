@@ -3,7 +3,7 @@ title: "7 Heart-shaped Islands Perfect for a Honeymoon ..."
 description: "Makepeace Island, Australia; Galesnjak Island, Croatia; Tavarua, Fiji; Harbor Island, USA; Netrani Island, India; More ..."
 url: "https://travel.allwomenstalk.com/heart-shaped-islands-perfect-for-a-honeymoon/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Heart\-shaped Islands Perfect for a Honeymoon ...
@@ -56,16 +56,16 @@ Sadly, heart-shaped islands only give up their shape when seen from above, but j
 
 ## Related Posts
 
-- [island hopping in philippines](https://travel.allwomenstalk.com/reasons-to-go-island-hopping-in-the-philippines/)
-- [lonely planet oakland](https://travel.allwomenstalk.com/us-destinations-for-as-recommended-by-lonely-planet/)
-- [coral reef plants list](https://travel.allwomenstalk.com/wonders-of-the-coral-reef/)
-- [you regularly make new friends.](https://lifestyle.allwomenstalk.com/places-to-meet-new-friends/)
 - [amtrak weekend getaways](https://travel.allwomenstalk.com/amtrak-day-trips-that-are-as-a-good-as-a-vacation/)
+- [lonely planet oakland](https://travel.allwomenstalk.com/us-destinations-for-as-recommended-by-lonely-planet/)
+- [you regularly make new friends.](https://lifestyle.allwomenstalk.com/places-to-meet-new-friends/)
 - [coolest hotel lobbies](https://travel.allwomenstalk.com/spectacular-hotel-lobbies-to-check-out-that-will-make-you-want-to-check-in/)
-- [jenkin island andaman](https://travel.allwomenstalk.com/attractions-of-the-andaman-islands/)
-- [modern hotel bathrooms](https://travel.allwomenstalk.com/coolest-hotel-bathrooms-in-the-world/)
 - [guoliang tunnel accidents](https://travel.allwomenstalk.com/roads-highways-and-byways-that-just-call-to-be-driven/)
+- [modern hotel bathrooms](https://travel.allwomenstalk.com/coolest-hotel-bathrooms-in-the-world/)
+- [jenkin island andaman](https://travel.allwomenstalk.com/attractions-of-the-andaman-islands/)
+- [coral reef plants list](https://travel.allwomenstalk.com/wonders-of-the-coral-reef/)
 - [gold coast tourist attractions](https://travel.allwomenstalk.com/reasons-to-visit-gold-coast-in-australia/)
+- [island hopping in philippines](https://travel.allwomenstalk.com/reasons-to-go-island-hopping-in-the-philippines/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Best Budget Honeymoon Destinations ...](https://travel.allwomenstalk.com/best-budget-honeymoon-destinations/)
 

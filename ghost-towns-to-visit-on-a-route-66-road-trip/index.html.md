@@ -3,7 +3,7 @@ title: "7 Ghost Towns to Visit on a Route 66 Road Trip ..."
 description: "Glenrio, Texas; Newkirk, New Mexico; Dilia, New Mexico; Afton, Oklahoma; Spencer, Missouri; More ..."
 url: "https://travel.allwomenstalk.com/ghost-towns-to-visit-on-a-route-66-road-trip/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ghost Towns to Visit on a Route 66 Road Trip ...
@@ -56,16 +56,16 @@ Are you ready to put the pedal to the metal for an awesome trip to the Route 66 
 
 ## Related Posts
 
-- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
-- [popular shopping malls](https://travel.allwomenstalk.com/best-shopping-malls-in-america/)
-- [captains bar shanghai](https://travel.allwomenstalk.com/enviable-rooftop-bars-youve-got-to-visit/)
-- [must see tourist attractions](https://travel.allwomenstalk.com/most-visited-tourist-attractions-in-the-world/)
-- [abraham lincoln thumbs up](https://travel.allwomenstalk.com/places-to-pay-homage-to-abraham-lincoln/)
-- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
 - [manchester trafford center japanese restaurant](https://travel.allwomenstalk.com/reasons-to-visit-manchester-for-a-taste-of-the-north/)
-- [rooftop restaurants in ub city](https://travel.allwomenstalk.com/most-beautiful-rooftop-restaurants-in-the-world/)
+- [must see tourist attractions](https://travel.allwomenstalk.com/most-visited-tourist-attractions-in-the-world/)
+- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
+- [abraham lincoln thumbs up](https://travel.allwomenstalk.com/places-to-pay-homage-to-abraham-lincoln/)
+- [popular shopping malls](https://travel.allwomenstalk.com/best-shopping-malls-in-america/)
 - [lesser known museums in london](https://travel.allwomenstalk.com/lesser-known-london-museums-you-must-visit/)
+- [captains bar shanghai](https://travel.allwomenstalk.com/enviable-rooftop-bars-youve-got-to-visit/)
 - [food throwing festivals](https://travel.allwomenstalk.com/best-food-fight-festivals-around-the-world/)
+- [rooftop restaurants in ub city](https://travel.allwomenstalk.com/most-beautiful-rooftop-restaurants-in-the-world/)
+- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Planning Tips for Your Next Road Trip ...](https://travel.allwomenstalk.com/planning-tips-for-your-next-road-trip/)
 

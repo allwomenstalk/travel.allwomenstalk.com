@@ -3,7 +3,7 @@ title: "7 Crazy Festivals Where You Throw Things ..."
 description: "La Tomatina; The Battle of the Oranges; Gulal; Songkran Festival; Els Enfarinats; More ..."
 url: "https://travel.allwomenstalk.com/crazy-festivals-where-you-throw-things/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Crazy Festivals Where You Throw Things ...
@@ -56,15 +56,15 @@ These are just some crazy throwing festivals you could take part in if you ever 
 
 ## Related Posts
 
-- [kid games board](https://lifestyle.allwomenstalk.com/board-games-i-loved-as-a-kid/)
+- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
+- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
 - [funny gender reveal for husband](https://parenting.allwomenstalk.com/gender-reveal-party-ideas-youll-love/)
+- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
 - [fun educational websites for kids](https://parenting.allwomenstalk.com/fun-websites-for-kids/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/50s-party-ideas/)
-- [things to do with spare time](https://inspiration.allwomenstalk.com/productive-things-to-do-in-your-free-time/)
-- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
-- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
+- [kid games board](https://lifestyle.allwomenstalk.com/board-games-i-loved-as-a-kid/)
 - [family dates](https://parenting.allwomenstalk.com/fun-family-dates-at-home/)
-- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
+- [things to do with spare time](https://inspiration.allwomenstalk.com/productive-things-to-do-in-your-free-time/)
 - [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [7 Fun Things to do in San Francisco ...](https://allwomenstalk.com/7-fun-things-to-do-in-san-francisco/)
 - [7 Fun Things to do on the Weekend ...](https://allwomenstalk.com/7-fun-things-to-do-on-the-weekend/)

@@ -3,7 +3,7 @@ title: "35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patr
 description: "Christ the Redeemer Statue, Rio De Janeiro, Brazil; The London Eye, London, United Kingdom; The Welcome Sign, Las Vegas, USA; The Coliseum, Rome, Italy; The I Amsterdam Sign, Amsterdam, the Netherlands; More ..."
 url: "https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patricks Day 2019 ...
@@ -166,16 +166,16 @@ I wonder which will make its mark in 2020?
 
 ## Related Posts
 
-- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
-- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
-- [The Top 5 Places to See within Your Lifetime  ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
 - [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
-- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
+- [The Top 5 Places to See within Your Lifetime  ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
 - [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
-- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
 - [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
+- [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
+- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
+- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
+- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
+- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [9 Amazing Places to Celebrate Easter This Year ...](https://travel.allwomenstalk.com/places-to-celebrate-easter/)
 

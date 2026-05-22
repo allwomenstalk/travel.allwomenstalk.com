@@ -3,7 +3,7 @@ title: "11 Romantic Things to do in Edinburgh That Will Make You Fall in Love Al
 description: "Mary's Milk Bar, the Grassmarket; Walk the Royal Mile; Dine or Stay at the Witchery; Explore Edinburgh Castle; Climb Scott Monument; More ..."
 url: "https://travel.allwomenstalk.com/romantic-things-to-do-in-edinburgh-that-will-make-you-fall-in-love-all-over-again/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Romantic Things to do in Edinburgh That Will Make You Fall in Love All over Again ...
@@ -80,16 +80,16 @@ Edinburgh is a city of contrasts, of old and new living side by side. Around eve
 
 ## Related Posts
 
-- [strong kiss photo](https://love.allwomenstalk.com/secrets-to-a-great-kiss-that-you-will-thanks-us-for/)
-- [last minute at home date ideas](https://love.allwomenstalk.com/fun-last-minute-date-night-ideas-to-try/)
-- [simple gestures of love](https://love.allwomenstalk.com/simple-yet-meaningful-romantic-gestures-for-your-significant-other/)
-- [boyfriend said i love you](https://love.allwomenstalk.com/ways-guys-say-i-love-you-without-actually-saying-it/)
-- [dog friendly dates](https://love.allwomenstalk.com/dog-friendly-date-ideas-that-you-will-love/)
 - [romantic mivies](https://movies.allwomenstalk.com/romantic-movie-kisses-that-are-fun-to-reenact/)
-- [date ideas for fall](https://love.allwomenstalk.com/wonderful-fall-first-date-ideas-that-will-make-you-fall-in-love/)
-- [fist bump](https://love.allwomenstalk.com/adorable-types-of-hugs-a-man-can-give/)
 - [best poetic words](https://love.allwomenstalk.com/romantic-words-to-use-in-your-love-poems/)
+- [dog friendly dates](https://love.allwomenstalk.com/dog-friendly-date-ideas-that-you-will-love/)
+- [boyfriend said i love you](https://love.allwomenstalk.com/ways-guys-say-i-love-you-without-actually-saying-it/)
+- [strong kiss photo](https://love.allwomenstalk.com/secrets-to-a-great-kiss-that-you-will-thanks-us-for/)
 - [alvarado mevagissey](https://love.allwomenstalk.com/hottest-london-date-ideas-for-your-romantic-city-break/)
+- [simple gestures of love](https://love.allwomenstalk.com/simple-yet-meaningful-romantic-gestures-for-your-significant-other/)
+- [fist bump](https://love.allwomenstalk.com/adorable-types-of-hugs-a-man-can-give/)
+- [last minute at home date ideas](https://love.allwomenstalk.com/fun-last-minute-date-night-ideas-to-try/)
+- [date ideas for fall](https://love.allwomenstalk.com/wonderful-fall-first-date-ideas-that-will-make-you-fall-in-love/)
 - [8 Romantic Ideas for Summer Dates ...](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
 - [7 Romantic Winter Date Ideas ...](https://love.allwomenstalk.com/romantic-winter-date-ideas/)
 

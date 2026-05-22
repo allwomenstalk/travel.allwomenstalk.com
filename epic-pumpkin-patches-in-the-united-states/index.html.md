@@ -3,7 +3,7 @@ title: "7 Epic Pumpkin Patches in the United States ..."
 description: "Plumper Pumpkins, Portland, Oregon; Johnson’s Corner Farm, Medford, New Jersey; Cool Patch Pumpkins, Dixon, California; Pumpkin Hollow, Piggott, Arkansas; The Great Pumpkin Farm, Clarence, New York; More ..."
 url: "https://travel.allwomenstalk.com/epic-pumpkin-patches-in-the-united-states/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Epic Pumpkin Patches in the United States ...
@@ -56,16 +56,16 @@ What’s your favorite pumpkin patch? Tell us all about it so we can try and vis
 
 ## Related Posts
 
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
-- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
-- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
-- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
-- [fun diy halloween crafts](https://diy.allwomenstalk.com/easy-halloween-crafts-for-people-of-all-ages/)
 - [inflatable jelly bean costume](https://diy.allwomenstalk.com/totally-simple-diy-halloween-costumes-for-kids/)
-- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
-- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
 - [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
+- [fun diy halloween crafts](https://diy.allwomenstalk.com/easy-halloween-crafts-for-people-of-all-ages/)
+- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
+- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
+- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
+- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
+- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
 - [7 Best Beaches in the USA ...](https://travel.allwomenstalk.com/7-best-beaches-in-the-usa/)
 - [10 Really Cool Small Towns in America ...](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 

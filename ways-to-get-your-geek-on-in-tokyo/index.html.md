@@ -3,7 +3,7 @@ title: "7 Ways to Get Your Geek on in Tokyo ..."
 description: "Get Your Gadgets Blessed; Learn Stuff at the National Museum of Emerging Science and Innovation; Dine Hi-tech Style; See What’s Going on in the World of Nintendo and Panasonic; Unleash the Nerd in the Akihabara District; More ..."
 url: "https://travel.allwomenstalk.com/ways-to-get-your-geek-on-in-tokyo/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Get Your Geek on in Tokyo ...
@@ -57,15 +57,15 @@ Tokyo is hugely exciting for technology lovers and there’s plenty for traditio
 ## Related Posts
 
 - [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
-- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
 - [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
-- [old fashioned kids](https://parenting.allwomenstalk.com/old-fashioned-activities-to-do-with-your-kids/)
+- [dealers choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
 - [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
 - [card group games](https://lifestyle.allwomenstalk.com/card-games-for-maximum-fun/)
 - [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
-- [dealers choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
 - [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
-- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
+- [old fashioned kids](https://parenting.allwomenstalk.com/old-fashioned-activities-to-do-with-your-kids/)
 - [7 Ways to Travel in Style ...](https://travel.allwomenstalk.com/ways-to-travel-in-style/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 

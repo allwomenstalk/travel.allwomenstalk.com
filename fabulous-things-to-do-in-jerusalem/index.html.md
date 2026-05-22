@@ -3,7 +3,7 @@ title: "9 Fabulous Things to do in Jerusalem ..."
 description: "Visit the Western Wall; Walk the Ramparts; See the Church of the Holy Sepulcher; Find Peace at the White Father's Compound; Visit Haram Al-Sharif; More ..."
 url: "https://travel.allwomenstalk.com/fabulous-things-to-do-in-jerusalem/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Fabulous Things to do in Jerusalem ...
@@ -69,15 +69,15 @@ I’ve been looking at places for my honeymoon and the things to do in Jerusalem
 ## Related Posts
 
 - [7 Players to Watch at the World Cup ...](https://celebs.allwomenstalk.com/players-to-watch-at-the-world-cup/)
-- [7 Super Attractions of Savannah ...](https://travel.allwomenstalk.com/super-attractions-of-savannah/)
-- [7 Must-Visit Cities in China ...](https://travel.allwomenstalk.com/must-visit-cities-in-china/)
-- [7 of the Best Free Things to do in Dallas ...](https://travel.allwomenstalk.com/of-the-best-free-things-to-do-in-dallas/)
-- [9 Notable Places to Visit in Nashville ...](https://travel.allwomenstalk.com/notable-places-to-visit-in-nashville/)
-- [museums to visit in pa](https://travel.allwomenstalk.com/great-museums-in-pennsylvania/)
-- [7 Memorable Attractions in Yosemite National Park ...](https://travel.allwomenstalk.com/memorable-attractions-in-yosemite-national-park/)
-- [7 Spectacular Attractions in Historic Salem ...](https://travel.allwomenstalk.com/spectacular-attractions-in-historic-salem/)
 - [7 Places to Enjoy the Extraordinary Cuisine of Jap...](https://travel.allwomenstalk.com/places-to-enjoy-the-extraordinary-cuisine-of-japan/)
+- [7 of the Best Free Things to do in Dallas ...](https://travel.allwomenstalk.com/of-the-best-free-things-to-do-in-dallas/)
+- [7 Memorable Attractions in Yosemite National Park ...](https://travel.allwomenstalk.com/memorable-attractions-in-yosemite-national-park/)
 - [which scenic spots will have queues of people](https://travel.allwomenstalk.com/world-famous-attractions-and-how-to-beat-the-queues/)
+- [9 Notable Places to Visit in Nashville ...](https://travel.allwomenstalk.com/notable-places-to-visit-in-nashville/)
+- [7 Spectacular Attractions in Historic Salem ...](https://travel.allwomenstalk.com/spectacular-attractions-in-historic-salem/)
+- [7 Super Attractions of Savannah ...](https://travel.allwomenstalk.com/super-attractions-of-savannah/)
+- [museums to visit in pa](https://travel.allwomenstalk.com/great-museums-in-pennsylvania/)
+- [7 Must-Visit Cities in China ...](https://travel.allwomenstalk.com/must-visit-cities-in-china/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 

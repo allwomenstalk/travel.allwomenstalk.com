@@ -3,7 +3,7 @@ title: "7 LOTR and Hobbit Filming Locations in New Zealand ..."
 description: "Hobbiton; Isengard; Beacon Points; Dead Marshes; Fangorn Forest; More ..."
 url: "https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 LOTR and Hobbit Filming Locations in New Zealand ...
@@ -56,16 +56,16 @@ If you can’t travel to these amazing Hobbit filming locations, you’ll have t
 
 ## Related Posts
 
-- [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
-- [sustainable village](https://travel.allwomenstalk.com/sustainable-villages-in-the-world/)
-- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
-- [loreal paris riche le stylo plum](https://travel.allwomenstalk.com/geological-formations-that-you-must-see-to-believe/)
-- [places i want to visit](https://travel.allwomenstalk.com/places-you-cant-visit-but-probably-dont-want-to-anyway/)
 - [places i should visit before i die](https://travel.allwomenstalk.com/places-you-must-visit-before-you-die/)
+- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
+- [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
+- [loreal paris riche le stylo plum](https://travel.allwomenstalk.com/geological-formations-that-you-must-see-to-believe/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
+- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
+- [sustainable village](https://travel.allwomenstalk.com/sustainable-villages-in-the-world/)
+- [places i want to visit](https://travel.allwomenstalk.com/places-you-cant-visit-but-probably-dont-want-to-anyway/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

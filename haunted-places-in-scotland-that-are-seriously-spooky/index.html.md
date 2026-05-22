@@ -3,7 +3,7 @@ title: "7 Haunted Places in Scotland That Are Seriously Spooky ..."
 description: "Abbotsford House; Rosslyn Chapel; Borthwick Castle; Edinburgh Castle; Glamis Castle; More ..."
 url: "https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Haunted Places in Scotland That Are Seriously Spooky ...
@@ -58,15 +58,15 @@ There are lots of interesting places to visit in Scotland, many of which may be 
 
 ## Related Posts
 
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
-- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
-- [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
-- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
 - [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
 - [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
+- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
+- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
 - [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)

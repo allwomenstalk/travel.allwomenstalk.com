@@ -3,7 +3,7 @@ title: "7 Fabulous US Day Trips by Train ..."
 description: "New York City to Montauk; New York City to Beacon/Cold Spring; Philadelphia to Atlantic City; Chicago to Indiana Dunes; San Francisco to Santa Cruz Boardwalk; More ..."
 url: "https://travel.allwomenstalk.com/fabulous-us-day-trips-by-train/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Fabulous US Day Trips by Train ...
@@ -44,16 +44,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/4527170)
 
 ## Related Posts
 
-- [best whale watching destinations](https://travel.allwomenstalk.com/top-destinations-to-go-whale-watching/)
-- [best place in the world to surf](https://travel.allwomenstalk.com/best-places-to-surf-in-the-world/)
-- [10 Stunning Locations for Vacations in Ireland ...](https://travel.allwomenstalk.com/stunning-locations-for-vacations-in-ireland/)
-- [best european beach destinations](https://travel.allwomenstalk.com/top-european-beach-destinations/)
-- [best place to visit during labor day weekend](https://travel.allwomenstalk.com/top-places-for-labor-day-weekend/)
 - [8 Top Wildlife Photos Every Traveler Should Take ....](https://travel.allwomenstalk.com/top-wildlife-photos-every-traveler-should-take/)
-- [8 Myths about round the World Travel Debunked ...](https://travel.allwomenstalk.com/myths-about-round-the-world-travel-debunked/)
+- [best place in the world to surf](https://travel.allwomenstalk.com/best-places-to-surf-in-the-world/)
+- [best place to visit during labor day weekend](https://travel.allwomenstalk.com/top-places-for-labor-day-weekend/)
+- [best european beach destinations](https://travel.allwomenstalk.com/top-european-beach-destinations/)
 - [8 Top City Boat Trips ...](https://travel.allwomenstalk.com/top-city-boat-trips/)
-- [west africa vacation](https://travel.allwomenstalk.com/luscious-holiday-destinations-in-west-africa/)
+- [8 Myths about round the World Travel Debunked ...](https://travel.allwomenstalk.com/myths-about-round-the-world-travel-debunked/)
 - [8 Brilliant Travel Jobs ...](https://travel.allwomenstalk.com/brilliant-travel-jobs/)
+- [10 Stunning Locations for Vacations in Ireland ...](https://travel.allwomenstalk.com/stunning-locations-for-vacations-in-ireland/)
+- [best whale watching destinations](https://travel.allwomenstalk.com/top-destinations-to-go-whale-watching/)
+- [west africa vacation](https://travel.allwomenstalk.com/luscious-holiday-destinations-in-west-africa/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [10 Amazing Places You Can Get to by Train ...](https://allwomenstalk.com/10-amazing-places-you-can-get-to-by-train/)
 

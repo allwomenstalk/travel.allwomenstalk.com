@@ -3,7 +3,7 @@ title: "10 Must See Gaudi Buildings in Barcelona ..."
 description: "La Pedrera; Parc Gűell; Casa Vicens; El Drac De Gaudi at Finca Gŭell; Casa Calvet; More ..."
 url: "https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Must See Gaudi Buildings in Barcelona ...
@@ -72,16 +72,16 @@ Still under construction, the building of this church began in 1892 and is only 
 
 ## Related Posts
 
-- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
-- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
+- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
+- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
 - [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
 - [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
+- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
 - [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
 - [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
-- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
-- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
+- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
 - [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
-- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
+- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
 - [8 Places to Visit in Spain ...](https://travel.allwomenstalk.com/places-to-visit-in-spain/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 

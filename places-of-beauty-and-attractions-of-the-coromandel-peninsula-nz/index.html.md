@@ -3,7 +3,7 @@ title: "7 Places of Beauty and Attractions of the Coromandel Peninsula NZ ..."
 description: "Cathedral Cove; Sleeping God Canyon; Miranda Foreshore; The Pinnacles; Rapaura Water Gardens; More ..."
 url: "https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Places of Beauty and Attractions of the Coromandel Peninsula NZ ...
@@ -57,15 +57,15 @@ There are charming towns dotted around the peninsula as well as camp sites, so y
 ## Related Posts
 
 - [desert cities in the us](https://travel.allwomenstalk.com/deliciously-interesting-desert-towns-in-the-usa/)
-- [thailand color festival](https://travel.allwomenstalk.com/thai-festivals-full-of-color-and-spectacle/)
 - [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
-- [most popular fair food](https://food.allwomenstalk.com/wild-and-crazy-state-fair-foods-youve-got-to-see-to-believe/)
-- [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
 - [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
+- [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
 - [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
-- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
-- [juices ghost town](https://travel.allwomenstalk.com/colorful-towns-that-will-get-your-wanderlust-juices-flowing/)
 - [carlsbad flower market](https://travel.allwomenstalk.com/best-blooming-flower-markets-around-the-world/)
+- [thailand color festival](https://travel.allwomenstalk.com/thai-festivals-full-of-color-and-spectacle/)
+- [juices ghost town](https://travel.allwomenstalk.com/colorful-towns-that-will-get-your-wanderlust-juices-flowing/)
+- [most popular fair food](https://food.allwomenstalk.com/wild-and-crazy-state-fair-foods-youve-got-to-see-to-believe/)
+- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
 - [7 Main Attractions of the Big Island ...](https://travel.allwomenstalk.com/7-main-attractions-of-the-big-island/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 

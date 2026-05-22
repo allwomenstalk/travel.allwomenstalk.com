@@ -3,7 +3,7 @@ title: "9 Touristy Things to do in New York City ..."
 description: "Stand in Times Square; Visit the Statue of Liberty; See a Show on Broadway; Cross the Brooklyn Bridge; Take in the View from the Empire State Building; More ..."
 url: "https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Touristy Things to do in New York City ...
@@ -68,16 +68,16 @@ These are all fun things to do in New York City. Going to all these places has r
 
 ## Related Posts
 
-- [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
+- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
+- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
+- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
+- [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
+- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
+- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
 - [best small towns to visit in new england](https://travel.allwomenstalk.com/small-new-england-towns-that-you-must-visit/)
 - [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
-- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
-- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
-- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
-- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
+- [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
 - [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
-- [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
-- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 

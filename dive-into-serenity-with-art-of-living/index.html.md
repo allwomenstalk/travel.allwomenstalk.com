@@ -3,7 +3,7 @@ title: "The Unexpected Joys of ART OF LIVINGs Greek Journey..."
 description: "A Glimpse of Luxe Tranquility; Swimwear That Makes a Statement; An Invigorating Dive; An Idyllic Beach Day; Reflections on the Edge; More ..."
 url: "https://travel.allwomenstalk.com/dive-into-serenity-with-art-of-living/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # The Unexpected Joys of ART OF LIVINGs Greek Journey...

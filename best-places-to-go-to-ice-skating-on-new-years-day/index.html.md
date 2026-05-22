@@ -3,7 +3,7 @@ title: "7 Best Places to Go to Ice Skating on New Years Day ..."
 description: "Rockefeller Center, New York, USA; Somerset House, London, UK; Yosemite National Park, California, USA; Rideau Canal Skateway, Ottawa, Canada; Rathausplatz, Vienna, Austria; More ..."
 url: "https://travel.allwomenstalk.com/best-places-to-go-to-ice-skating-on-new-years-day/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Best Places to Go to Ice Skating on New Years Day ...
@@ -76,16 +76,16 @@ If you don’t do much on New Year’s Day – except maybe nurse a hangover –
 
 ## Related Posts
 
-- [creepypasts](https://travel.allwomenstalk.com/superb-lakes-with-creepy-pasts/)
-- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
-- [what does disneyland do for new years eve](https://travel.allwomenstalk.com/best-places-to-see-new-years-eve-fireworks/)
-- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
 - [famous prehistoric paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)
+- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
 - [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
-- [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
-- [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
-- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
 - [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
+- [what does disneyland do for new years eve](https://travel.allwomenstalk.com/best-places-to-see-new-years-eve-fireworks/)
+- [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
+- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
+- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
+- [creepypasts](https://travel.allwomenstalk.com/superb-lakes-with-creepy-pasts/)
+- [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Wonderfully Awesome and Fabulous Destinations fo...](https://travel.allwomenstalk.com/wonderfully-awesome-and-fabulous-destinations-for-the-winter-holidays/)
 

@@ -3,7 +3,7 @@ title: "7 Wonders of Egypt ..."
 description: "The Temple of Karnak; The Great Sphinx; The Great Pyramid; The Temple of Luxor; Abu Simbel; More ..."
 url: "https://travel.allwomenstalk.com/7-wonders-of-egypt/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Wonders of Egypt ...
@@ -72,16 +72,16 @@ Top Photo Credit: [Fouad GM](https://www.flickr.com/photos/fouadgm/3955281629/)
 
 ## Related Posts
 
-- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
-- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
-- [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
-- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
-- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
-- [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
-- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
-- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
+- [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
+- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
+- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
+- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
 - [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
+- [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
+- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
+- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 

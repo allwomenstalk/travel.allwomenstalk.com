@@ -3,7 +3,7 @@ title: "9 Haunted Places in Louisiana to Scare the Living Daylights out of You .
 description: "The Old Ellerbe Road School, Shreveport; The Magnolia Plantation, Natchitoches; Alexandria Zoological Park, Alexandria; Harris Hall at University of Louisiana, Lafayette; Joseph Jefferson Mansion, New Iberia; More ..."
 url: "https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Haunted Places in Louisiana to Scare the Living Daylights out of You ...
@@ -68,16 +68,16 @@ History is full of all kinds of stories - good, bad, and terrifying. Have you vi
 
 ## Related Posts
 
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
 - [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
 - [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
 - [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
 - [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 - [5 Haunted Places ...](https://twilight.allwomenstalk.com/5-haunted-places/)
 

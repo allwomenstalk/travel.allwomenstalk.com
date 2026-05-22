@@ -3,7 +3,7 @@ title: "8 Wheelchair Friendly Places in New York ..."
 description: "The Statue of Liberty; Central Park; Metropolitan Museum of Art; New York Theaters; Circle Line; More ..."
 url: "https://travel.allwomenstalk.com/wheelchair-friendly-places-in-new-york/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Wheelchair Friendly Places in New York ...
@@ -66,16 +66,16 @@ Top Image Source: [edinchavez.com](http://edinchavez.com/)
 
 ## Related Posts
 
-- [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
+- [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
 - [art urban places](https://travel.allwomenstalk.com/best-places-to-see-urban-art/)
 - [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
-- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
-- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
-- [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
-- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
-- [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
 - [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
 - [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
+- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
+- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
+- [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
+- [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 

@@ -3,7 +3,7 @@ title: "7 Funiculars around the World for a Fun Ride ..."
 description: "Angels Flight, Los Angeles, USA; Fløibanen, Bergen, Norway; Montmartre Funicular, Paris, France; Peak Tram, Hong Kong; Niesenbahn, Bern, Switzerland; More ..."
 url: "https://travel.allwomenstalk.com/funiculars-around-the-world-for-a-fun-ride/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Funiculars around the World for a Fun Ride ...
@@ -56,16 +56,16 @@ I definitely need to try some of these – I’ve ridden funiculars in the UK, A
 
 ## Related Posts
 
-- [literary places to visit in england](https://travel.allwomenstalk.com/destinations-for-book-nerds-in-the-uk/)
-- [nyc free concerts](https://music.allwomenstalk.com/free-concerts-in-new-york-city-in-the-near-future/)
-- [natural world wonders](https://travel.allwomenstalk.com/pink-natural-wonders-of-the-world/)
 - [night sky netflix](https://travel.allwomenstalk.com/outstanding-sights-in-the-summer-night-sky/)
-- [aurora pic](https://travel.allwomenstalk.com/pictures-of-the-northern-lights-and-aurora-australis/)
-- [the sights of london](https://travel.allwomenstalk.com/iconic-sights-of-london-for-a-visitors-itinerary/)
-- [twenty three grand](https://travel.allwomenstalk.com/unusual-restaurants-in-nyc-you-must-experience/)
-- [magicians in new york](https://travel.allwomenstalk.com/things-that-sum-up-the-magic-of-new-york/)
+- [natural world wonders](https://travel.allwomenstalk.com/pink-natural-wonders-of-the-world/)
 - [countries near luxembourg by train](https://travel.allwomenstalk.com/fabulous-countries-for-train-travel/)
+- [magicians in new york](https://travel.allwomenstalk.com/things-that-sum-up-the-magic-of-new-york/)
+- [twenty three grand](https://travel.allwomenstalk.com/unusual-restaurants-in-nyc-you-must-experience/)
+- [the sights of london](https://travel.allwomenstalk.com/iconic-sights-of-london-for-a-visitors-itinerary/)
 - [nottingham places to visit](https://travel.allwomenstalk.com/attractions-of-nottingham-the-city-of-robin-hood/)
+- [aurora pic](https://travel.allwomenstalk.com/pictures-of-the-northern-lights-and-aurora-australis/)
+- [nyc free concerts](https://music.allwomenstalk.com/free-concerts-in-new-york-city-in-the-near-future/)
+- [literary places to visit in england](https://travel.allwomenstalk.com/destinations-for-book-nerds-in-the-uk/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Best Theme Parks from around the World ...](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 

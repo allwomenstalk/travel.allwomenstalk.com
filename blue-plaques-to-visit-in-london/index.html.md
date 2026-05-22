@@ -3,7 +3,7 @@ title: "10 Blue Plaques to Visit in London ..."
 description: "Charles Dickens; Lady Nancy Astor; JM Barrie; Emmeline Pankhurst; Benjamin Franklin; More ..."
 url: "https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/"
 category: "travel"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Blue Plaques to Visit in London ...
@@ -74,15 +74,15 @@ All sorts of people have Blue Plaques in London, from politicians, reformers, ar
 
 ## Related Posts
 
+- [quirky festivals](https://travel.allwomenstalk.com/bizarre-festivals-in-australia/)
 - [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
 - [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
-- [european galleries feature mustsee](https://travel.allwomenstalk.com/must-see-art-galleries-in-europe/)
 - [best destination to visit in kenya](https://travel.allwomenstalk.com/top-places-to-visit-in-kenya/)
 - [popular things in scotland](https://travel.allwomenstalk.com/top-tourist-attractions-in-scotland/)
 - [barcelona farmers market](https://travel.allwomenstalk.com/top-street-markets-around-the-world/)
-- [quirky festivals](https://travel.allwomenstalk.com/bizarre-festivals-in-australia/)
-- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
+- [european galleries feature mustsee](https://travel.allwomenstalk.com/must-see-art-galleries-in-europe/)
 - [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
+- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
 - [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
