@@ -3,7 +3,7 @@ title: "7 Tours for Book Lovers ..."
 description: "Melbourne - Literary Markets and Historical Sites; Paris - Père Lachaise and Other Haunts; Key West - Hemingway’s Home; Mumbai - Slumdog; Buenos Aires - Borges for Bibliophiles; More ..."
 url: "https://travel.allwomenstalk.com/tours-for-book-lovers/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 7 Tours for Book Lovers ...
