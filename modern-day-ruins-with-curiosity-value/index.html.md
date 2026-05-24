@@ -3,7 +3,7 @@ title: "7 Modern Day Ruins with Curiosity Value ..."
 description: "Aldwych Tube Station, London; Kolmanskop, Namibia; Hashima Island, Japan; New Smyrna Beach Sugar Mill Ruins, Florida; Maunsell Forts, England; More ..."
 url: "https://travel.allwomenstalk.com/modern-day-ruins-with-curiosity-value/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 7 Modern Day Ruins with Curiosity Value ...
