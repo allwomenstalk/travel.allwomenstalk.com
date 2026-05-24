@@ -3,7 +3,7 @@ title: "Top 10 Things to do While Studying Abroad in Canada ..."
 description: "Visit Niagara Falls; Go Skiing or Snowboarding; Get in Touch with Your Inner Cowboy in Calgary; Attend an Ice Hockey Match; Spot Whales off of Vancouver Island; More ..."
 url: "https://travel.allwomenstalk.com/top-things-to-do-while-studying-abroad-in-canada/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # Top 10 Things to do While Studying Abroad in Canada ...
