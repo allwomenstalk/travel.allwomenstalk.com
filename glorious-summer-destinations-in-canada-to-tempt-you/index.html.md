@@ -56,16 +56,16 @@ Coast to coast, there really are some glorious summer destinations in Canada. Ch
 
 ## Related Posts
 
-- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
-- [caveman room](https://travel.allwomenstalk.com/over-the-top-and-wacky-hotel-rooms-and-suites/)
-- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
-- [japanese capsule hotel nyc](https://travel.allwomenstalk.com/perfectly-presented-pod-hotels-for-a-stay-with-a-difference/)
-- [six flags vertical velocity](https://travel.allwomenstalk.com/roller-coasters-to-hit-on-your-summer-road-trip/)
 - [kerala time](https://travel.allwomenstalk.com/kick-ass-places-in-kerala-for-a-knockout-time/)
-- [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
-- [beaches india](https://travel.allwomenstalk.com/fabulous-beaches-of-india-to-fuel-your-imagination/)
 - [guaceto beach](https://travel.allwomenstalk.com/immaculate-italian-beaches-for-la-dolce-vita/)
+- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
+- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
+- [japanese capsule hotel nyc](https://travel.allwomenstalk.com/perfectly-presented-pod-hotels-for-a-stay-with-a-difference/)
 - [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
+- [caveman room](https://travel.allwomenstalk.com/over-the-top-and-wacky-hotel-rooms-and-suites/)
+- [beaches india](https://travel.allwomenstalk.com/fabulous-beaches-of-india-to-fuel-your-imagination/)
+- [six flags vertical velocity](https://travel.allwomenstalk.com/roller-coasters-to-hit-on-your-summer-road-trip/)
+- [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 

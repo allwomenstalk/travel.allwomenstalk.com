@@ -56,16 +56,16 @@ Punta Cana is one of the many amazing place to visit in the Caribbean. What othe
 
 ## Related Posts
 
-- [epic hospitality group](https://travel.allwomenstalk.com/epic-hotels-thatll-make-you-wish-you-could-stay-forever/)
-- [anniversary destinations](https://travel.allwomenstalk.com/unconventionally-romantic-destinations-to-travel-to/)
-- [amazing spas](https://travel.allwomenstalk.com/amazing-spas-around-the-world-to-add-to-your-list/)
-- [backpacking trips abroad](https://travel.allwomenstalk.com/breathtaking-backpacking-trips-to-assuage-your-wanderlust/)
 - [best lakes to visit in usa](https://travel.allwomenstalk.com/best-lakes-in-the-us-for-fishing/)
+- [backpacking trips abroad](https://travel.allwomenstalk.com/breathtaking-backpacking-trips-to-assuage-your-wanderlust/)
 - [best caves to visit in the world](https://travel.allwomenstalk.com/amazing-caves-to-visit-with-your-kids-before-they-grow-up/)
-- [interesting vacation ideas](https://travel.allwomenstalk.com/unique-vacation-ideas-to-consider-this-year/)
-- [best holidays for teenage families](https://travel.allwomenstalk.com/best-holiday-destinations-for-teens/)
+- [amazing spas](https://travel.allwomenstalk.com/amazing-spas-around-the-world-to-add-to-your-list/)
 - [ticlio pass](https://travel.allwomenstalk.com/revolutionary-road-trips-you-should-take-in-your-lifetime/)
 - [fan made horror movies](https://travel.allwomenstalk.com/destinations-for-horror-movie-fans/)
+- [anniversary destinations](https://travel.allwomenstalk.com/unconventionally-romantic-destinations-to-travel-to/)
+- [epic hospitality group](https://travel.allwomenstalk.com/epic-hotels-thatll-make-you-wish-you-could-stay-forever/)
+- [interesting vacation ideas](https://travel.allwomenstalk.com/unique-vacation-ideas-to-consider-this-year/)
+- [best holidays for teenage families](https://travel.allwomenstalk.com/best-holiday-destinations-for-teens/)
 - [8 Reasons to Visit Thailand ...](https://travel.allwomenstalk.com/reasons-to-visit-thailand/)
 - [10 Reasons to Go to India for a Vacation ...](https://allwomenstalk.com/indian-vacation/)
 

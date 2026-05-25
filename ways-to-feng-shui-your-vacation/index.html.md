@@ -44,16 +44,16 @@ With these ways to feng shui your vacation you can keep your energy at peak leve
 
 ## Related Posts
 
-- [lightest luggage](https://travel.allwomenstalk.com/pieces-of-lightweight-luggage-perfect-for-holiday-travel/)
 - [things to do before you go on vacation](https://travel.allwomenstalk.com/fun-things-to-do-before-your-next-vacation/)
-- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
+- [lightest luggage](https://travel.allwomenstalk.com/pieces-of-lightweight-luggage-perfect-for-holiday-travel/)
+- [what to wear when traveling to the middle east](https://travel.allwomenstalk.com/essential-tips-for-women-traveling-in-the-middle-east/)
+- [rude gestures](https://travel.allwomenstalk.com/rude-gestures-to-avoid-when-traveling-around-the-world/)
+- [how to cut travel time](https://travel.allwomenstalk.com/ways-to-cut-time-in-lines-when-you-travel/)
+- [things people forget to pack](https://travel.allwomenstalk.com/most-common-things-we-forget-to-pack/)
 - [vacation friends budget](https://travel.allwomenstalk.com/points-to-discuss-when-you-want-to-vacation-with-friends/)
 - [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
 - [a jet setter](https://travel.allwomenstalk.com/ways-to-travel-like-a-jetsetter/)
-- [rude gestures](https://travel.allwomenstalk.com/rude-gestures-to-avoid-when-traveling-around-the-world/)
-- [what to wear when traveling to the middle east](https://travel.allwomenstalk.com/essential-tips-for-women-traveling-in-the-middle-east/)
-- [things people forget to pack](https://travel.allwomenstalk.com/most-common-things-we-forget-to-pack/)
-- [how to cut travel time](https://travel.allwomenstalk.com/ways-to-cut-time-in-lines-when-you-travel/)
+- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
 - [5 Elements of Feng Shui ...](https://twilight.allwomenstalk.com/5-elements-of-feng-shui/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)
 

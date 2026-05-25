@@ -56,16 +56,16 @@ Well there you are – a selection of the pod hotels that are springing up all o
 
 ## Related Posts
 
-- [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
-- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
-- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
-- [guaceto beach](https://travel.allwomenstalk.com/immaculate-italian-beaches-for-la-dolce-vita/)
-- [kerala time](https://travel.allwomenstalk.com/kick-ass-places-in-kerala-for-a-knockout-time/)
 - [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
-- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
-- [date trips](https://love.allwomenstalk.com/wonderful-day-trips-to-take-with-your-date/)
 - [scandinavian honeymoon](https://travel.allwomenstalk.com/superlicious-scandinavian-beaches-that-stir-the-soul/)
+- [kerala time](https://travel.allwomenstalk.com/kick-ass-places-in-kerala-for-a-knockout-time/)
+- [guaceto beach](https://travel.allwomenstalk.com/immaculate-italian-beaches-for-la-dolce-vita/)
+- [date trips](https://love.allwomenstalk.com/wonderful-day-trips-to-take-with-your-date/)
+- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
 - [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
+- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
+- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
+- [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 

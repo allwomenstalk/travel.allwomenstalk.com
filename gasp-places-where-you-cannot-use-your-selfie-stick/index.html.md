@@ -71,16 +71,16 @@ What are your thoughts on the selfie phenomenon?
 
 ## Related Posts
 
+- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
+- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
 - [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
 - [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
-- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
-- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
-- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
-- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
 - [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
 - [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
 - [10 Amazing Places to Go Snorkeling ...](https://travel.allwomenstalk.com/amazing-places-to-go-snorkeling/)
 - [7 Ways to Take Great Photos While Traveling ...](https://travel.allwomenstalk.com/ways-to-take-great-photos-while-traveling/)
 

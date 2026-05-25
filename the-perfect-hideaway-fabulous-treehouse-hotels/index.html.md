@@ -54,16 +54,16 @@ I’ve chosen some pretty exotic locations here but really, treehouse hotels are
 
 ## Related Posts
 
-- [green mountain detox](https://travel.allwomenstalk.com/digital-detox-off-the-grid-vacations/)
-- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
-- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
 - [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
-- [a weekend to never forget](https://travel.allwomenstalk.com/weekend-trips-youll-never-forget/)
-- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
 - [place to escape](https://travel.allwomenstalk.com/places-where-you-really-escape-the-rat-race/)
+- [a weekend to never forget](https://travel.allwomenstalk.com/weekend-trips-youll-never-forget/)
 - [the man of your dreams](https://love.allwomenstalk.com/here-are-the-best-places-to-meet-the-man-of-your-dreams/)
 - [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
+- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
+- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
 - [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
+- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
+- [green mountain detox](https://travel.allwomenstalk.com/digital-detox-off-the-grid-vacations/)
 - [8 Romantic Cabin Locations ...](https://travel.allwomenstalk.com/8-romantic-cabin-locations/)
 - [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 

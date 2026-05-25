@@ -56,15 +56,15 @@ Are you planning a trip to the valley? Phoenix residents, please share your favo
 
 ## Related Posts
 
-- [the importance of the great wall of china](https://travel.allwomenstalk.com/of-the-most-important-historical-sites-in-china/)
 - [tourist attractions little rock arkansas](https://travel.allwomenstalk.com/places-to-visit-in-little-rock/)
-- [madagscar characters](https://travel.allwomenstalk.com/sights-of-madagscar-to-wow-you/)
+- [wheres the harry potter castle](https://travel.allwomenstalk.com/harry-potter-filming-locations-you-can-visit/)
+- [most christmassy states](https://travel.allwomenstalk.com/most-christmassy-towns-in-the-usa/)
+- [narrows texas hill country](https://travel.allwomenstalk.com/sights-of-texas-the-lone-star-state/)
+- [the importance of the great wall of china](https://travel.allwomenstalk.com/of-the-most-important-historical-sites-in-china/)
+- [echo park craft fair](https://diy.allwomenstalk.com/indie-craft-fairs-every-one-should-go-to/)
 - [nebraska top attractions](https://travel.allwomenstalk.com/top-attractions-of-omaha-the-big-o/)
 - [seattle sightseeing](https://travel.allwomenstalk.com/essential-sights-of-seattle-for-every-visitor/)
-- [echo park craft fair](https://diy.allwomenstalk.com/indie-craft-fairs-every-one-should-go-to/)
-- [wheres the harry potter castle](https://travel.allwomenstalk.com/harry-potter-filming-locations-you-can-visit/)
-- [narrows texas hill country](https://travel.allwomenstalk.com/sights-of-texas-the-lone-star-state/)
-- [most christmassy states](https://travel.allwomenstalk.com/most-christmassy-towns-in-the-usa/)
+- [madagscar characters](https://travel.allwomenstalk.com/sights-of-madagscar-to-wow-you/)
 - [flat top mountain](https://travel.allwomenstalk.com/incredible-table-top-mountains-around-the-world/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 - [7 Cities You Must Visit in the U.S ...](https://allwomenstalk.com/7-cities-you-must-visit-in-the-u-s/)

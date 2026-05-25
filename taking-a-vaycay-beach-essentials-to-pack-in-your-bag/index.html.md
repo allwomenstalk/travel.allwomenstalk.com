@@ -86,16 +86,16 @@ Ah...the beach. Such a relaxing place to be. Enjoy that summer vacay! Hopefully 
 
 ## Related Posts
 
-- [safari travel writer twitter](https://travel.allwomenstalk.com/travel-tweeters-you-should-be-following/)
-- [trips to take with your best friend](https://travel.allwomenstalk.com/dos-and-donts-to-taking-a-vacation-with-friends/)
-- [travel checklist for women](https://travel.allwomenstalk.com/the-ultimate-travel-checklist-for-women-under/)
-- [disney world infographic](https://travel.allwomenstalk.com/make-your-disney-vacation-unforgettable-with-these-handy-infographics/)
-- [world travel tips](https://travel.allwomenstalk.com/best-ever-tips-for-travelling-the-world/)
 - [how to decide where to go in italy](https://travel.allwomenstalk.com/how-to-decide-on-your-next-trip/)
-- [love travel adventures](https://travel.allwomenstalk.com/the-pesky-perils-of-travel-adventures/)
-- [je ne parle francais meaning](https://lifestyle.allwomenstalk.com/basic-french-phrases-you-should-know-if-you-visit-paris/)
-- [to fund your dream around the world vacation](https://travel.allwomenstalk.com/how-to-turn-your-dream-of-traveling-the-world-into-a-reality-before-you-turn/)
+- [travel checklist for women](https://travel.allwomenstalk.com/the-ultimate-travel-checklist-for-women-under/)
 - [traveling millionaire](https://travel.allwomenstalk.com/how-to-travel-like-a-millionaire-on-a-budget/)
+- [world travel tips](https://travel.allwomenstalk.com/best-ever-tips-for-travelling-the-world/)
+- [disney world infographic](https://travel.allwomenstalk.com/make-your-disney-vacation-unforgettable-with-these-handy-infographics/)
+- [trips to take with your best friend](https://travel.allwomenstalk.com/dos-and-donts-to-taking-a-vacation-with-friends/)
+- [to fund your dream around the world vacation](https://travel.allwomenstalk.com/how-to-turn-your-dream-of-traveling-the-world-into-a-reality-before-you-turn/)
+- [je ne parle francais meaning](https://lifestyle.allwomenstalk.com/basic-french-phrases-you-should-know-if-you-visit-paris/)
+- [safari travel writer twitter](https://travel.allwomenstalk.com/travel-tweeters-you-should-be-following/)
+- [love travel adventures](https://travel.allwomenstalk.com/the-pesky-perils-of-travel-adventures/)
 - [7 Tips to Help You Pack for Your Holiday ...](https://travel.allwomenstalk.com/tips-to-help-you-pack-for-your-holiday/)
 - [6 Essential Items to Take on Your Honeymoon ...](https://wedding.allwomenstalk.com/essential-items-to-take-on-your-honeymoon/)
 

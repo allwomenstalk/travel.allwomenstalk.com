@@ -42,16 +42,16 @@ So there you have it! Are you ready to take on the world yet on your own? It can
 
 ## Related Posts
 
-- [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
+- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
+- [importance of politeness in communication](https://lifestyle.allwomenstalk.com/advantages-of-being-polite-to-strangers/)
 - [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
+- [visitnewyork](https://travel.allwomenstalk.com/reasons-to-visit-new-york-city-while-youre-young/)
+- [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
 - [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
-- [what is the best thing about being a teenager](https://lifestyle.allwomenstalk.com/reasons-why-being-a-teenager-is-great/)
+- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
 - [why the rainforest is important](https://lifestyle.allwomenstalk.com/reasons-the-rainforest-is-important-to-the-world/)
 - [why we need faith in our life](https://lifestyle.allwomenstalk.com/important-reasons-you-need-faith-in-your-life/)
-- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
-- [importance of politeness in communication](https://lifestyle.allwomenstalk.com/advantages-of-being-polite-to-strangers/)
-- [visitnewyork](https://travel.allwomenstalk.com/reasons-to-visit-new-york-city-while-youre-young/)
-- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
+- [what is the best thing about being a teenager](https://lifestyle.allwomenstalk.com/reasons-why-being-a-teenager-is-great/)
 - [8 Benefits of Holidaying Alone ...](https://travel.allwomenstalk.com/8-benefits-of-holidaying-alone/)
 - [7 Reasons to Give up Your Job to Travel the World ...](https://travel.allwomenstalk.com/reasons-to-give-up-your-job-to-travel-the-world/)
 

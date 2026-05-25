@@ -42,15 +42,15 @@ Where will you be drinking beer this St. Patrick’s Day?
 
 ## Related Posts
 
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
-- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
-- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
-- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
-- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
 - [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
+- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
+- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
+- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
 - [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
+- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
 - [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [10 Reasons to Visit Ireland ...](https://travel.allwomenstalk.com/10-reasons-to-visit-ireland/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)

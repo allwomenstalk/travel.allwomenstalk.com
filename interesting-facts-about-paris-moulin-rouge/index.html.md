@@ -42,16 +42,16 @@ Knowing these facts, will you dare visit Moulin Rouge?Or, if you've already been
 
 ## Related Posts
 
-- [weirdest cheese](https://food.allwomenstalk.com/weird-and-wonderful-facts-about-british-cheese/)
-- [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
-- [citrus 7](https://food.allwomenstalk.com/surprising-facts-about-citrus-fruits/)
-- [taylor swift snl monologue song](https://celebs.allwomenstalk.com/things-no-one-told-you-about-taylor-swift/)
 - [most consumed vegetable](https://food.allwomenstalk.com/interesting-facts-about-vegetables/)
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
-- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
-- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [taylor swift snl monologue song](https://celebs.allwomenstalk.com/things-no-one-told-you-about-taylor-swift/)
+- [weirdest cheese](https://food.allwomenstalk.com/weird-and-wonderful-facts-about-british-cheese/)
 - [pitch perfect titanium scene](https://movies.allwomenstalk.com/awesome-little-known-facts-about-pitch-perfect/)
+- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
 - [watch the fault in our stars movie](https://movies.allwomenstalk.com/fun-facts-from-the-fault-in-our-stars-movie/)
+- [citrus 7](https://food.allwomenstalk.com/surprising-facts-about-citrus-fruits/)
+- [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
+- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
 - [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [7 Magnificent French Chateaux ...](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 

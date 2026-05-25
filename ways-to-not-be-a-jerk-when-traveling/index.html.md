@@ -42,16 +42,16 @@ See! I told you it’s easy not to be a jerk when traveling and your experience 
 
 ## Related Posts
 
-- [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
-- [7 Tips for Creating Your Bucket List ...](https://inspiration.allwomenstalk.com/tips-for-creating-your-bucket-list/)
+- [A Must-Have Checklist for Your Next Trip ...](https://travel.allwomenstalk.com/things-you-need-to-check-before-traveling/)
 - [7 Ways to Score Travel Deals ...](https://travel.allwomenstalk.com/ways-to-score-travel-deals/)
 - [7 Apps That Will Help You Travel on a Small Budget...](https://apps.allwomenstalk.com/apps-that-will-help-you-travel-on-a-small-budget/)
+- [9 Tips to Make Vacationing with an Infant Stress-F...](https://parenting.allwomenstalk.com/tips-to-make-vacationing-with-an-infant-stress-free/)
 - [7 Beauty Tips for when You Travel ...](https://beauty.allwomenstalk.com/beauty-tips-for-when-you-travel/)
-- [39 Things to Tick off Your to-do List when You Vis...](https://travel.allwomenstalk.com/things-to-tick-off-your-to-do-list-when-you-visit-malta/)
 - [sleeping at airports](https://travel.allwomenstalk.com/tips-for-sleeping-at-airports/)
 - [7 Travel Tips for Your First Trimester ...](https://travel.allwomenstalk.com/travel-tips-for-your-first-trimester/)
-- [9 Tips to Make Vacationing with an Infant Stress-F...](https://parenting.allwomenstalk.com/tips-to-make-vacationing-with-an-infant-stress-free/)
-- [A Must-Have Checklist for Your Next Trip ...](https://travel.allwomenstalk.com/things-you-need-to-check-before-traveling/)
+- [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
+- [39 Things to Tick off Your to-do List when You Vis...](https://travel.allwomenstalk.com/things-to-tick-off-your-to-do-list-when-you-visit-malta/)
+- [7 Tips for Creating Your Bucket List ...](https://inspiration.allwomenstalk.com/tips-for-creating-your-bucket-list/)
 - [7 Ways to Deal with Annoying Co-Passengers ...](https://travel.allwomenstalk.com/ways-to-deal-with-annoying-co-passengers/)
 - [7 Ways to Avoid an Argument ...](https://allwomenstalk.com/7-ways-to-avoid-an-argument/)
 

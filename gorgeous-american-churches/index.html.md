@@ -56,16 +56,16 @@ Churches tell us so much and you don’t need to be religious to enjoy them. Whe
 
 ## Related Posts
 
-- [communes around the world](https://travel.allwomenstalk.com/arty-communes-around-the-world/)
 - [what to do when in manila](https://travel.allwomenstalk.com/fabulous-things-to-do-in-manila/)
+- [tourist attractions in montevideo uruguay](https://travel.allwomenstalk.com/best-attractions-of-montevideo/)
+- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
+- [anglers newport maine](https://food.allwomenstalk.com/maine-seafood-restaurants-youve-got-to-try-in-your-lifetime/)
 - [attractions in. brazil](https://travel.allwomenstalk.com/brilliant-places-to-visit-in-brazil/)
 - [world zoos ranked](https://travel.allwomenstalk.com/epic-zoos-around-the-world-you-must-see-at-least-once/)
-- [anglers newport maine](https://food.allwomenstalk.com/maine-seafood-restaurants-youve-got-to-try-in-your-lifetime/)
-- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
-- [strange landmarks](https://travel.allwomenstalk.com/strange-landmarks-in-the-us/)
-- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
-- [tourist attractions in montevideo uruguay](https://travel.allwomenstalk.com/best-attractions-of-montevideo/)
 - [fondue restaurants bay area](https://food.allwomenstalk.com/amazing-restaurants-in-the-bay-area/)
+- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
+- [strange landmarks](https://travel.allwomenstalk.com/strange-landmarks-in-the-us/)
+- [communes around the world](https://travel.allwomenstalk.com/arty-communes-around-the-world/)
 - [10 Really Cool Small Towns in America ...](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [7 Terrific Little Beach Towns in America ...](https://travel.allwomenstalk.com/terrific-little-beach-towns-in-america/)
 

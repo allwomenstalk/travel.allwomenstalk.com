@@ -71,15 +71,15 @@ Resource
 
 ## Related Posts
 
-- [pencil shaving painting](https://lifestyle.allwomenstalk.com/a-new-take-on-shaving-introducing-the-art-of-meghan-maconochie/)
-- [victoria secret female models](https://fashion.allwomenstalk.com/who-are-the-new-models-victorias-secret-just-granted-angel-wings-to/)
+- [deepika padukone fashion style](https://fashion.allwomenstalk.com/fabulous-looks-from-deepika-padukone/)
 - [My Pick for Artist of the Day Aniko Kolesnikova......](https://inspiration.allwomenstalk.com/my-pick-for-artist-of-the-day-aniko-kolesnikova-heres-why/)
 - [kate mara white dress](https://celebs.allwomenstalk.com/youve-got-to-swipe-a-few-of-kate-maras-looks-this-summer/)
-- [kim k highlights](https://celebs.allwomenstalk.com/kim-k-is-pregnant-again-how-about-some-highlights-from-her-first-time-around/)
 - [maxim taylor swift](https://celebs.allwomenstalk.com/this-is-why-taylor-swift-topped-maxims-hot/)
-- [priceless stone](https://jewelry.allwomenstalk.com/priceless-stones-even-jennifer-aniston-would-be-jealous-of/)
-- [deepika padukone fashion style](https://fashion.allwomenstalk.com/fabulous-looks-from-deepika-padukone/)
 - [taylor swift long hair with bangs](https://hair.allwomenstalk.com/lets-take-a-moment-to-admire-taylor-swifts-hair-shall-we/)
+- [victoria secret female models](https://fashion.allwomenstalk.com/who-are-the-new-models-victorias-secret-just-granted-angel-wings-to/)
+- [kim k highlights](https://celebs.allwomenstalk.com/kim-k-is-pregnant-again-how-about-some-highlights-from-her-first-time-around/)
+- [pencil shaving painting](https://lifestyle.allwomenstalk.com/a-new-take-on-shaving-introducing-the-art-of-meghan-maconochie/)
+- [priceless stone](https://jewelry.allwomenstalk.com/priceless-stones-even-jennifer-aniston-would-be-jealous-of/)
 - [kyle jenner weight](https://celebs.allwomenstalk.com/times-kylie-jenner-proved-that-some-weight-gain-is-hot/)
 - [Christina Ricci Vogued in Italy](https://allwomenstalk.com/christina-ricci-vogued-in-italy/)
 - [Bikinis Going Solar](https://allwomenstalk.com/bikinis-going-solar/)

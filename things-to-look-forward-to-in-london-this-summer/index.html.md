@@ -42,16 +42,16 @@ Of course, one of the best things about visiting London in the summer is how eas
 
 ## Related Posts
 
-- [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
-- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
 - [what fruit and vegetables are in season right now](https://food.allwomenstalk.com/best-spring-seasonal-fruits/)
-- [best summer activity](https://lifestyle.allwomenstalk.com/must-do-summer-activities/)
-- [whats summer fling](https://love.allwomenstalk.com/facts-about-summer-flings/)
-- [montreal summer](https://travel.allwomenstalk.com/things-to-do-in-montreal-this-summer/)
-- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
 - [get fit for summer](https://fitness.allwomenstalk.com/ways-to-get-fit-this-summer/)
-- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
 - [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [best summer activity](https://lifestyle.allwomenstalk.com/must-do-summer-activities/)
+- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
+- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
+- [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
+- [whats summer fling](https://love.allwomenstalk.com/facts-about-summer-flings/)
+- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
+- [montreal summer](https://travel.allwomenstalk.com/things-to-do-in-montreal-this-summer/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 - [10 Places to Visit in the U.K ...](https://allwomenstalk.com/10-places-to-visit-in-the-u-k/)
 

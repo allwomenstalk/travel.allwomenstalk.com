@@ -47,15 +47,15 @@ Ticket prices are $95 per person Tuesdays-Thursdays and on Sundays, and $110 per
 ## Related Posts
 
 - [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
-- [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
+- [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
 - [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
-- [10 places to visit in germany](https://travel.allwomenstalk.com/top-places-to-visit-in-germany/)
-- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
+- [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
 - [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
 - [franklins fountain philadelphia](https://travel.allwomenstalk.com/reasons-to-visit-franklin-fountain-in-philadelphia/)
+- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
+- [10 places to visit in germany](https://travel.allwomenstalk.com/top-places-to-visit-in-germany/)
 - [chicago vegetarian restaurant](https://food.allwomenstalk.com/top-rated-vegan-restaurants-around-the-world/)
 - [best places to shop online black friday](https://money.allwomenstalk.com/best-places-for-black-friday-bargains/)
-- [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [8 Most Haunted Places from around the World ...](https://allwomenstalk.com/8-most-haunted-places-from-around-the-world/)
 

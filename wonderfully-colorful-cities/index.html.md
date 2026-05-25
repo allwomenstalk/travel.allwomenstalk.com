@@ -68,16 +68,16 @@ Gorgeous aren’t they? This pick of the world’s colorful cities might get you
 
 ## Related Posts
 
-- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
+- [mary shelley blue plaque](https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/)
 - [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
-- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
+- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
 - [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
-- [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
+- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
+- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
 - [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
 - [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
-- [mary shelley blue plaque](https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/)
+- [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
 - [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
-- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
 

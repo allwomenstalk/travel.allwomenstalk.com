@@ -42,16 +42,16 @@ So, these are just some of the things that I have picked up from my experience s
 
 ## Related Posts
 
-- [benefits of small town living](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-small-city/)
 - [looking forward to new year](https://inspiration.allwomenstalk.com/reasons-to-look-forward-to-january/)
 - [new new haircut](https://hair.allwomenstalk.com/reasons-to-get-a-great-new-haircut/)
-- [should i have a personal website](https://apps.allwomenstalk.com/reasons-to-have-a-personal-website/)
 - [guest experience lead](https://money.allwomenstalk.com/reasons-to-take-a-lower-paying-job/)
-- [why 2015 was the best year](https://inspiration.allwomenstalk.com/reasons-why-will-be-a-great-year/)
-- [writing thank you cards](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-writing-thank-you-notes/)
-- [are online relationships as valuable as in-person ...](https://love.allwomenstalk.com/benefits-of-internet-relationships/)
 - [get excited and make things](https://lifestyle.allwomenstalk.com/reasons-to-get-excited-for-february/)
 - [house party new years](https://lifestyle.allwomenstalk.com/reasons-to-have-a-house-party-on-new-years-eve/)
+- [benefits of small town living](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-small-city/)
+- [writing thank you cards](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-writing-thank-you-notes/)
+- [should i have a personal website](https://apps.allwomenstalk.com/reasons-to-have-a-personal-website/)
+- [why 2015 was the best year](https://inspiration.allwomenstalk.com/reasons-why-will-be-a-great-year/)
+- [are online relationships as valuable as in-person ...](https://love.allwomenstalk.com/benefits-of-internet-relationships/)
 - [7 Rewards Programs to Help Your School ...](https://parenting.allwomenstalk.com/7-rewards-programs-to-help-your-school/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 

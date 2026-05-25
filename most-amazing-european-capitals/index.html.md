@@ -72,16 +72,16 @@ Top Photo Credit: [James.Stringer](https://www.flickr.com/photos/jamesstringer/2
 
 ## Related Posts
 
-- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
-- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
-- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
-- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
-- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
-- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
-- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
+- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
+- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
+- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
+- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
+- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
+- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

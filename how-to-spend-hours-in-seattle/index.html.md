@@ -56,16 +56,16 @@ That should give you an action packed 24 hours in Seattle. What do Seattleites t
 
 ## Related Posts
 
-- [How to Have a Fun Friday Night at Home ...](https://lifestyle.allwomenstalk.com/how-to-have-a-fun-friday-night-at-home/)
-- [Make Your Mama Smile on Mothers Day with These Swe...](https://lifestyle.allwomenstalk.com/make-your-mama-smile-on-mothers-day-with-these-sweet-activities/)
 - [7 Boring Things Happy Couples Actually Have Fun Do...](https://love.allwomenstalk.com/boring-things-happy-couples-actually-have-fun-doing/)
-- [7 Things to do in with the Colors in Your Palette ...](https://makeup.allwomenstalk.com/things-to-do-in-with-the-colors-in-your-palette-that-arent-your-faves/)
+- [Make Your Mama Smile on Mothers Day with These Swe...](https://lifestyle.allwomenstalk.com/make-your-mama-smile-on-mothers-day-with-these-sweet-activities/)
+- [Banish Boredom - Take up a New Hobby ...](https://lifestyle.allwomenstalk.com/banish-boredom-take-up-a-new-hobby/)
+- [7 Ways to Spend Time around a Bonfire ...](https://funny.allwomenstalk.com/ways-to-spend-time-around-a-bonfire/)
 - [autumn falls netflix and chill](https://love.allwomenstalk.com/autumn-date-ideas-that-beat-netflix-and-chill/)
+- [7 Things to do in with the Colors in Your Palette ...](https://makeup.allwomenstalk.com/things-to-do-in-with-the-colors-in-your-palette-that-arent-your-faves/)
 - [Summer Activities Parents Will Enjoy as Much as Th...](https://parenting.allwomenstalk.com/summer-activities-parents-will-enjoy-as-much-as-their-kids/)
 - [Alternative Things to do when You CanNot Be Drinki...](https://lifestyle.allwomenstalk.com/alternative-things-to-do-when-you-can-not-be-drinking-at-a-party/)
-- [7 Ways to Spend Time around a Bonfire ...](https://funny.allwomenstalk.com/ways-to-spend-time-around-a-bonfire/)
+- [How to Have a Fun Friday Night at Home ...](https://lifestyle.allwomenstalk.com/how-to-have-a-fun-friday-night-at-home/)
 - [A List of All the Autumn Activities to do with You...](https://parenting.allwomenstalk.com/a-list-of-all-the-autumn-activities-to-do-with-your-kids/)
-- [Banish Boredom - Take up a New Hobby ...](https://lifestyle.allwomenstalk.com/banish-boredom-take-up-a-new-hobby/)
 - [10 Ways to Spend 1 around the World ...](https://travel.allwomenstalk.com/ways-to-spend-1-around-the-world/)
 - [12 Ways to Make More Free Time during the Day ...](https://allwomenstalk.com/12-ways-to-make-more-free-time-during-the-day/)
 

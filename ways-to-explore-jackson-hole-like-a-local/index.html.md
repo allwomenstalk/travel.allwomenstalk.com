@@ -56,16 +56,16 @@ I loved living in Jackson Hole, and have a special place in my heart for the tow
 
 ## Related Posts
 
+- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
+- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
+- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
+- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
+- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
 - [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
 - [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
-- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
-- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
-- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
-- [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
-- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
 - [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
 - [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
-- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
+- [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Ways to Make Camping More Fun ...](https://travel.allwomenstalk.com/7-ways-to-make-camping-more-fun/)
 

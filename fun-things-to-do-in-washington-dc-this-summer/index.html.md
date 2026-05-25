@@ -56,16 +56,16 @@ Have you recently visited our nation’s capital? What are some of your top reco
 
 ## Related Posts
 
-- [what makes something a fruit](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
-- [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
-- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
-- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
-- [beach snacks healthy](https://diet.allwomenstalk.com/guilt-free-beach-snacks-to-keep-fit-with-this-summer/)
 - [cinnamon stick necklace mosquito repellent](https://diy.allwomenstalk.com/smart-diys-to-get-you-through-the-rest-of-summer/)
-- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
+- [what makes something a fruit](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
 - [things to do on vacation](https://travel.allwomenstalk.com/tips-on-how-to-spend-your-summer-vacation-at-home-without-getting-bored/)
-- [projects for summer](https://lifestyle.allwomenstalk.com/super-fun-projects-for-summer-to-pass-time-with/)
+- [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
+- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
 - [reconnect with friends](https://lifestyle.allwomenstalk.com/ways-to-reconnect-with-friends-after-the-summer-2/)
+- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
+- [projects for summer](https://lifestyle.allwomenstalk.com/super-fun-projects-for-summer-to-pass-time-with/)
+- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
+- [beach snacks healthy](https://diet.allwomenstalk.com/guilt-free-beach-snacks-to-keep-fit-with-this-summer/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 

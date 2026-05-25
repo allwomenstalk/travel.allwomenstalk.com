@@ -56,16 +56,16 @@ Which author’s footsteps would you want to tread in? Do you have a favorite li
 
 ## Related Posts
 
-- [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
-- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
 - [Love the Divergent Series then Youll Love These Bo...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
-- [Celeb Autobiographies You Need on Your Coffee Tabl...](https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/)
-- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
-- [You Wont Want to Sleep Once You Start Reading Thes...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
-- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
+- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
 - [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
+- [Celeb Autobiographies You Need on Your Coffee Tabl...](https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/)
 - [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
+- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
+- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
 - [Want to Be a Writer Heres How to Publish Your Own ...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
+- [You Wont Want to Sleep Once You Start Reading Thes...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
 - [5 Great Ideas for Bookworms ...](https://allwomenstalk.com/5-great-ideas-for-bookworms/)
 - [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
 

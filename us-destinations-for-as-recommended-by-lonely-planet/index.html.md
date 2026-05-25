@@ -56,16 +56,16 @@ I love the mix of destinations on this list but there’s nothing like personal 
 
 ## Related Posts
 
+- [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
 - [east canada ski resorts](https://travel.allwomenstalk.com/top-eastern-canada-ski-resorts-for/)
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
-- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
 - [guoliang tunnel accidents](https://travel.allwomenstalk.com/roads-highways-and-byways-that-just-call-to-be-driven/)
 - [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
-- [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
 - [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [modern hotel bathrooms](https://travel.allwomenstalk.com/coolest-hotel-bathrooms-in-the-world/)
+- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
+- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 

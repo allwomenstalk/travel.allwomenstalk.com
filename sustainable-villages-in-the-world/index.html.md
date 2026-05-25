@@ -42,16 +42,16 @@ Could you ever see yourself living in an eco-friendly home in one of these susta
 
 ## Related Posts
 
-- [staten island places](https://travel.allwomenstalk.com/amazing-places-to-visit-in-staten-island/)
-- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
-- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
-- [where to meet potential dates](https://love.allwomenstalk.com/great-places-to-meet-potential-dates/)
-- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
-- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
-- [what to see in the city](https://travel.allwomenstalk.com/ways-to-see-more-of-your-city/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
 - [the world theatre](https://lifestyle.allwomenstalk.com/different-types-of-theater-from-around-the-world/)
+- [where to meet potential dates](https://love.allwomenstalk.com/great-places-to-meet-potential-dates/)
+- [what to see in the city](https://travel.allwomenstalk.com/ways-to-see-more-of-your-city/)
+- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [staten island places](https://travel.allwomenstalk.com/amazing-places-to-visit-in-staten-island/)
 - [room 873 banff springs hotel](https://travel.allwomenstalk.com/haunted-places-in-canada-that-will-give-you-the-heebie-geebies/)
+- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
+- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
+- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

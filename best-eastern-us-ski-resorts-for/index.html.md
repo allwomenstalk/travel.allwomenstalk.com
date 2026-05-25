@@ -58,16 +58,16 @@ Are you a boarder or a skier? Tell us your favorite places for snowy adventures.
 
 ## Related Posts
 
-- [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
-- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
-- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
-- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
-- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
-- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
-- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
+- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
+- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
+- [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
+- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
+- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
+- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
+- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
 - [7 Top Ski Resorts ...](https://travel.allwomenstalk.com/top-ski-resorts/)
 - [Top 7 World Ski Resorts ...](https://allwomenstalk.com/top-7-world-ski-resorts/)
 

@@ -207,16 +207,16 @@ Are you ready to add The Maldives to your bucket list?
 
 ## Related Posts
 
-- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
 - [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
+- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
+- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
+- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [late ski](https://travel.allwomenstalk.com/here-are-the-best-destinations-for-late-season-skiing/)
+- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
 - [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
 - [cook island tourist attractions](https://travel.allwomenstalk.com/reasons-the-cook-islands-are-a-south-pacific-paradise/)
-- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
+- [late ski](https://travel.allwomenstalk.com/here-are-the-best-destinations-for-late-season-skiing/)
 - [falkland islands cities](https://travel.allwomenstalk.com/could-there-possibly-be-any-reasons-to-visit-the-falkland-islands-hell-yeah/)
-- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
-- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
 - [10 Reasons to Go to India for a Vacation ...](https://allwomenstalk.com/indian-vacation/)
 - [10 Reasons to Move Abroad ...](https://allwomenstalk.com/10-reasons-to-move-abroad/)
 

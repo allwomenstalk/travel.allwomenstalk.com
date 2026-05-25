@@ -57,15 +57,15 @@ Let’s now hand it over to Milwaukeeans (is that the right word?) to tell us ab
 ## Related Posts
 
 - [cat cuddle cafe](https://travel.allwomenstalk.com/unusual-cafes-around-the-world/)
-- [san antonio tx attractions](https://travel.allwomenstalk.com/attractions-of-san-antonio-texas/)
 - [wildlife parks in africa](https://travel.allwomenstalk.com/the-amazing-wildlife-of-africas-national-parks-and-game-reserves/)
-- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
-- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
+- [san antonio tx attractions](https://travel.allwomenstalk.com/attractions-of-san-antonio-texas/)
 - [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
 - [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
 - [what to see and do in antigua](https://travel.allwomenstalk.com/things-to-see-and-do-in-antigua/)
 - [worlds largest lava lamp](https://travel.allwomenstalk.com/when-you-see-these-kitsch-roadside-attractions-youll-wonder-why-just-why/)
+- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
 - [what to do in nova scotia](https://travel.allwomenstalk.com/here-are-the-best-places-to-visit-in-nova-scotia/)
+- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
 

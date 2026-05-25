@@ -58,14 +58,14 @@ Top Image Source: [summermixtape.blogspot.com](http://summermixtape.blogspot.com
 
 - [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
 - [halloween decoration crow](https://diy.allwomenstalk.com/creative-and-crafty-diy-halloween-crow-decor/)
-- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
 - [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
 - [halloween fun](https://lifestyle.allwomenstalk.com/memorable-fun-halloween-activities/)
-- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
-- [witch theme halloween decor](https://diy.allwomenstalk.com/spooky-diy-witch-halloween-decor/)
-- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
 - [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
+- [witch theme halloween decor](https://diy.allwomenstalk.com/spooky-diy-witch-halloween-decor/)
+- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
+- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
+- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 

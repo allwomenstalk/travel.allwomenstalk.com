@@ -59,15 +59,15 @@ Resources
 ## Related Posts
 
 - [Im in Love with You ...](https://love.allwomenstalk.com/youre-in-love-now-what/)
-- [Make Your Man Feel Loved with These Simple Things ...](https://love.allwomenstalk.com/make-your-man-feel-loved-with-these-simple-things/)
-- [Prove Youre the Best Boyfriend by Getting Her One ...](https://lifestyle.allwomenstalk.com/prove-youre-the-best-boyfriend-by-getting-her-one-of-these-gifts/)
-- [modern day relationships](https://love.allwomenstalk.com/the-funny-side-of-love/)
-- [romantic moves](https://love.allwomenstalk.com/romantic-moves-to-use-on-your-boyfriend/)
-- [Here Are the Best 10 Date Ideas You Both Will Love...](https://love.allwomenstalk.com/here-are-the-best-10-date-ideas-you-both-will-love/)
-- [perfect romantic picnic](https://lifestyle.allwomenstalk.com/perfect-picnic-inspos-every-romantic-will-appreciate/)
-- [signs youre falling in love](https://love.allwomenstalk.com/infographics-about-love-you-absolutely-must-read/)
-- [Prove to Be the Best Girlfriend by Giving Him One ...](https://lifestyle.allwomenstalk.com/prove-to-be-the-best-girlfriend-by-giving-him-one-of-these-gifts/)
 - [charming fall dates](https://love.allwomenstalk.com/charming-locations-for-a-romantic-date/)
+- [perfect romantic picnic](https://lifestyle.allwomenstalk.com/perfect-picnic-inspos-every-romantic-will-appreciate/)
+- [Here Are the Best 10 Date Ideas You Both Will Love...](https://love.allwomenstalk.com/here-are-the-best-10-date-ideas-you-both-will-love/)
+- [romantic moves](https://love.allwomenstalk.com/romantic-moves-to-use-on-your-boyfriend/)
+- [Make Your Man Feel Loved with These Simple Things ...](https://love.allwomenstalk.com/make-your-man-feel-loved-with-these-simple-things/)
+- [signs youre falling in love](https://love.allwomenstalk.com/infographics-about-love-you-absolutely-must-read/)
+- [modern day relationships](https://love.allwomenstalk.com/the-funny-side-of-love/)
+- [Prove to Be the Best Girlfriend by Giving Him One ...](https://lifestyle.allwomenstalk.com/prove-to-be-the-best-girlfriend-by-giving-him-one-of-these-gifts/)
+- [Prove Youre the Best Boyfriend by Getting Her One ...](https://lifestyle.allwomenstalk.com/prove-youre-the-best-boyfriend-by-getting-her-one-of-these-gifts/)
 - [Falling in Love in New York City...a Proposal Stor...](https://wedding.allwomenstalk.com/falling-in-love-in-new-york-city-a-proposal-story-in-central-park/)
 - [11 Romantic Things to do in Edinburgh That Will Ma...](https://travel.allwomenstalk.com/romantic-things-to-do-in-edinburgh-that-will-make-you-fall-in-love-all-over-again/)
 

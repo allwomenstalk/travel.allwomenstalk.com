@@ -50,16 +50,16 @@ An artist colony is a great place to find your muse and share the creative spiri
 
 ## Related Posts
 
-- [bizarre buildings](https://travel.allwomenstalk.com/around-the-states-in-bizarre-buildings/)
+- [the most beautiful coffee shop in the world](https://travel.allwomenstalk.com/of-the-most-beautiful-cafes-in-the-world-you-need-to-try-to-visit/)
 - [game of thrones throne locations](https://travel.allwomenstalk.com/follow-in-the-footsteps-of-daenerys-targaryen-to-these-game-of-throne-locations/)
+- [which continent is the largest by land area](https://travel.allwomenstalk.com/bucket-list-ideas-sights-you-should-see-on-each-continent/)
+- [arendtsville apple festival](https://travel.allwomenstalk.com/dont-miss-these-u-s-festivals-that-will-rock-your-world/)
 - [norway frozen movie](https://travel.allwomenstalk.com/magical-places-in-norway-that-inspired-disneys-frozen/)
 - [new york bird eye view](https://travel.allwomenstalk.com/birds-eye-views-that-will-leave-you-breathless/)
-- [which continent is the largest by land area](https://travel.allwomenstalk.com/bucket-list-ideas-sights-you-should-see-on-each-continent/)
 - [must see in boston ma](https://travel.allwomenstalk.com/your-sightseeing-checklist-for-boston/)
-- [arendtsville apple festival](https://travel.allwomenstalk.com/dont-miss-these-u-s-festivals-that-will-rock-your-world/)
-- [disney movie angkor wat](https://travel.allwomenstalk.com/do-you-recognise-these-real-places-that-inspired-disney-movies/)
-- [the most beautiful coffee shop in the world](https://travel.allwomenstalk.com/of-the-most-beautiful-cafes-in-the-world-you-need-to-try-to-visit/)
+- [bizarre buildings](https://travel.allwomenstalk.com/around-the-states-in-bizarre-buildings/)
 - [tattoo](https://beauty.allwomenstalk.com/of-the-best-travel-tattoos-in-the-entire-world/)
+- [disney movie angkor wat](https://travel.allwomenstalk.com/do-you-recognise-these-real-places-that-inspired-disney-movies/)
 - [7 Outstanding Museums ...](https://allwomenstalk.com/7-outstanding-museums/)
 - [8 Brilliantly Weird Museums ...](https://allwomenstalk.com/8-brilliantly-weird-museums/)
 

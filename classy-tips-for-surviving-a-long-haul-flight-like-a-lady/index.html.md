@@ -42,16 +42,16 @@ If you’re a frequent long haul flyer, what’s your favorite survival tip?
 
 ## Related Posts
 
-- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
-- [why people should travel](https://travel.allwomenstalk.com/this-is-why-you-should-travel-as-much-as-you-can/)
+- [disney vacation ideas](https://travel.allwomenstalk.com/tips-for-planning-a-disney-vacation/)
 - [what pill is g650](https://travel.allwomenstalk.com/airplane-etiquette-tips-flight-attendants-wish-to-share-with-you/)
 - [traveling to england for the first time](https://travel.allwomenstalk.com/first-time-trip-to-england/)
-- [hate to travel](https://travel.allwomenstalk.com/what-to-do-when-you-hate-the-destination-youve-traveled-to/)
 - [are safaris ethical](https://travel.allwomenstalk.com/how-to-choose-an-ethical-safari-to-be-a-responsible-traveler/)
-- [top places to visit in southeast asia](https://travel.allwomenstalk.com/how-to-spend-one-month-in-southeast-asia/)
-- [salem mass tours](https://travel.allwomenstalk.com/dos-and-donts-for-first-time-visitors-to-salem/)
+- [why people should travel](https://travel.allwomenstalk.com/this-is-why-you-should-travel-as-much-as-you-can/)
 - [solo road trip essentials](https://travel.allwomenstalk.com/essentials-for-a-solo-road-trip/)
-- [disney vacation ideas](https://travel.allwomenstalk.com/tips-for-planning-a-disney-vacation/)
+- [top places to visit in southeast asia](https://travel.allwomenstalk.com/how-to-spend-one-month-in-southeast-asia/)
+- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
+- [hate to travel](https://travel.allwomenstalk.com/what-to-do-when-you-hate-the-destination-youve-traveled-to/)
+- [salem mass tours](https://travel.allwomenstalk.com/dos-and-donts-for-first-time-visitors-to-salem/)
 - [10 Tips and Tricks Every Modern Girl Should Master...](https://lifestyle.allwomenstalk.com/tips-and-tricks-every-modern-girl-should-master/)
 - [8 Lovely Ways to Be More Ladylike ...](https://beauty.allwomenstalk.com/lovely-ways-to-be-more-ladylike/)
 

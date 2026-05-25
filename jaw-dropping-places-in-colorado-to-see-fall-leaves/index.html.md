@@ -57,15 +57,15 @@ What’s your favorite place to see fall leaves in Colorado? What about in other
 ## Related Posts
 
 - [london to visit places](https://travel.allwomenstalk.com/places-to-visit-in-britain-other-than-london/)
+- [francis lee smith house](https://lifestyle.allwomenstalk.com/still-beautiful-abandoned-buildings-around-the-world/)
+- [best expat cities in the world](https://travel.allwomenstalk.com/fun-cities-with-large-expat-communities/)
 - [pic of volcanoes](https://travel.allwomenstalk.com/pictures-showing-the-awesome-force-of-volcanoes/)
 - [how many bridges over the thames](https://travel.allwomenstalk.com/london-bridges-over-the-river-thames/)
-- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
-- [francis lee smith house](https://lifestyle.allwomenstalk.com/still-beautiful-abandoned-buildings-around-the-world/)
 - [britain castles](https://travel.allwomenstalk.com/british-castles-full-of-history/)
-- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
-- [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
 - [new zealand sights](https://travel.allwomenstalk.com/breathtaking-sights-of-new-zealand/)
-- [best expat cities in the world](https://travel.allwomenstalk.com/fun-cities-with-large-expat-communities/)
+- [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
+- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
+- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
 - [Grand Canyon National Park ...](https://allwomenstalk.com/grand-canyon-national-park/)
 - [8 Gorgeous Places to Visit in Springs Full Bloom ....](https://travel.allwomenstalk.com/gorgeous-places-to-visit-in-springs-full-bloom/)
 

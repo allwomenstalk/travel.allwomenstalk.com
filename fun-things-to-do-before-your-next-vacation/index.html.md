@@ -56,16 +56,16 @@ Most of these things I do before any trip and it's always so much fun! We're pla
 
 ## Related Posts
 
-- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
-- [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
-- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
-- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
-- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
-- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
-- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
-- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
-- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
 - [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
+- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
+- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
+- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
+- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
+- [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
+- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
+- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
+- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
+- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
 - [7 Unique Things to do at the Beach ...](https://travel.allwomenstalk.com/7-unique-things-to-do-at-the-beach/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 

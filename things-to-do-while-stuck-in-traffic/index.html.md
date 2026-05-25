@@ -42,16 +42,16 @@ Although traffic can be quite a headache, all of these ideas are great ways to p
 
 ## Related Posts
 
-- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
 - [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
+- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
+- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
 - [im not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
 - [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
-- [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
+- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
 - [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
-- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
+- [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
 - [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
+- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
 - [7 Ways to Keep Kids Occupied on a Road Trip ...](https://allwomenstalk.com/7-ways-to-keep-kids-occupied-on-a-road-trip/)
 

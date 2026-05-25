@@ -56,16 +56,16 @@ I’ve been to New York in Spring and Fall and at Christmas, I guess it’s real
 
 ## Related Posts
 
-- [best dip for chips](https://food.allwomenstalk.com/dip-and-chip-snacks-that-are-perfect-for-your-summer-party/)
 - [backyard party foods](https://food.allwomenstalk.com/head-to-the-races-with-these-kentucky-derby-recipes/)
-- [apple salad lush](https://food.allwomenstalk.com/youll-probably-swoon-over-these-lush-summer-salads/)
 - [secluded beaches usa](https://travel.allwomenstalk.com/find-sweet-summer-seclusion-at-these-us-beaches/)
-- [kiss on ferris wheel](https://love.allwomenstalk.com/summer-loving-the-most-seductive-kissing-spots-for-the-season/)
-- [sumsmash gif](https://funny.allwomenstalk.com/gifs-that-sum-up-summer/)
-- [summer vacay](https://travel.allwomenstalk.com/taking-a-summer-vacay-how-to-start-prepping-now-so-you-arent-stressed-later/)
-- [krnen](https://travel.allwomenstalk.com/your-summer-is-riding-on-this-best-new-theme-park-rides-to-try-in/)
-- [how to get rid of cheesy smell in shoes](https://shoes.allwomenstalk.com/how-do-you-keep-your-feet-smelling-sweet-in-summer/)
 - [quotes to get you pumped up](https://funny.allwomenstalk.com/quotes-to-get-you-pumped-for-a-perfect-summer/)
+- [summer vacay](https://travel.allwomenstalk.com/taking-a-summer-vacay-how-to-start-prepping-now-so-you-arent-stressed-later/)
+- [apple salad lush](https://food.allwomenstalk.com/youll-probably-swoon-over-these-lush-summer-salads/)
+- [how to get rid of cheesy smell in shoes](https://shoes.allwomenstalk.com/how-do-you-keep-your-feet-smelling-sweet-in-summer/)
+- [krnen](https://travel.allwomenstalk.com/your-summer-is-riding-on-this-best-new-theme-park-rides-to-try-in/)
+- [sumsmash gif](https://funny.allwomenstalk.com/gifs-that-sum-up-summer/)
+- [kiss on ferris wheel](https://love.allwomenstalk.com/summer-loving-the-most-seductive-kissing-spots-for-the-season/)
+- [best dip for chips](https://food.allwomenstalk.com/dip-and-chip-snacks-that-are-perfect-for-your-summer-party/)
 - [10 Best Summer Activities ...](https://allwomenstalk.com/10-summer-activities/)
 - [10 Great Activities for Summer ...](https://allwomenstalk.com/10-great-activities-for-summer/)
 

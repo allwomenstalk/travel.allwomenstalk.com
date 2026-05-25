@@ -56,16 +56,16 @@ New York City is huge! There are a variety of places you can go to get cocktails
 
 ## Related Posts
 
+- [13 Restaurants in Boston I Love ...](https://travel.allwomenstalk.com/restaurants-in-boston-i-love/)
+- [7 Must-Visit Cities in China ...](https://travel.allwomenstalk.com/must-visit-cities-in-china/)
+- [museums to visit in pa](https://travel.allwomenstalk.com/great-museums-in-pennsylvania/)
 - [7 Most Expensive Cities in the World to Live in .....](https://travel.allwomenstalk.com/most-expensive-cities-in-the-world-to-live-in/)
 - [which scenic spots will have queues of people](https://travel.allwomenstalk.com/world-famous-attractions-and-how-to-beat-the-queues/)
-- [7 of the Best Free Things to do in Dallas ...](https://travel.allwomenstalk.com/of-the-best-free-things-to-do-in-dallas/)
-- [7 Must-Visit Cities in China ...](https://travel.allwomenstalk.com/must-visit-cities-in-china/)
 - [7 of the Best 5ks to Run at Least Once in Your Lif...](https://running.allwomenstalk.com/of-the-best-5ks-to-run-at-least-once-in-your-lifetime/)
 - [9 Fabulous Things to do in Jerusalem ...](https://travel.allwomenstalk.com/fabulous-things-to-do-in-jerusalem/)
-- [museums to visit in pa](https://travel.allwomenstalk.com/great-museums-in-pennsylvania/)
 - [free walking tours in europe](https://travel.allwomenstalk.com/free-walking-tours-in-europe/)
+- [7 of the Best Free Things to do in Dallas ...](https://travel.allwomenstalk.com/of-the-best-free-things-to-do-in-dallas/)
 - [9 Brilliant Hostels under 201512 ...](https://travel.allwomenstalk.com/brilliant-hostels-under-20e1512/)
-- [13 Restaurants in Boston I Love ...](https://travel.allwomenstalk.com/restaurants-in-boston-i-love/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 - [Top 10 Dessert Places in NYC ...](https://travel.allwomenstalk.com/top-dessert-places-in-nyc/)
 

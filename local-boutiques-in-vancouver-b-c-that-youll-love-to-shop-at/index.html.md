@@ -46,16 +46,16 @@ I love to travel and one of my favourite things to do while on vacation is shopp
 
 ## Related Posts
 
-- [plus size brick and mortar stores](https://fashion.allwomenstalk.com/style-savvy-stores-for-plus-size-fashion/)
-- [rose gold metallic top](https://fashion.allwomenstalk.com/metallic-tops-that-you-can-wear-with-your-everyday-outfits/)
+- [embroidered clothes](https://fashion.allwomenstalk.com/embroidered-clothes-to-give-your-outfits-boho-flair/)
+- [modcloth clothing](https://fashion.allwomenstalk.com/nautical-inspired-clothing-from-mod-cloth/)
 - [island vacation outfit ideas](https://fashion.allwomenstalk.com/wardrobe-staples-for-an-island-vacation/)
-- [designer stores in cape town](https://travel.allwomenstalk.com/top-shops-for-fashion-in-cape-town/)
+- [holographic outfit ideas](https://fashion.allwomenstalk.com/holographic-pieces-to-add-to-your-wardrobe-this-spring/)
 - [sites like vinted](https://fashion.allwomenstalk.com/sites-to-sell-your-second-hand-clothes-on-that-arent-ebay/)
 - [classic wardrobe items](https://fashion.allwomenstalk.com/classic-wardrobe-items-that-you-will-never-get-tired-of/)
-- [modcloth clothing](https://fashion.allwomenstalk.com/nautical-inspired-clothing-from-mod-cloth/)
 - [problems with clothing](https://fashion.allwomenstalk.com/common-clothing-problems-women-know-all-too-well/)
-- [embroidered clothes](https://fashion.allwomenstalk.com/embroidered-clothes-to-give-your-outfits-boho-flair/)
-- [holographic outfit ideas](https://fashion.allwomenstalk.com/holographic-pieces-to-add-to-your-wardrobe-this-spring/)
+- [rose gold metallic top](https://fashion.allwomenstalk.com/metallic-tops-that-you-can-wear-with-your-everyday-outfits/)
+- [designer stores in cape town](https://travel.allwomenstalk.com/top-shops-for-fashion-in-cape-town/)
+- [plus size brick and mortar stores](https://fashion.allwomenstalk.com/style-savvy-stores-for-plus-size-fashion/)
 - [7 Enticingly Beautiful and Great Consignment Bouti...](https://fashion.allwomenstalk.com/enticingly-beautiful-and-great-consignment-boutiques-to-check-out/)
 - [7 Best Upscale Consignment Shops ...](https://allwomenstalk.com/7-best-upscale-consignment-shops/)
 

@@ -56,16 +56,16 @@ There are plenty of bungee jump locations in the USA so you shouldn’t have far
 
 ## Related Posts
 
-- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
-- [the most beautiful sunrise in the world](https://travel.allwomenstalk.com/perfect-places-to-watch-the-sunrise-with-your-partner/)
-- [deardorff apple orchard](https://love.allwomenstalk.com/pick-your-own-apple-farms-thatll-make-for-great-dates/)
-- [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
-- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
-- [nextvacay](https://travel.allwomenstalk.com/the-sexiest-hotels-in-the-world/)
-- [the man of your dreams](https://love.allwomenstalk.com/here-are-the-best-places-to-meet-the-man-of-your-dreams/)
-- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
-- [eh husl amberg](https://travel.allwomenstalk.com/hotels-with-only-one-room/)
 - [a weekend to never forget](https://travel.allwomenstalk.com/weekend-trips-youll-never-forget/)
+- [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
+- [the man of your dreams](https://love.allwomenstalk.com/here-are-the-best-places-to-meet-the-man-of-your-dreams/)
+- [deardorff apple orchard](https://love.allwomenstalk.com/pick-your-own-apple-farms-thatll-make-for-great-dates/)
+- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
+- [the most beautiful sunrise in the world](https://travel.allwomenstalk.com/perfect-places-to-watch-the-sunrise-with-your-partner/)
+- [nextvacay](https://travel.allwomenstalk.com/the-sexiest-hotels-in-the-world/)
+- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
+- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
+- [eh husl amberg](https://travel.allwomenstalk.com/hotels-with-only-one-room/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [Top 10 Places to Travel to in the US ...](https://allwomenstalk.com/top-10-places-to-travel-to-in-the-us/)
 

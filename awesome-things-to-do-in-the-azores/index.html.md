@@ -56,16 +56,16 @@ If you’re looking for a taste of Europe but a little bit away from the norm, t
 
 ## Related Posts
 
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
 - [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
 - [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
+- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
 - [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
 - [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
-- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
 - [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
 - [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [10 Amazing Things to See in Greece ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-greece/)
 

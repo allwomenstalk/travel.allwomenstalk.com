@@ -42,16 +42,16 @@ So there you have it--7 trips you must take at least once in your lifetime! Any 
 
 ## Related Posts
 
-- [7 Top Rated Places to Visit in the Bahamas ...](https://travel.allwomenstalk.com/top-rated-places-to-visit-in-the-bahamas/)
-- [7 Best US Beaches for Winter Sun ...](https://travel.allwomenstalk.com/best-us-beaches-for-winter-sun/)
-- [Book a Visit to the Best Websites for Budget Trave...](https://travel.allwomenstalk.com/websites-for-budget-travel-you-should-know-about/)
 - [exotic destination](https://travel.allwomenstalk.com/most-exotic-destinations-for-your-next-vacation/)
+- [9 Best Island Getaways ...](https://travel.allwomenstalk.com/best-island-getaways-for/)
+- [Book a Visit to the Best Websites for Budget Trave...](https://travel.allwomenstalk.com/websites-for-budget-travel-you-should-know-about/)
+- [7 Brilliant Value Destinations for 2015 ...](https://travel.allwomenstalk.com/brilliant-value-destinations-for/)
+- [7 Top Rated Places to Visit in the Bahamas ...](https://travel.allwomenstalk.com/top-rated-places-to-visit-in-the-bahamas/)
 - [7 off the Radar Destinations to Consider for 2015 ...](https://travel.allwomenstalk.com/off-the-radar-destinations-to-consider-for/)
 - [best west ski resorts](https://travel.allwomenstalk.com/best-western-us-ski-resorts-for/)
 - [Tempting Jobs for Intrepid Travelers ...](https://travel.allwomenstalk.com/jobs-for-people-who-love-to-travel/)
-- [9 Best Island Getaways ...](https://travel.allwomenstalk.com/best-island-getaways-for/)
-- [7 Brilliant Value Destinations for 2015 ...](https://travel.allwomenstalk.com/brilliant-value-destinations-for/)
 - [bucketlisters winter wonderland](https://travel.allwomenstalk.com/winter-wonderlands-to-put-on-your-bucket-list/)
+- [7 Best US Beaches for Winter Sun ...](https://travel.allwomenstalk.com/best-us-beaches-for-winter-sun/)
 - [10 Trips to Take before You Die](https://travel.allwomenstalk.com/10-trips-to-take-before-you-die/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 

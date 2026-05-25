@@ -68,16 +68,16 @@ L.A. is a city that has an alluring pool scene. Where you choose to spend your d
 
 ## Related Posts
 
-- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
-- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
-- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
+- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
 - [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
 - [falkland islands cities](https://travel.allwomenstalk.com/could-there-possibly-be-any-reasons-to-visit-the-falkland-islands-hell-yeah/)
-- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [cook island tourist attractions](https://travel.allwomenstalk.com/reasons-the-cook-islands-are-a-south-pacific-paradise/)
-- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
+- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
+- [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
+- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
+- [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
+- [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
 - [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 - [9 Best Diving Sites ...](https://travel.allwomenstalk.com/best-diving-sites/)
 

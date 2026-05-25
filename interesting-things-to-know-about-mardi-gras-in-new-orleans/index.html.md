@@ -50,16 +50,16 @@ Are you heading down NOLA way for Mardi Gras? Can I tag along?
 
 ## Related Posts
 
+- [controversial inventions](https://lifestyle.allwomenstalk.com/controversial-discoveries-of-modern-times/)
 - [strangest things found in space](https://lifestyle.allwomenstalk.com/strangest-things-in-the-universe-that-you-need-to-see-to-believe/)
+- [the surface area of pluto is about 16.7 million sq...](https://lifestyle.allwomenstalk.com/facts-that-seem-ridiculous-but-are-actually-true/)
 - [what you need to know about chinese new year](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-chinese-new-year/)
 - [lonely facts](https://inspiration.allwomenstalk.com/facts-about-loneliness-that-may-surprise-you/)
-- [controversial inventions](https://lifestyle.allwomenstalk.com/controversial-discoveries-of-modern-times/)
-- [paris la maximalist eyeshadow glistening garnet](https://lifestyle.allwomenstalk.com/unusual-facts-about-easter-celebrations-that-will-surprise-you/)
-- [myths about easter](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-strange-myths-about-easter/)
-- [dark web facts](https://lifestyle.allwomenstalk.com/facts-you-didnt-know-about-the-deep-web/)
-- [weird facts about pythagoras](https://lifestyle.allwomenstalk.com/crazy-facts-about-historic-figures-you-will-not-believe-what-happened-to-pythagoras/)
-- [the surface area of pluto is about 16.7 million sq...](https://lifestyle.allwomenstalk.com/facts-that-seem-ridiculous-but-are-actually-true/)
 - [fun with fractals](https://lifestyle.allwomenstalk.com/fascinating-facts-about-fractals/)
+- [weird facts about pythagoras](https://lifestyle.allwomenstalk.com/crazy-facts-about-historic-figures-you-will-not-believe-what-happened-to-pythagoras/)
+- [paris la maximalist eyeshadow glistening garnet](https://lifestyle.allwomenstalk.com/unusual-facts-about-easter-celebrations-that-will-surprise-you/)
+- [dark web facts](https://lifestyle.allwomenstalk.com/facts-you-didnt-know-about-the-deep-web/)
+- [myths about easter](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-strange-myths-about-easter/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 - [8 Things to See in France ...](https://travel.allwomenstalk.com/things-to-see-in-france/)
 

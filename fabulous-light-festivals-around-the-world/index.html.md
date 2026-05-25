@@ -85,15 +85,15 @@ This is an annual even that is billed as the world’s largest festival of light
 ## Related Posts
 
 - [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
-- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
-- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
-- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
-- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
+- [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
 - [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
 - [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
-- [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
+- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
 - [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
+- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
 - [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
+- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
+- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
 - [14 Christmas Trees from around the World ...](https://allwomenstalk.com/christmas-trees-from-around-the-world/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

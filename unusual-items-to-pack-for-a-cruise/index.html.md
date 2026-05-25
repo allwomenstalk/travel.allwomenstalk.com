@@ -58,16 +58,16 @@ You know the packing basics, but cruises are a whole different ball game. Above 
 
 ## Related Posts
 
-- [make money while on vacation](https://travel.allwomenstalk.com/ways-to-make-money-on-vacation/)
-- [kind of travelers](https://travel.allwomenstalk.com/types-of-travelers-which-kind-are-you/)
-- [how to pass time at an airport](https://travel.allwomenstalk.com/ways-to-pass-time-at-the-airport/)
 - [tips for first cruise](https://travel.allwomenstalk.com/tips-to-know-before-you-take-your-first-cruise/)
-- [i hate camping reddit](https://travel.allwomenstalk.com/top-tips-for-camping-when-you-actually-hate-camping/)
-- [easy commuting](https://lifestyle.allwomenstalk.com/ways-to-make-commuting-easier/)
-- [non crease clothing for travelling](https://travel.allwomenstalk.com/tips-for-wrinkle-free-clothes-when-youre-traveling/)
 - [overpacking](https://travel.allwomenstalk.com/simple-ways-to-avoid-overpacking-on-your-travels/)
-- [things to do when moving to a new country](https://travel.allwomenstalk.com/things-to-take-when-moving-to-a-new-country/)
+- [how to pass time at an airport](https://travel.allwomenstalk.com/ways-to-pass-time-at-the-airport/)
+- [kind of travelers](https://travel.allwomenstalk.com/types-of-travelers-which-kind-are-you/)
+- [non crease clothing for travelling](https://travel.allwomenstalk.com/tips-for-wrinkle-free-clothes-when-youre-traveling/)
+- [i hate camping reddit](https://travel.allwomenstalk.com/top-tips-for-camping-when-you-actually-hate-camping/)
 - [what is summer complaint](https://travel.allwomenstalk.com/ways-to-avoid-summer-complaint-on-your-travels/)
+- [make money while on vacation](https://travel.allwomenstalk.com/ways-to-make-money-on-vacation/)
+- [things to do when moving to a new country](https://travel.allwomenstalk.com/things-to-take-when-moving-to-a-new-country/)
+- [easy commuting](https://lifestyle.allwomenstalk.com/ways-to-make-commuting-easier/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Items to Keep in Your Hand Luggage ...](https://travel.allwomenstalk.com/items-to-keep-in-your-hand-luggage/)
 

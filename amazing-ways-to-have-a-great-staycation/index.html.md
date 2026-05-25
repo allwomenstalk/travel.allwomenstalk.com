@@ -42,16 +42,16 @@ A staycation can be just as fun as any other getaway, but you’ll need to plan 
 
 ## Related Posts
 
-- [13 Must-Visit Travel Destinations Youve Probably O...](https://travel.allwomenstalk.com/must-visit-travel-destinations-youve-probably-only-seen-onscreen/)
+- [7 Special Trips Just for the Girls ...](https://travel.allwomenstalk.com/special-trips-just-for-the-girls/)
+- [discount airlines to europe](https://travel.allwomenstalk.com/airlines-with-the-cheapest-fares-to-europe/)
 - [extreme trails](https://travel.allwomenstalk.com/extreme-trails-for-an-adventure/)
+- [pros and cons of caribbean islands](https://travel.allwomenstalk.com/reasons-to-choose-the-caribbean-for-a-vacation/)
+- [13 Must-Visit Travel Destinations Youve Probably O...](https://travel.allwomenstalk.com/must-visit-travel-destinations-youve-probably-only-seen-onscreen/)
+- [eco friendly hotels usa](https://travel.allwomenstalk.com/green-hotels-in-the-usa-for-eco-tourists/)
 - [7 Best Value US Cities for Vacations This Year ...](https://travel.allwomenstalk.com/best-value-us-cities-for-vacations-this-year/)
 - [7 Places to Travel to before Youre Thirty ...](https://travel.allwomenstalk.com/places-to-travel-to-before-youre-thirty/)
-- [late summer destinations](https://travel.allwomenstalk.com/perfect-late-summer-destinations/)
-- [eco friendly hotels usa](https://travel.allwomenstalk.com/green-hotels-in-the-usa-for-eco-tourists/)
 - [46 Beach Inspirations Youve Got to See ...](https://travel.allwomenstalk.com/beach-inspirations-youve-got-to-see/)
-- [discount airlines to europe](https://travel.allwomenstalk.com/airlines-with-the-cheapest-fares-to-europe/)
-- [pros and cons of caribbean islands](https://travel.allwomenstalk.com/reasons-to-choose-the-caribbean-for-a-vacation/)
-- [7 Special Trips Just for the Girls ...](https://travel.allwomenstalk.com/special-trips-just-for-the-girls/)
+- [late summer destinations](https://travel.allwomenstalk.com/perfect-late-summer-destinations/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Places to Spend a Family Vacation ...](https://allwomenstalk.com/7-places-to-spend-a-family-vacation/)
 

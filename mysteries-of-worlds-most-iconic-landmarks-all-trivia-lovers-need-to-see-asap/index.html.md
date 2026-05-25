@@ -74,16 +74,16 @@ Interesting huh?
 
 ## Related Posts
 
-- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
-- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
-- [weird place in the world](https://travel.allwomenstalk.com/weird-but-beautiful-places-on-earth/)
-- [most beautiful restaurants in nyc](https://travel.allwomenstalk.com/worlds-most-beautiful-restaurants-that-will-make-you-forget-about-food/)
-- [beautiful small towns in america](https://travel.allwomenstalk.com/best-charming-small-towns-in-america/)
-- [kite festival names](https://travel.allwomenstalk.com/kite-festivals-around-the-world/)
 - [harry potter locations scotland](https://travel.allwomenstalk.com/harry-potter-film-locations/)
+- [beautiful small towns in america](https://travel.allwomenstalk.com/best-charming-small-towns-in-america/)
 - [omaha christmas lights tour](https://travel.allwomenstalk.com/the-best-christmas-lights-in-every-state/)
-- [new jersey vegan restaurants](https://food.allwomenstalk.com/best-places-to-eat-vegan-in-new-jersey/)
+- [kite festival names](https://travel.allwomenstalk.com/kite-festivals-around-the-world/)
+- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
+- [most beautiful restaurants in nyc](https://travel.allwomenstalk.com/worlds-most-beautiful-restaurants-that-will-make-you-forget-about-food/)
+- [weird place in the world](https://travel.allwomenstalk.com/weird-but-beautiful-places-on-earth/)
 - [pentre riding stables](https://travel.allwomenstalk.com/jaw-dropping-sights-to-see-in-britain-for-girls-planning-a-trip-across-the-pond/)
+- [new jersey vegan restaurants](https://food.allwomenstalk.com/best-places-to-eat-vegan-in-new-jersey/)
+- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [The Worlds 10 Most Visited Tourist Attractions ...](https://travel.allwomenstalk.com/the-worlds-most-visited-tourist-attractions/)
 

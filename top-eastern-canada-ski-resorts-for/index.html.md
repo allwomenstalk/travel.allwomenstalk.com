@@ -56,16 +56,16 @@ Are you ready to head to the east for some of Canada’s best ski resorts in 201
 
 ## Related Posts
 
-- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
-- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
 - [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
 - [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
-- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
-- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
 - [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
+- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
+- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
 - [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
-- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
 - [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
+- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
 - [7 Top Ski Resorts ...](https://travel.allwomenstalk.com/top-ski-resorts/)
 - [Top 7 World Ski Resorts ...](https://allwomenstalk.com/top-7-world-ski-resorts/)
 

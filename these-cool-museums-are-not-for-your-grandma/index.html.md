@@ -134,15 +134,15 @@ What’s the coolest or weirdest museum you’ve ever visited?
 
 ## Related Posts
 
-- [best places to travel for history buffs](https://travel.allwomenstalk.com/the-top-destinations-for-ancient-history-buffs/)
-- [europe in one picture](https://travel.allwomenstalk.com/the-most-photographed-cities-in-europe-now-youll-see-why/)
-- [best college cities in america](https://teen.allwomenstalk.com/the-best-college-towns-in-all-of-america/)
 - [chinese new year entertainers](https://travel.allwomenstalk.com/best-places-in-the-us-to-celebrate-chinese-new-year/)
 - [new york city secret spots](https://travel.allwomenstalk.com/secret-places-in-new-york-tourists-dont-know/)
+- [best places to travel for history buffs](https://travel.allwomenstalk.com/the-top-destinations-for-ancient-history-buffs/)
+- [unknown places in london](https://travel.allwomenstalk.com/secret-places-in-london-tourists-dont-know/)
 - [native american female coming of age rituals](https://lifestyle.allwomenstalk.com/coming-of-age-ceremonies-around-the-world/)
+- [europe in one picture](https://travel.allwomenstalk.com/the-most-photographed-cities-in-europe-now-youll-see-why/)
+- [best college cities in america](https://teen.allwomenstalk.com/the-best-college-towns-in-all-of-america/)
 - [top hostels in the world](https://travel.allwomenstalk.com/the-best-hostels-in-the-world-according-to-the-hoscars/)
 - [food to eat in vegas](https://food.allwomenstalk.com/restaurants-by-famous-chefs-every-foody-should-visit/)
-- [unknown places in london](https://travel.allwomenstalk.com/secret-places-in-london-tourists-dont-know/)
 - [tourist i dont know this place](https://travel.allwomenstalk.com/secret-places-in-paris-tourists-dont-know/)
 - [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
 - [10 Obscure Museums to Visit in Paris ...](https://allwomenstalk.com/10-obscure-museums-to-visit-in-paris/)

@@ -42,16 +42,16 @@ The next time you go to NYC, you'll be able to see some celebrities! What show h
 
 ## Related Posts
 
-- [eating pretzels gif](https://lifestyle.allwomenstalk.com/youll-be-strangely-hypnotized-by-these-mesmerizing-gifs-of-things-being-made/)
-- [rapunzels makeup](https://makeup.allwomenstalk.com/i-wish-i-had-this-guys-disney-princess-skills/)
-- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
-- [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
-- [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
-- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
 - [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
-- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
 - [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
+- [rapunzels makeup](https://makeup.allwomenstalk.com/i-wish-i-had-this-guys-disney-princess-skills/)
+- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
 - [watch pranks](https://funny.allwomenstalk.com/watch-these-hilarious-pranks-to-brighten-your-day/)
+- [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
+- [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
+- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
+- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
+- [eating pretzels gif](https://lifestyle.allwomenstalk.com/youll-be-strangely-hypnotized-by-these-mesmerizing-gifs-of-things-being-made/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

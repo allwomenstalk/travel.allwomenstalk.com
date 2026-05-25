@@ -42,16 +42,16 @@ Deciding on colleges is a long process that you donâ€™t want to mess up on. Itâ€
 
 ## Related Posts
 
+- [highschool types](https://lifestyle.allwomenstalk.com/types-of-people-youll-meet-in-high-school/)
 - [getting ready for class](https://lifestyle.allwomenstalk.com/ways-to-make-getting-ready-for-class-easier/)
 - [how to survive college](https://lifestyle.allwomenstalk.com/tips-on-how-to-survive-college-move-in-day/)
-- [highschool types](https://lifestyle.allwomenstalk.com/types-of-people-youll-meet-in-high-school/)
+- [boarding school problems](https://lifestyle.allwomenstalk.com/common-problems-you-face-in-boarding-school/)
+- [how to get motivated for college](https://lifestyle.allwomenstalk.com/ways-to-stay-motivated-at-school-after-the-initial-excitement-wears-off/)
 - [7college admission](https://lifestyle.allwomenstalk.com/college-admission-process-tips-so-you-can-avoid-a-breakdown/)
 - [pass all my classes](https://inspiration.allwomenstalk.com/tips-for-passing-all-your-classes-this-semester/)
-- [how to get motivated for college](https://lifestyle.allwomenstalk.com/ways-to-stay-motivated-at-school-after-the-initial-excitement-wears-off/)
 - [bad time dp](https://lifestyle.allwomenstalk.com/types-of-days-youll-have-in-college/)
-- [places to study at near me](https://lifestyle.allwomenstalk.com/great-locations-for-study-sessions-that-succeed/)
 - [is life hard after high school](https://lifestyle.allwomenstalk.com/things-you-dont-think-will-happen-after-high-school-but-they-will/)
-- [boarding school problems](https://lifestyle.allwomenstalk.com/common-problems-you-face-in-boarding-school/)
+- [places to study at near me](https://lifestyle.allwomenstalk.com/great-locations-for-study-sessions-that-succeed/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [10 Reasons to Move Abroad ...](https://allwomenstalk.com/10-reasons-to-move-abroad/)
 

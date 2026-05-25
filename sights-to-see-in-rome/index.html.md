@@ -48,16 +48,16 @@ Top Photo Credit: [jonrawlinson](https://www.flickr.com/photos/london/43547029/)
 
 ## Related Posts
 
-- [obscure travel destinations](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
+- [smallest bar in the world key west](https://travel.allwomenstalk.com/of-the-smallest-but-most-welcoming-bars-in-the-world/)
 - [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
-- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
+- [obscure travel destinations](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
 - [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
 - [top 10 longest streets in the world](https://travel.allwomenstalk.com/amazingly-interesting-and-unusual-streets-around-the-world/)
-- [smallest bar in the world key west](https://travel.allwomenstalk.com/of-the-smallest-but-most-welcoming-bars-in-the-world/)
 - [9 Places You Will Never Visit ...](https://travel.allwomenstalk.com/places-you-will-never-visit/)
 - [8 Wondrous Waterfalls to Be Amazed by ...](https://travel.allwomenstalk.com/wondrous-waterfalls-to-be-amazed-by/)
-- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
 - [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
+- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
+- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 

@@ -56,16 +56,16 @@ Some of these attractions of the Mayan Riviera feel a world away from the bright
 
 ## Related Posts
 
+- [tropical views](https://travel.allwomenstalk.com/views-of-tropical-islands-that-youll-never-forget/)
+- [alaska postcards](https://travel.allwomenstalk.com/postcards-from-alaska-youd-love-to-receive/)
+- [midwest fall vacations](https://travel.allwomenstalk.com/gorgeous-fall-vacations-to-take-this-year/)
+- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
+- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
 - [breathtaking lake views](https://travel.allwomenstalk.com/breathtaking-lake-views-to-help-you-plan-your-next-vacation/)
 - [7 Underrated Asian Destinations to Add to Your Lis...](https://travel.allwomenstalk.com/underrated-asian-destinations-to-add-to-your-list/)
-- [alaska postcards](https://travel.allwomenstalk.com/postcards-from-alaska-youd-love-to-receive/)
-- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
-- [7 Top Road Trip Destinations in America ...](https://travel.allwomenstalk.com/top-road-trip-destinations-in-america/)
-- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
-- [midwest fall vacations](https://travel.allwomenstalk.com/gorgeous-fall-vacations-to-take-this-year/)
-- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
-- [tropical views](https://travel.allwomenstalk.com/views-of-tropical-islands-that-youll-never-forget/)
 - [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
+- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
+- [7 Top Road Trip Destinations in America ...](https://travel.allwomenstalk.com/top-road-trip-destinations-in-america/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 

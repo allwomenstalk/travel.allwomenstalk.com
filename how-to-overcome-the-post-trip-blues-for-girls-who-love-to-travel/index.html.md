@@ -68,16 +68,16 @@ What other tips can you share for beating the post-travel blues?
 
 ## Related Posts
 
-- [top places to visit in southeast asia](https://travel.allwomenstalk.com/how-to-spend-one-month-in-southeast-asia/)
 - [why people should travel](https://travel.allwomenstalk.com/this-is-why-you-should-travel-as-much-as-you-can/)
 - [what is class y on a flight](https://travel.allwomenstalk.com/classy-tips-for-surviving-a-long-haul-flight-like-a-lady/)
-- [stress free tours](https://travel.allwomenstalk.com/how-to-have-a-stress-free-last-minute-trip/)
-- [our first vacation together](https://love.allwomenstalk.com/things-that-will-absolutely-happen-on-your-first-vacation-as-a-couple/)
-- [what pill is g650](https://travel.allwomenstalk.com/airplane-etiquette-tips-flight-attendants-wish-to-share-with-you/)
-- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
 - [is uber dangerous](https://travel.allwomenstalk.com/how-to-stay-safe-for-those-who-are-riding-with-uber/)
 - [are safaris ethical](https://travel.allwomenstalk.com/how-to-choose-an-ethical-safari-to-be-a-responsible-traveler/)
+- [top places to visit in southeast asia](https://travel.allwomenstalk.com/how-to-spend-one-month-in-southeast-asia/)
 - [traveling to england for the first time](https://travel.allwomenstalk.com/first-time-trip-to-england/)
+- [what pill is g650](https://travel.allwomenstalk.com/airplane-etiquette-tips-flight-attendants-wish-to-share-with-you/)
+- [stress free tours](https://travel.allwomenstalk.com/how-to-have-a-stress-free-last-minute-trip/)
+- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
+- [our first vacation together](https://love.allwomenstalk.com/things-that-will-absolutely-happen-on-your-first-vacation-as-a-couple/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [9 Simple Ways to Spread Positivity Wherever You Go...](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
 

@@ -56,16 +56,16 @@ I’m off to look up where my nearest climbing wall is! I’d love to hear from 
 
 ## Related Posts
 
-- [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
 - [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
 - [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
+- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
 - [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
+- [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 

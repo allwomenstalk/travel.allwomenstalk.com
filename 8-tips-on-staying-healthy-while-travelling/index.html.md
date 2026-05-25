@@ -48,16 +48,16 @@ Top Photo Credit: [niki e non solo](https://www.flickr.com/photos/57770457@N05/5
 
 ## Related Posts
 
-- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
-- [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
-- [7 Essential Items to Carry when You Go Hiking ...](https://travel.allwomenstalk.com/essential-items-to-carry-when-you-go-hiking/)
-- [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [6 Essential Items for Him to Take on the Honeymoon...](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon_/)
-- [travel tips for packing light](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
-- [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
-- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
+- [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
+- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
 - [road trip planning tips](https://travel.allwomenstalk.com/planning-tips-for-your-next-road-trip/)
+- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
+- [7 Essential Items to Carry when You Go Hiking ...](https://travel.allwomenstalk.com/essential-items-to-carry-when-you-go-hiking/)
 - [hotel evaluation](https://travel.allwomenstalk.com/ways-to-evaluate-a-good-hotel-for-a-vacation/)
+- [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
+- [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
+- [travel tips for packing light](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
 - [7 Helpful Tips on Eating Healthy While Traveling ....](https://travel.allwomenstalk.com/helpful-tips-on-eating-healthy-while-traveling/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [rasenkantenstein](https://www.flickr.com/photos/rasenkantenst
 
 ## Related Posts
 
-- [travel tips for packing light](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
-- [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
-- [hotel evaluation](https://travel.allwomenstalk.com/ways-to-evaluate-a-good-hotel-for-a-vacation/)
+- [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
+- [8 Ways to Travel Light ...](https://travel.allwomenstalk.com/ways-to-travel-light/)
+- [train travel safety tips](https://travel.allwomenstalk.com/tips-for-safe-travel-by-train/)
 - [7 Tips for First-Time Backpacking ...](https://travel.allwomenstalk.com/tips-for-first-time-backpacking/)
+- [hotel evaluation](https://travel.allwomenstalk.com/ways-to-evaluate-a-good-hotel-for-a-vacation/)
+- [travel tips for packing light](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Tips to Book a Cheap Flight ...](https://travel.allwomenstalk.com/7-tips-to-book-a-cheap-flight/)
 - [what to bring on honeymoon](https://wedding.allwomenstalk.com/essential-items-to-take-on-your-honeymoon/)
-- [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
+- [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Travel Tips You Should Know ...](https://travel.allwomenstalk.com/travel-tips-you-should-know/)
-- [train travel safety tips](https://travel.allwomenstalk.com/tips-for-safe-travel-by-train/)
-- [8 Ways to Travel Light ...](https://travel.allwomenstalk.com/ways-to-travel-light/)
 - [9 Ways to Stay Comfortable on a Long Flight ...](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
 - [8 Tips to Survive a Long Plane Journey ...](https://travel.allwomenstalk.com/tips-to-survive-a-long-plane-journey/)
 

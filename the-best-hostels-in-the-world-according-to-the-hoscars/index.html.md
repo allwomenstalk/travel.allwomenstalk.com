@@ -74,16 +74,16 @@ If you’ve never considered a hostel, I really think you should give it a try. 
 
 ## Related Posts
 
-- [food to eat in vegas](https://food.allwomenstalk.com/restaurants-by-famous-chefs-every-foody-should-visit/)
+- [most beautiful restaurants in nyc](https://travel.allwomenstalk.com/worlds-most-beautiful-restaurants-that-will-make-you-forget-about-food/)
 - [pentre riding stables](https://travel.allwomenstalk.com/jaw-dropping-sights-to-see-in-britain-for-girls-planning-a-trip-across-the-pond/)
-- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
+- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
 - [geography europe map](https://travel.allwomenstalk.com/fun-european-maps-all-geography-nerds-will-love/)
-- [julia borzucka](https://funny.allwomenstalk.com/artist-transforms-famous-places-with-digital-photography-must-see/)
-- [omaha christmas lights tour](https://travel.allwomenstalk.com/the-best-christmas-lights-in-every-state/)
 - [loreal color riche stylo bottomless java](https://travel.allwomenstalk.com/mysteries-of-worlds-most-iconic-landmarks-all-trivia-lovers-need-to-see-asap/)
 - [weird place in the world](https://travel.allwomenstalk.com/weird-but-beautiful-places-on-earth/)
-- [most beautiful restaurants in nyc](https://travel.allwomenstalk.com/worlds-most-beautiful-restaurants-that-will-make-you-forget-about-food/)
-- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
+- [omaha christmas lights tour](https://travel.allwomenstalk.com/the-best-christmas-lights-in-every-state/)
+- [food to eat in vegas](https://food.allwomenstalk.com/restaurants-by-famous-chefs-every-foody-should-visit/)
+- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
+- [julia borzucka](https://funny.allwomenstalk.com/artist-transforms-famous-places-with-digital-photography-must-see/)
 - [The Worlds 10 Most Visited Tourist Attractions ...](https://travel.allwomenstalk.com/the-worlds-most-visited-tourist-attractions/)
 - [Cannes Film Festival ...](https://allwomenstalk.com/cannes-film-festival/)
 

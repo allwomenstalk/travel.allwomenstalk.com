@@ -57,15 +57,15 @@ New York City is an amazing place. Tourists always know to go to places like Tim
 ## Related Posts
 
 - [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
-- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
-- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
 - [sustainable village](https://travel.allwomenstalk.com/sustainable-villages-in-the-world/)
 - [staten island places](https://travel.allwomenstalk.com/amazing-places-to-visit-in-staten-island/)
-- [what to see in the city](https://travel.allwomenstalk.com/ways-to-see-more-of-your-city/)
-- [places i should visit before i die](https://travel.allwomenstalk.com/places-you-must-visit-before-you-die/)
 - [where to meet potential dates](https://love.allwomenstalk.com/great-places-to-meet-potential-dates/)
+- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
+- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
 - [places i want to visit](https://travel.allwomenstalk.com/places-you-cant-visit-but-probably-dont-want-to-anyway/)
 - [loreal paris riche le stylo plum](https://travel.allwomenstalk.com/geological-formations-that-you-must-see-to-believe/)
+- [places i should visit before i die](https://travel.allwomenstalk.com/places-you-must-visit-before-you-die/)
+- [what to see in the city](https://travel.allwomenstalk.com/ways-to-see-more-of-your-city/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 

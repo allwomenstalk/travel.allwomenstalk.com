@@ -56,16 +56,16 @@ Are you intrigued by Canada’s youngest province that is also home to the oldes
 
 ## Related Posts
 
-- [summer mac apple](https://food.allwomenstalk.com/apples-that-are-ripe-in-the-summer/)
-- [teen summer adventures](https://teen.allwomenstalk.com/teen-friendly-summer-adventure-ideas/)
 - [what nutrients do you get from strawberries](https://food.allwomenstalk.com/essential-nutrients-in-strawberries-that-make-them-even-more-perfect-for-summer/)
-- [craving nectarines](https://food.allwomenstalk.com/reasons-to-eat-nectarines-this-summer/)
+- [summer mac apple](https://food.allwomenstalk.com/apples-that-are-ripe-in-the-summer/)
+- [what to do with watermelon](https://food.allwomenstalk.com/totally-fun-things-to-do-with-watermelon-this-summer/)
 - [hydrating foods for summer](https://food.allwomenstalk.com/summer-foods-to-keep-you-hydrated/)
 - [best dips for summer](https://food.allwomenstalk.com/dynamite-dips-for-your-next-summer-soiree/)
-- [best summer margarita recipe](https://food.allwomenstalk.com/margarita-recipes-to-cool-you-off-this-summer/)
-- [what to do with watermelon](https://food.allwomenstalk.com/totally-fun-things-to-do-with-watermelon-this-summer/)
-- [what to eat on a picnic](https://food.allwomenstalk.com/essential-foods-for-a-summer-picnic/)
 - [types de melons](https://food.allwomenstalk.com/types-of-melons-youve-got-to-try-this-summer/)
+- [craving nectarines](https://food.allwomenstalk.com/reasons-to-eat-nectarines-this-summer/)
+- [best summer margarita recipe](https://food.allwomenstalk.com/margarita-recipes-to-cool-you-off-this-summer/)
+- [what to eat on a picnic](https://food.allwomenstalk.com/essential-foods-for-a-summer-picnic/)
+- [teen summer adventures](https://teen.allwomenstalk.com/teen-friendly-summer-adventure-ideas/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

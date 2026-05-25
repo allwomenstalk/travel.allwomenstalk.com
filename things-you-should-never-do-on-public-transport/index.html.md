@@ -98,16 +98,16 @@ I'm not sure how many of those things are uniquely British. Our reactions certai
 
 ## Related Posts
 
-- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
-- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
-- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
 - [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
-- [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
-- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
+- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
 - [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
+- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
 - [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
 - [true friends dont](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
+- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
 - [8 Cars a Man Should Never Ever Drive ...](https://lifestyle.allwomenstalk.com/cars-a-man-should-never-ever-drive/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 

@@ -56,16 +56,16 @@ Are you ready to put the pedal to the metal for an awesome trip to the Route 66 
 
 ## Related Posts
 
-- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
-- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
-- [rooftop restaurants in ub city](https://travel.allwomenstalk.com/most-beautiful-rooftop-restaurants-in-the-world/)
+- [captains bar shanghai](https://travel.allwomenstalk.com/enviable-rooftop-bars-youve-got-to-visit/)
+- [must see tourist attractions](https://travel.allwomenstalk.com/most-visited-tourist-attractions-in-the-world/)
+- [manchester trafford center japanese restaurant](https://travel.allwomenstalk.com/reasons-to-visit-manchester-for-a-taste-of-the-north/)
 - [popular shopping malls](https://travel.allwomenstalk.com/best-shopping-malls-in-america/)
 - [food throwing festivals](https://travel.allwomenstalk.com/best-food-fight-festivals-around-the-world/)
-- [manchester trafford center japanese restaurant](https://travel.allwomenstalk.com/reasons-to-visit-manchester-for-a-taste-of-the-north/)
-- [captains bar shanghai](https://travel.allwomenstalk.com/enviable-rooftop-bars-youve-got-to-visit/)
+- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
+- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
 - [lesser known museums in london](https://travel.allwomenstalk.com/lesser-known-london-museums-you-must-visit/)
+- [rooftop restaurants in ub city](https://travel.allwomenstalk.com/most-beautiful-rooftop-restaurants-in-the-world/)
 - [abraham lincoln thumbs up](https://travel.allwomenstalk.com/places-to-pay-homage-to-abraham-lincoln/)
-- [must see tourist attractions](https://travel.allwomenstalk.com/most-visited-tourist-attractions-in-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Planning Tips for Your Next Road Trip ...](https://travel.allwomenstalk.com/planning-tips-for-your-next-road-trip/)
 

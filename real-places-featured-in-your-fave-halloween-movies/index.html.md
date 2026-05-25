@@ -128,16 +128,16 @@ Which horror film/scary movie location would be top of your to-visit list?
 
 ## Related Posts
 
-- [non alcoholic halloween drink](https://food.allwomenstalk.com/deliciously-spooky-halloween-punch-to-bring-fun-to-your-party/)
 - [all black costume characters](https://lifestyle.allwomenstalk.com/last-minute-halloween-costumes-for-cool-black-girls/)
-- [lady gaga halloween song](https://music.allwomenstalk.com/halloween-love-songs-for-those-who-didnt-think-it-was-possible/)
-- [halloween day decoration](https://diy.allwomenstalk.com/best-halloween-decor-ideas-from-insta-to-totally-make-the-day/)
 - [makeup inspired](https://makeup.allwomenstalk.com/halloween-makeup-inspiration/)
+- [girl star wars costume ideas](https://lifestyle.allwomenstalk.com/star-wars-costume-ideas-for-women/)
+- [lady gaga halloween song](https://music.allwomenstalk.com/halloween-love-songs-for-those-who-didnt-think-it-was-possible/)
+- [non alcoholic halloween drink](https://food.allwomenstalk.com/deliciously-spooky-halloween-punch-to-bring-fun-to-your-party/)
+- [halloween day decoration](https://diy.allwomenstalk.com/best-halloween-decor-ideas-from-insta-to-totally-make-the-day/)
 - [halloween makeup videos](https://makeup.allwomenstalk.com/youtube-halloween-makeup-tutorials/)
 - [loreal color le stylo eye shadow blue spark](https://movies.allwomenstalk.com/movies-to-get-you-in-the-halloween-spirit/)
 - [crown and coke costume](https://lifestyle.allwomenstalk.com/adorable-couple-costumes-for-halloween/)
 - [sims diamond diy](https://diy.allwomenstalk.com/cheap-diy-halloween-costumes/)
-- [girl star wars costume ideas](https://lifestyle.allwomenstalk.com/star-wars-costume-ideas-for-women/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 

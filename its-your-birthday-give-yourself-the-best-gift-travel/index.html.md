@@ -42,16 +42,16 @@ It’s your birthday – where are you itching to go?
 
 ## Related Posts
 
-- [ocean themed things](https://travel.allwomenstalk.com/beach-themed-bucket-list-ideas-for-ocean-lovers/)
-- [spring break senior year](https://teen.allwomenstalk.com/mini-vacation-spring-break-ideas-for-seniors-who-are-saving-for-college/)
 - [hobbit house usa](https://travel.allwomenstalk.com/take-a-journey-to-middle-earth-hobbit-houses-you-can-rent-for-vacation/)
 - [best night club in cancun](https://travel.allwomenstalk.com/dance-the-night-away-in-the-hottest-nightspots-in-cancun/)
+- [spring break senior year](https://teen.allwomenstalk.com/mini-vacation-spring-break-ideas-for-seniors-who-are-saving-for-college/)
+- [mayan and egyptian pyramid alignment](https://travel.allwomenstalk.com/go-all-the-way-to-egypt-to-see-pyramids-no-go-to-mexico/)
+- [ibiza clubbing holidays](https://travel.allwomenstalk.com/top-clubbing-destinations-the-best-places-to-dance-the-night-away/)
+- [ocean themed things](https://travel.allwomenstalk.com/beach-themed-bucket-list-ideas-for-ocean-lovers/)
+- [trip advisor puerto vallarta](https://travel.allwomenstalk.com/trip-advisors-travelers-choices-of-beaches-for-central-and-south-america/)
 - [one mans mountains](https://travel.allwomenstalk.com/a-travel-story-one-man-and-his-tent-and-a-lot-of-mountains/)
 - [panama overwater bungalows all inclusive](https://travel.allwomenstalk.com/you-dont-have-to-go-to-the-south-pacific-or-indian-ocean-to-stay-in-an-over-the-water-bungalow/)
-- [mayan and egyptian pyramid alignment](https://travel.allwomenstalk.com/go-all-the-way-to-egypt-to-see-pyramids-no-go-to-mexico/)
 - [experiences for girls](https://travel.allwomenstalk.com/travel-experiences-for-girls-with-a-sense-of-adventure/)
-- [trip advisor puerto vallarta](https://travel.allwomenstalk.com/trip-advisors-travelers-choices-of-beaches-for-central-and-south-america/)
-- [ibiza clubbing holidays](https://travel.allwomenstalk.com/top-clubbing-destinations-the-best-places-to-dance-the-night-away/)
 - [8 Reasons Not to Fear Major Birthdays ...](https://lifestyle.allwomenstalk.com/reasons-not-to-fear-major-birthdays/)
 - [Where in the World Should I Go](https://allwomenstalk.com/where-in-the-world-should-i-go/)
 

@@ -58,16 +58,16 @@ So, there you have it! There are actually a lot more hidden fun facts about Disn
 
 ## Related Posts
 
-- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
 - [cool facts about jk rowling](https://celebs.allwomenstalk.com/fun-facts-about-j-k-rowling-that-will-make-you-love-her-even-more/)
-- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
 - [facts about extroverts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-extroverts/)
 - [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
-- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
-- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
-- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
+- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
 - [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
+- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
 - [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
+- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
+- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
+- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
 - [7 Best Theme Parks from around the World ...](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 - [10 Best Amusement Parks ...](https://allwomenstalk.com/10-best-amusement-parks/)
 

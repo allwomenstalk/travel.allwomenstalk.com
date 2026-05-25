@@ -56,16 +56,16 @@ These are a few of many places to visit in Belgium, trust me there are more! Itâ
 
 ## Related Posts
 
-- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
-- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
-- [most fun cities to visit in the us](https://travel.allwomenstalk.com/cities-you-must-visit-in-the-united-states/)
-- [boulder sightseeing](https://travel.allwomenstalk.com/boldest-attractions-in-boulder-colorado/)
-- [free walking tours washington dc](https://travel.allwomenstalk.com/free-walking-tours-in-north-america/)
 - [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
 - [are music festivals worth it](https://music.allwomenstalk.com/music-festivals-worth-going-to-if-you-have-the-chance/)
+- [free walking tours washington dc](https://travel.allwomenstalk.com/free-walking-tours-in-north-america/)
 - [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
+- [boulder sightseeing](https://travel.allwomenstalk.com/boldest-attractions-in-boulder-colorado/)
 - [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
 - [darjeeling chowk bazar](https://travel.allwomenstalk.com/attractions-and-things-to-do-in-darjeeling/)
+- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
+- [most fun cities to visit in the us](https://travel.allwomenstalk.com/cities-you-must-visit-in-the-united-states/)
+- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 

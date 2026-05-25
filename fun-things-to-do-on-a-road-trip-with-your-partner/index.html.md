@@ -66,16 +66,16 @@ If all else fails, telling each other about your life story or memories/experien
 
 ## Related Posts
 
-- [2 people challenges](https://teen.allwomenstalk.com/challenges-to-do-with-friends/)
-- [satisfying lips face](https://lifestyle.allwomenstalk.com/simple-pleasures-we-all-love/)
-- [adventurous things to try in bed](https://love.allwomenstalk.com/things-to-put-on-your-dirty-bucket-list/)
-- [fun office desk games](https://lifestyle.allwomenstalk.com/games-to-have-on-your-desk-at-work/)
-- [fall flowers gif](https://lifestyle.allwomenstalk.com/fun-activities-to-do-this-fall/)
-- [movie night snack table](https://movies.allwomenstalk.com/how-to-host-a-movie-night/)
-- [king princess parents](https://parenting.allwomenstalk.com/fun-experiments-for-kids/)
-- [fun things to do with someone you like](https://love.allwomenstalk.com/fun-group-date-ideas/)
-- [inventive ideas for budget-friendly](https://lifestyle.allwomenstalk.com/cheap-but-creative-ways-to-have-fun/)
 - [what to do when your single and lonely](https://inspiration.allwomenstalk.com/things-to-do-when-youre-single-and-lonely/)
+- [fun things to do with someone you like](https://love.allwomenstalk.com/fun-group-date-ideas/)
+- [adventurous things to try in bed](https://love.allwomenstalk.com/things-to-put-on-your-dirty-bucket-list/)
+- [king princess parents](https://parenting.allwomenstalk.com/fun-experiments-for-kids/)
+- [satisfying lips face](https://lifestyle.allwomenstalk.com/simple-pleasures-we-all-love/)
+- [inventive ideas for budget-friendly](https://lifestyle.allwomenstalk.com/cheap-but-creative-ways-to-have-fun/)
+- [fall flowers gif](https://lifestyle.allwomenstalk.com/fun-activities-to-do-this-fall/)
+- [fun office desk games](https://lifestyle.allwomenstalk.com/games-to-have-on-your-desk-at-work/)
+- [movie night snack table](https://movies.allwomenstalk.com/how-to-host-a-movie-night/)
+- [2 people challenges](https://teen.allwomenstalk.com/challenges-to-do-with-friends/)
 - [7 Reasons to Take a Road Trip with Your Man ...](https://love.allwomenstalk.com/reasons-to-take-a-road-trip-with-your-man/)
 - [10 Romantic Things to do with Your Partner ...](https://allwomenstalk.com/10-romantic-things-to-do-with-your-partner/)
 

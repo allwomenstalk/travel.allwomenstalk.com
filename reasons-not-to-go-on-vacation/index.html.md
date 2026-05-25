@@ -42,16 +42,16 @@ Vacationing is obviously a lot more fun than I've painted it, but we've all had 
 
 ## Related Posts
 
+- [no to marriage](https://love.allwomenstalk.com/interesting-reasons-why-some-say-no-to-marriage/)
+- [facebook ruined my relationship](https://lifestyle.allwomenstalk.com/reasons-why-facebook-is-ruining-our-lives/)
+- [happy ending meaning in relationship](https://books.allwomenstalk.com/reasons-why-sad-endings-are-better-than-happy-ones/)
 - [is it normal to be single at 20](https://love.allwomenstalk.com/reasons-being-single-in-your-twenties-really-isnt-so-bad/)
+- [really bad hair extensions](https://hair.allwomenstalk.com/reasons-to-not-get-hair-extensions/)
+- [reasons to not be in a relationship](https://love.allwomenstalk.com/reasons-you-dont-need-to-be-in-a-relationship-right-now/)
+- [how often do you buy gifts for others](https://lifestyle.allwomenstalk.com/reasons-to-stop-buying-gifts/)
+- [will my parents get divorced quiz](https://lifestyle.allwomenstalk.com/reasons-not-to-choose-sides-when-your-parents-get-divorced/)
 - [why can i get over him](https://love.allwomenstalk.com/reasons-why-you-might-be-having-trouble-getting-over-him/)
 - [reasons to take a social media break](https://lifestyle.allwomenstalk.com/reasonable-reasons-to-take-a-break-from-social-media/)
-- [no to marriage](https://love.allwomenstalk.com/interesting-reasons-why-some-say-no-to-marriage/)
-- [will my parents get divorced quiz](https://lifestyle.allwomenstalk.com/reasons-not-to-choose-sides-when-your-parents-get-divorced/)
-- [how often do you buy gifts for others](https://lifestyle.allwomenstalk.com/reasons-to-stop-buying-gifts/)
-- [facebook ruined my relationship](https://lifestyle.allwomenstalk.com/reasons-why-facebook-is-ruining-our-lives/)
-- [reasons to not be in a relationship](https://love.allwomenstalk.com/reasons-you-dont-need-to-be-in-a-relationship-right-now/)
-- [happy ending meaning in relationship](https://books.allwomenstalk.com/reasons-why-sad-endings-are-better-than-happy-ones/)
-- [really bad hair extensions](https://hair.allwomenstalk.com/reasons-to-not-get-hair-extensions/)
 - [7 Things You Dont Need to Pack in Your Suitcase .....](https://travel.allwomenstalk.com/things-you-dont-need-to-pack-in-your-suitcase/)
 - [7 Reasons to Stay out of the Sun ...](https://skincare.allwomenstalk.com/reasons-to-stay-out-of-the-sun/)
 

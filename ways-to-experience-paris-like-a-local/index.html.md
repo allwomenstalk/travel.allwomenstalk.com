@@ -46,16 +46,16 @@ Try: Galerie Lafayette, Printemps or Le Bon marché
 
 ## Related Posts
 
-- [expat tips](https://lifestyle.allwomenstalk.com/tips-for-becoming-an-expat/)
+- [travel with child tips](https://travel.allwomenstalk.com/helpful-tips-for-traveling-with-children/)
 - [road trip tips for couples](https://love.allwomenstalk.com/how-to-survive-a-long-road-trip-with-your-partner/)
+- [music festivals essentials](https://music.allwomenstalk.com/the-essentials-to-pack-for-a-music-festival/)
+- [feeling first class](https://travel.allwomenstalk.com/perfect-tips-on-how-to-make-economy-feel-like-first-class/)
+- [cuticle remover recipe](https://food.allwomenstalk.com/what-to-do-about-food-when-traveling-for-christmas/)
+- [expat tips](https://lifestyle.allwomenstalk.com/tips-for-becoming-an-expat/)
 - [flight rows](https://travel.allwomenstalk.com/how-to-get-an-airplane-row-to-yourself/)
 - [beach trip must haves](https://travel.allwomenstalk.com/essentials-for-a-beach-trip/)
-- [feeling first class](https://travel.allwomenstalk.com/perfect-tips-on-how-to-make-economy-feel-like-first-class/)
 - [responsible traveller](https://travel.allwomenstalk.com/perfect-ways-to-be-a-more-responsible-traveller/)
-- [music festivals essentials](https://music.allwomenstalk.com/the-essentials-to-pack-for-a-music-festival/)
-- [cuticle remover recipe](https://food.allwomenstalk.com/what-to-do-about-food-when-traveling-for-christmas/)
 - [wanderlust domes](https://travel.allwomenstalk.com/awesome-tips-on-how-to-cure-your-wanderlust/)
-- [travel with child tips](https://travel.allwomenstalk.com/helpful-tips-for-traveling-with-children/)
 - [7 Reasons to Holiday in Provence ...](https://travel.allwomenstalk.com/reasons-to-holiday-in-provence/)
 - [7 Reasons to Travel Abroad and Experience Differen...](https://travel.allwomenstalk.com/reasons-to-travel-abroad-and-experience-different-cultures/)
 

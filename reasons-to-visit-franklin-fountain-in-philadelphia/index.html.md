@@ -36,16 +36,16 @@ Personally, when I get the chance to go, I order a cup with two scoops of ice cr
 
 ## Related Posts
 
-- [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
-- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
-- [torrefazione cannaregio](https://food.allwomenstalk.com/must-visit-coffee-shops-around-the-world/)
-- [hotspots in the us](https://travel.allwomenstalk.com/must-visit-antique-hotspots-across-the-us/)
-- [chicago vegetarian restaurant](https://food.allwomenstalk.com/top-rated-vegan-restaurants-around-the-world/)
-- [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
 - [10 places to visit in germany](https://travel.allwomenstalk.com/top-places-to-visit-in-germany/)
-- [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
-- [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
+- [chicago vegetarian restaurant](https://food.allwomenstalk.com/top-rated-vegan-restaurants-around-the-world/)
+- [torrefazione cannaregio](https://food.allwomenstalk.com/must-visit-coffee-shops-around-the-world/)
+- [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
+- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
+- [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
 - [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
+- [hotspots in the us](https://travel.allwomenstalk.com/must-visit-antique-hotspots-across-the-us/)
+- [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
+- [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 

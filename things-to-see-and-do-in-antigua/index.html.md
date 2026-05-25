@@ -56,16 +56,16 @@ I bet you’re already browsing ticket sites to book you vacation to Antigua –
 
 ## Related Posts
 
-- [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
-- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
-- [wildlife parks in africa](https://travel.allwomenstalk.com/the-amazing-wildlife-of-africas-national-parks-and-game-reserves/)
-- [castles in disney movies](https://travel.allwomenstalk.com/gorgeous-castles-that-should-belong-in-disney-movies/)
-- [new york bird eye view](https://travel.allwomenstalk.com/birds-eye-views-that-will-leave-you-breathless/)
-- [art colony grand marais](https://travel.allwomenstalk.com/indulge-your-muse-at-these-artist-colonies/)
-- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
-- [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
-- [worlds largest lava lamp](https://travel.allwomenstalk.com/when-you-see-these-kitsch-roadside-attractions-youll-wonder-why-just-why/)
 - [what to do in nova scotia](https://travel.allwomenstalk.com/here-are-the-best-places-to-visit-in-nova-scotia/)
+- [new york bird eye view](https://travel.allwomenstalk.com/birds-eye-views-that-will-leave-you-breathless/)
+- [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
+- [art colony grand marais](https://travel.allwomenstalk.com/indulge-your-muse-at-these-artist-colonies/)
+- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
+- [castles in disney movies](https://travel.allwomenstalk.com/gorgeous-castles-that-should-belong-in-disney-movies/)
+- [worlds largest lava lamp](https://travel.allwomenstalk.com/when-you-see-these-kitsch-roadside-attractions-youll-wonder-why-just-why/)
+- [wildlife parks in africa](https://travel.allwomenstalk.com/the-amazing-wildlife-of-africas-national-parks-and-game-reserves/)
+- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
+- [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 

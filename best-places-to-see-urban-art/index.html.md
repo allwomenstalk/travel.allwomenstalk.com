@@ -42,16 +42,16 @@ Murals and wall posters and stencils are not limited to the world’s major citi
 
 ## Related Posts
 
-- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
+- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
 - [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
-- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
-- [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
+- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
 - [mythical places on earth](https://travel.allwomenstalk.com/places-of-myth-and-legend/)
+- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
+- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
 - [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
 - [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
-- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
-- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
-- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
+- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
+- [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 

@@ -102,16 +102,16 @@ Cape Town ‘The Mother City’ is one of the most multicultural cities in the w
 
 ## Related Posts
 
-- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
-- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
-- [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
-- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
 - [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
-- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
-- [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
+- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
 - [beverly hills what to see](https://travel.allwomenstalk.com/the-top-places-to-see-when-you-visit-beverly-hills/)
-- [Grand Canyon National Park ...](https://allwomenstalk.com/grand-canyon-national-park/)
+- [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
+- [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
+- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
+- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
+- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
 - [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
+- [Grand Canyon National Park ...](https://allwomenstalk.com/grand-canyon-national-park/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 

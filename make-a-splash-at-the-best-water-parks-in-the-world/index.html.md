@@ -69,15 +69,15 @@ I am such a water baby and have to be dragged away from the fun of any water par
 ## Related Posts
 
 - [fiji hotels underwater](https://travel.allwomenstalk.com/underwater-hotels-you-will-not-believe/)
-- [joys of camping](https://travel.allwomenstalk.com/camping-is-cheap-and-more-fun-than-you-imagine/)
-- [extreme travel destinations](https://travel.allwomenstalk.com/must-do-trips-for-adrenaline-junkies/)
-- [princesses castles](https://travel.allwomenstalk.com/vacation-fairytale-castles-where-princesses-feel-right-at-home/)
-- [what is a goddess party](https://beauty.allwomenstalk.com/the-products-you-need-to-look-like-a-goddess-on-vacation/)
-- [beaches 777 deals](https://travel.allwomenstalk.com/dreamy-beach-vacations-you-deserve-and-can-afford/)
-- [places to go on your honeymoon](https://wedding.allwomenstalk.com/places-to-go-for-your-dream-honeymoon/)
-- [can you swim in lake nyos](https://travel.allwomenstalk.com/amazing-lakes-even-mermaids-wouldnt-want-to-swim-in/)
 - [best vacations for friends](https://travel.allwomenstalk.com/the-best-vacations-for-bffs-to-dream-about-taking-together/)
+- [princesses castles](https://travel.allwomenstalk.com/vacation-fairytale-castles-where-princesses-feel-right-at-home/)
+- [extreme travel destinations](https://travel.allwomenstalk.com/must-do-trips-for-adrenaline-junkies/)
+- [places to go on your honeymoon](https://wedding.allwomenstalk.com/places-to-go-for-your-dream-honeymoon/)
+- [what is a goddess party](https://beauty.allwomenstalk.com/the-products-you-need-to-look-like-a-goddess-on-vacation/)
 - [hipster chicks](https://travel.allwomenstalk.com/hipster-hotels-that-are-too-cool-for-school/)
+- [beaches 777 deals](https://travel.allwomenstalk.com/dreamy-beach-vacations-you-deserve-and-can-afford/)
+- [joys of camping](https://travel.allwomenstalk.com/camping-is-cheap-and-more-fun-than-you-imagine/)
+- [can you swim in lake nyos](https://travel.allwomenstalk.com/amazing-lakes-even-mermaids-wouldnt-want-to-swim-in/)
 - [7 Best Theme Parks from around the World ...](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 - [9 Best Surf Spots in the World ...](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
 

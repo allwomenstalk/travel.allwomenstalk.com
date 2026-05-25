@@ -68,16 +68,16 @@ History is full of all kinds of stories - good, bad, and terrifying. Have you vi
 
 ## Related Posts
 
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
-- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
-- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
 - [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 - [5 Haunted Places ...](https://twilight.allwomenstalk.com/5-haunted-places/)
 

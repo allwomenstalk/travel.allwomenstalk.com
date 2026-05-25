@@ -52,16 +52,16 @@ Americans have a huge global presence, and with that, comes stereotypes about al
 
 ## Related Posts
 
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
-- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
-- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
 - [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
-- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
-- [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
-- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
 - [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
-- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
 - [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
+- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
+- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
+- [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
+- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
+- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 - [8 Things I Miss from My Home Country ...](https://travel.allwomenstalk.com/8-things-i-miss-from-my-home-country/)
 

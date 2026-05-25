@@ -56,16 +56,16 @@ Tell someone that you’re going spelunking and raise an eyebrow! Would you reac
 
 ## Related Posts
 
-- [places with royalty](https://travel.allwomenstalk.com/places-to-holiday-like-royalty/)
-- [eco friendly beach](https://travel.allwomenstalk.com/of-the-worlds-best-eco-friendly-beaches/)
+- [reasons to visit mauritius](https://travel.allwomenstalk.com/marvelous-reasons-to-visit-mauritius/)
 - [americas best kept secret](https://travel.allwomenstalk.com/of-americas-best-kept-travel-secrets/)
+- [places with royalty](https://travel.allwomenstalk.com/places-to-holiday-like-royalty/)
+- [largest canadian islands](https://travel.allwomenstalk.com/islands-of-canada-and-why-you-would-visit-them/)
 - [best luxury destinations](https://travel.allwomenstalk.com/luxury-destinations-when-you-want-to-splurge-on-a-vacation/)
 - [why should i visit austria](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-austria-on-your-next-vacation/)
-- [best places to visit after high school graduation](https://teen.allwomenstalk.com/unforgettable-ideas-for-a-senior-trip/)
 - [why travelling is overrated](https://travel.allwomenstalk.com/worldwide-destinations-that-are-overrated/)
-- [largest canadian islands](https://travel.allwomenstalk.com/islands-of-canada-and-why-you-would-visit-them/)
+- [best places to visit after high school graduation](https://teen.allwomenstalk.com/unforgettable-ideas-for-a-senior-trip/)
+- [eco friendly beach](https://travel.allwomenstalk.com/of-the-worlds-best-eco-friendly-beaches/)
 - [travel tours for couples](https://travel.allwomenstalk.com/fun-trips-to-take-with-other-couples/)
-- [reasons to visit mauritius](https://travel.allwomenstalk.com/marvelous-reasons-to-visit-mauritius/)
 - [9 Places to Go Skinny Dipping ...](https://travel.allwomenstalk.com/places-to-go-skinny-dipping/)
 - [7 Amazing Easter Adventures Waiting to Be Taken .....](https://travel.allwomenstalk.com/amazing-easter-adventures/)
 

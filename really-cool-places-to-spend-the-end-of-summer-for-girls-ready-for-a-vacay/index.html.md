@@ -56,16 +56,16 @@ Where are you going for your end of summer vacation? What other locations would 
 
 ## Related Posts
 
-- [Top Trending Destinations for 2018 According to Tr...](https://travel.allwomenstalk.com/top-trending-destinations-for-according-to-tripadvisor/)
-- [Best Airlines for Cheap Flights to Europe for Girl...](https://travel.allwomenstalk.com/best-airlines-for-cheap-flights-to-europe/)
-- [4 Great Travel Websites to Help You Decide Your Ne...](https://travel.allwomenstalk.com/travel-websites-to-help-you-decide-your-next-destination/)
-- [beautifuldestinations](https://travel.allwomenstalk.com/beautiful-destinations-to-travel-to-in/)
-- [10 Amazing Destinations for a Rock and Roll  Pilgr...](https://travel.allwomenstalk.com/amazing-destinations-for-a-rock-and-roll-pilgrimage/)
-- [8 Awesome Places for Couples to Visit ...](https://travel.allwomenstalk.com/top-destinations-for-couples/)
 - [images of springs](https://travel.allwomenstalk.com/stunning-pictures-of-paradise-to-blast-away-the-winter-blues/)
-- [8 Breathtaking Places to Travel to after Heartbrea...](https://travel.allwomenstalk.com/places-to-travel-after-heartbreak/)
-- [bucket list travel destinations](https://travel.allwomenstalk.com/destinations-that-should-be-on-your-travel-bucket-list/)
 - [Celestial Events of 2018 You Shouldnt Miss if You ...](https://travel.allwomenstalk.com/celestial-events-of-you-shouldnt-miss-if-you-enjoy-stargazing/)
+- [10 Amazing Destinations for a Rock and Roll  Pilgr...](https://travel.allwomenstalk.com/amazing-destinations-for-a-rock-and-roll-pilgrimage/)
+- [8 Breathtaking Places to Travel to after Heartbrea...](https://travel.allwomenstalk.com/places-to-travel-after-heartbreak/)
+- [8 Awesome Places for Couples to Visit ...](https://travel.allwomenstalk.com/top-destinations-for-couples/)
+- [Top Trending Destinations for 2018 According to Tr...](https://travel.allwomenstalk.com/top-trending-destinations-for-according-to-tripadvisor/)
+- [4 Great Travel Websites to Help You Decide Your Ne...](https://travel.allwomenstalk.com/travel-websites-to-help-you-decide-your-next-destination/)
+- [bucket list travel destinations](https://travel.allwomenstalk.com/destinations-that-should-be-on-your-travel-bucket-list/)
+- [Best Airlines for Cheap Flights to Europe for Girl...](https://travel.allwomenstalk.com/best-airlines-for-cheap-flights-to-europe/)
+- [beautifuldestinations](https://travel.allwomenstalk.com/beautiful-destinations-to-travel-to-in/)
 - [15 Wonderful Beach Essentials Every Girl Needs Thi...](https://lifestyle.allwomenstalk.com/wonderful-beach-essentials-every-girl-needs-this-summer/)
 - [Head to the Beaches of the Pacific North West for ...](https://travel.allwomenstalk.com/head-to-the-beaches-of-the-pacific-north-west-for-a-summer-to-remember/)
 

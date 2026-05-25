@@ -42,15 +42,15 @@ Traveling to a new city or location is always exciting and adventurous! Travelin
 
 ## Related Posts
 
+- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
 - [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
 - [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
-- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
 - [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
 - [take off one accessory before leaving the house](https://lifestyle.allwomenstalk.com/important-things-to-do-before-you-leave-the-house/)
-- [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
 - [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
 - [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
-- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
+- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
+- [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
 - [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)

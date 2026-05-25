@@ -72,16 +72,16 @@ And one more shout out for Australia! Western Australia was historically a place
 
 ## Related Posts
 
-- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
-- [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
+- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
+- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
+- [what was the 14th state](https://allwomenstalk.com/vermont-the-14th-state/)
 - [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
 - [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
+- [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
 - [beverly hills what to see](https://travel.allwomenstalk.com/the-top-places-to-see-when-you-visit-beverly-hills/)
-- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
 - [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
 - [Grand Canyon National Park ...](https://allwomenstalk.com/grand-canyon-national-park/)
-- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
-- [what was the 14th state](https://allwomenstalk.com/vermont-the-14th-state/)
+- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
 - [8 Iconic Travel Trips to Help You on Adventures ar...](https://travel.allwomenstalk.com/iconic-travel-trips/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

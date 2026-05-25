@@ -47,15 +47,15 @@ I may have biased eyes, because I live in Michigan, but there’s no denying tha
 ## Related Posts
 
 - [forever 21 dupes](https://fashion.allwomenstalk.com/reaons-we-love-forever-21/)
-- [marlee matlin family guy](https://celebs.allwomenstalk.com/reasons-to-admire-marlee-matlin/)
-- [i love doctor who](https://movies.allwomenstalk.com/reasons-to-love-doctor-who/)
-- [7 Reasons It is Great to Be a Bitch ...](https://lifestyle.allwomenstalk.com/reasons-it-is-great-to-be-a-bitch/)
+- [romance crime shows](https://movies.allwomenstalk.com/reasons-why-we-love-crime-shows-that-boost-our-heart-rate/)
 - [jr ward reading order](https://books.allwomenstalk.com/reasons-to-love-j-r-wards-black-dagger-brotherhood-series/)
+- [7 Reasons It is Great to Be a Bitch ...](https://lifestyle.allwomenstalk.com/reasons-it-is-great-to-be-a-bitch/)
 - [country boy i love u](https://love.allwomenstalk.com/reasons-to-love-a-country-boy/)
 - [why dont i like country music](https://music.allwomenstalk.com/reasons-to-love-country-music/)
-- [percy jackson writing style](https://books.allwomenstalk.com/reasons-to-read-rick-riordans-work/)
 - [northern downpour lyrics](https://music.allwomenstalk.com/reasons-why-you-should-listen-to-panic-at-the-disco/)
-- [romance crime shows](https://movies.allwomenstalk.com/reasons-why-we-love-crime-shows-that-boost-our-heart-rate/)
+- [percy jackson writing style](https://books.allwomenstalk.com/reasons-to-read-rick-riordans-work/)
+- [marlee matlin family guy](https://celebs.allwomenstalk.com/reasons-to-admire-marlee-matlin/)
+- [i love doctor who](https://movies.allwomenstalk.com/reasons-to-love-doctor-who/)
 - [8 Reasons to Love Going on Vacations ...](https://allwomenstalk.com/8-reasons-to-love-going-on-vacations/)
 - [8 Things I Love about New England ...](https://allwomenstalk.com/8-things-i-love-about-new-england/)
 

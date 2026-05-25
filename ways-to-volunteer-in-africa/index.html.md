@@ -82,16 +82,16 @@ There really are thousands of ways of volunteering in Africa. No matter your age
 
 ## Related Posts
 
-- [what fruit can you throw the farthest](https://travel.allwomenstalk.com/crazy-festivals-where-you-throw-things/)
-- [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [sweet 16 venue](https://lifestyle.allwomenstalk.com/over-the-top-venues-for-your-sweet-sixteen/)
-- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
-- [kid games board](https://lifestyle.allwomenstalk.com/board-games-i-loved-as-a-kid/)
-- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
-- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
-- [what can u do on facebook](https://lifestyle.allwomenstalk.com/things-you-can-do-on-facebook/)
-- [activities to do at home](https://love.allwomenstalk.com/fun-at-home-activities-to-do-with-your-boyfriend/)
+- [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [movie night at work](https://lifestyle.allwomenstalk.com/office-party-ideas/)
+- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
+- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
+- [what fruit can you throw the farthest](https://travel.allwomenstalk.com/crazy-festivals-where-you-throw-things/)
+- [activities to do at home](https://love.allwomenstalk.com/fun-at-home-activities-to-do-with-your-boyfriend/)
+- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
+- [kid games board](https://lifestyle.allwomenstalk.com/board-games-i-loved-as-a-kid/)
+- [what can u do on facebook](https://lifestyle.allwomenstalk.com/things-you-can-do-on-facebook/)
 - [9 Great Ideas for Voluntourism ...](https://travel.allwomenstalk.com/9-great-ideas-for-voluntourism/)
 - [10 Ways to Help Other People ...](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 

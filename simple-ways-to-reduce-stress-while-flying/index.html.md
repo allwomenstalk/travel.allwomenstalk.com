@@ -42,16 +42,16 @@ While flying may never be an experience completely free of frustration, simple t
 
 ## Related Posts
 
-- [7 TIPS on SURVIVING STRESSFUL SITUATIONS like a SU...](https://health.allwomenstalk.com/tips-on-surviving-stressful-situations/)
-- [8 Relaxation Techniques ...](https://inspiration.allwomenstalk.com/relaxation-techniques/)
-- [7 Ways to Improve a Bad Day ...](https://inspiration.allwomenstalk.com/ways-to-improve-a-bad-day/)
-- [7 Things to do when Youre Suffering from a Panic A...](https://health.allwomenstalk.com/things-to-do-when-youre-suffering-from-a-panic-attack/)
-- [honeymoon blues meaning](https://love.allwomenstalk.com/ways-to-beat-the-post-honeymoon-blues/)
 - [7 Ways to Overcome Depression Naturally ...](https://mindfulness.allwomenstalk.com/ways-to-overcome-depression-naturally/)
-- [8 Ways to Stop Being a Perfectionist ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-a-perfectionist/)
-- [productive things to do in doctors waiting room](https://health.allwomenstalk.com/ways-to-be-productive-in-waiting-rooms/)
 - [7 Reasons Running Relieves Stress ...](https://running.allwomenstalk.com/reasons-running-relieves-stress/)
+- [honeymoon blues meaning](https://love.allwomenstalk.com/ways-to-beat-the-post-honeymoon-blues/)
+- [7 Ways to Improve a Bad Day ...](https://inspiration.allwomenstalk.com/ways-to-improve-a-bad-day/)
+- [productive things to do in doctors waiting room](https://health.allwomenstalk.com/ways-to-be-productive-in-waiting-rooms/)
+- [7 TIPS on SURVIVING STRESSFUL SITUATIONS like a SU...](https://health.allwomenstalk.com/tips-on-surviving-stressful-situations/)
+- [8 Ways to Stop Being a Perfectionist ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-a-perfectionist/)
+- [7 Things to do when Youre Suffering from a Panic A...](https://health.allwomenstalk.com/things-to-do-when-youre-suffering-from-a-panic-attack/)
 - [loreal color riche stylo shadow bottomless](https://lifestyle.allwomenstalk.com/useful-steps-to-help-break-a-bad-habit/)
+- [8 Relaxation Techniques ...](https://inspiration.allwomenstalk.com/relaxation-techniques/)
 - [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
 - [7 Tips to Avoid Flight Sickness ...](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
 

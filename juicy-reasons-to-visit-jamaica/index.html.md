@@ -68,15 +68,15 @@ No matter if you never had a reason to visit Jamaica, or if you had 100 reasons 
 
 ## Related Posts
 
-- [best beaches in the europe](https://travel.allwomenstalk.com/top-beaches-in-europe/)
-- [great family resorts in the us](https://travel.allwomenstalk.com/top-us-family-resorts/)
 - [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
-- [kid friendly flights](https://travel.allwomenstalk.com/child-friendly-airlines/)
-- [is it illegal to skinny dip](https://travel.allwomenstalk.com/places-to-go-skinny-dipping/)
-- [playa la ventanilla](https://travel.allwomenstalk.com/lesser-known-but-brilliant-beaches-of-mexico/)
-- [simply rides](https://travel.allwomenstalk.com/simply-fabulous-hot-air-balloon-rides/)
 - [top 10 luxury trains in the world](https://travel.allwomenstalk.com/luxurious-train-trips/)
 - [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
+- [is it illegal to skinny dip](https://travel.allwomenstalk.com/places-to-go-skinny-dipping/)
+- [kid friendly flights](https://travel.allwomenstalk.com/child-friendly-airlines/)
+- [great family resorts in the us](https://travel.allwomenstalk.com/top-us-family-resorts/)
+- [best beaches in the europe](https://travel.allwomenstalk.com/top-beaches-in-europe/)
+- [simply rides](https://travel.allwomenstalk.com/simply-fabulous-hot-air-balloon-rides/)
+- [playa la ventanilla](https://travel.allwomenstalk.com/lesser-known-but-brilliant-beaches-of-mexico/)
 - [mini getaway](https://travel.allwomenstalk.com/fantastic-ideas-for-a-mini-getaway/)
 - [9 Exciting Spring Break Destinations ...](https://travel.allwomenstalk.com/9-exciting-spring-break-destinations/)
 - [8 Reasons to Visit Thailand ...](https://travel.allwomenstalk.com/reasons-to-visit-thailand/)

@@ -62,16 +62,16 @@ As holidays go, Brazil has something for everyone. If you do make it the 2014 Wo
 
 ## Related Posts
 
-- [japan must go cities](https://travel.allwomenstalk.com/breathtakingly-beautiful-cities-to-visit-in-japan/)
-- [secret location nyc](https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/)
-- [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
-- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
-- [most beautiful german castles](https://travel.allwomenstalk.com/most-breathtaking-castles-in-germany/)
-- [covent garden roadhouse](https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/)
-- [winter festivals around the world](https://travel.allwomenstalk.com/wonderful-winter-festivals-not-to-miss/)
 - [tourist attractions liverpool](https://travel.allwomenstalk.com/must-see-attractions-of-liverpool/)
+- [covent garden roadhouse](https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/)
 - [ancient middle east city](https://travel.allwomenstalk.com/ancient-sites-in-the-middle-east-that-will-mesmerize-you/)
 - [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
+- [secret location nyc](https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/)
+- [most beautiful german castles](https://travel.allwomenstalk.com/most-breathtaking-castles-in-germany/)
+- [japan must go cities](https://travel.allwomenstalk.com/breathtakingly-beautiful-cities-to-visit-in-japan/)
+- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
+- [winter festivals around the world](https://travel.allwomenstalk.com/wonderful-winter-festivals-not-to-miss/)
+- [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
 - [8 Reasons to Visit Japan ...](https://travel.allwomenstalk.com/reasons-to-visit-japan/)
 - [10 Reasons to Visit Australia ...](https://travel.allwomenstalk.com/reasons-to-visit-australia/)
 

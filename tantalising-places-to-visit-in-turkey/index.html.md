@@ -56,15 +56,15 @@ This is just a very small selection of fabulous places to go in Turkey. Why not 
 
 ## Related Posts
 
-- [us states with most national parks](https://travel.allwomenstalk.com/of-the-best-us-national-parks/)
-- [8 Best Shopping Experiences in Bangkok ...](https://travel.allwomenstalk.com/best-shopping-experiences-in-bangkok/)
-- [8 Places to Enjoy the Wonderful Colors of Fall ...](https://travel.allwomenstalk.com/places-to-enjoy-the-wonderful-colors-of-fall/)
+- [8 Most Expensive Cities in the World 2012 ...](https://travel.allwomenstalk.com/most-expensive-cities-in-the-world/)
+- [8 Simply Special Reasons to Visit South Africa ...](https://travel.allwomenstalk.com/simply-special-reasons-to-visit-south-africa/)
 - [caverns of sonora facts](https://travel.allwomenstalk.com/great-places-to-go-in-texas/)
 - [attraction in moscow](https://travel.allwomenstalk.com/marvelous-moscow-attractions/)
-- [cool places in asia](https://travel.allwomenstalk.com/incredible-must-see-places-in-asia/)
-- [8 Most Expensive Cities in the World 2012 ...](https://travel.allwomenstalk.com/most-expensive-cities-in-the-world/)
+- [8 Places to Enjoy the Wonderful Colors of Fall ...](https://travel.allwomenstalk.com/places-to-enjoy-the-wonderful-colors-of-fall/)
+- [us states with most national parks](https://travel.allwomenstalk.com/of-the-best-us-national-parks/)
 - [warsaw sights to see](https://travel.allwomenstalk.com/warsaw-sights-everyone-has-got-to-see/)
-- [8 Simply Special Reasons to Visit South Africa ...](https://travel.allwomenstalk.com/simply-special-reasons-to-visit-south-africa/)
+- [cool places in asia](https://travel.allwomenstalk.com/incredible-must-see-places-in-asia/)
+- [8 Best Shopping Experiences in Bangkok ...](https://travel.allwomenstalk.com/best-shopping-experiences-in-bangkok/)
 - [7 Endangered American Landmarks ...](https://travel.allwomenstalk.com/endangered-american-landmarks/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)

@@ -56,16 +56,16 @@ Top Photo Credit: [VicPrinter](https://www.flickr.com/photos/vicprinter/36882593
 
 ## Related Posts
 
-- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
-- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
-- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
-- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
-- [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
-- [obscure travel destinations](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
 - [8 Wondrous Waterfalls to Be Amazed by ...](https://travel.allwomenstalk.com/wondrous-waterfalls-to-be-amazed-by/)
-- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
-- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
 - [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
+- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
+- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
+- [obscure travel destinations](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
+- [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
+- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
+- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
+- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
+- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 

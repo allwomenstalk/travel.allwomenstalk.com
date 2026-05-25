@@ -59,16 +59,16 @@ These seven haunted places in Canada are just a small sampling of the many locat
 
 ## Related Posts
 
-- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
 - [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
-- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
-- [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
-- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
-- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
 - [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
+- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
+- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
+- [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
+- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
+- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 - [5 Haunted Places ...](https://twilight.allwomenstalk.com/5-haunted-places/)
 

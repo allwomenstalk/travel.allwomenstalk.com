@@ -44,16 +44,16 @@ There are some times when being really polite and generous of spirit is to your 
 
 ## Related Posts
 
-- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
-- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
 - [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
-- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
-- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
-- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
-- [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
 - [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
-- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
+- [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
+- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
 - [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
+- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
+- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
+- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
+- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
+- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [9 Ways to Stay Comfortable on a Long Flight ...](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
 

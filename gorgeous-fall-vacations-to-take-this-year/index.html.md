@@ -56,16 +56,16 @@ What are your plans this fall? Are you planning to visit any of these places? Le
 
 ## Related Posts
 
-- [well deserved vacations](https://travel.allwomenstalk.com/christmas-destinations-for-a-well-deserved-vacation/)
-- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
-- [romantic new years eve destinations usa](https://travel.allwomenstalk.com/romantic-places-to-see-in-the-new-year/)
+- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
 - [9 Less Traditional Destinations to Explore This Ch...](https://travel.allwomenstalk.com/less-traditional-destinations-to-explore-this-christmas/)
+- [well deserved vacations](https://travel.allwomenstalk.com/christmas-destinations-for-a-well-deserved-vacation/)
+- [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
 - [tropical views](https://travel.allwomenstalk.com/views-of-tropical-islands-that-youll-never-forget/)
 - [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
-- [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
-- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
-- [best ski resorts in iceland](https://travel.allwomenstalk.com/ski-resorts-to-inspire-your-winter-travel-plans/)
 - [alaska postcards](https://travel.allwomenstalk.com/postcards-from-alaska-youd-love-to-receive/)
+- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
+- [best ski resorts in iceland](https://travel.allwomenstalk.com/ski-resorts-to-inspire-your-winter-travel-plans/)
+- [romantic new years eve destinations usa](https://travel.allwomenstalk.com/romantic-places-to-see-in-the-new-year/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 

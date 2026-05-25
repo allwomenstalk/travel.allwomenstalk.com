@@ -42,16 +42,16 @@ Staying healthy while traveling doesn’t have to be tough or boring! There are 
 
 ## Related Posts
 
-- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
-- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
-- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
+- [can allergies make you gain weight](https://health.allwomenstalk.com/healthy-ways-to-gain-weight-if-you-have-food-allergies/)
+- [binge starve cycle](https://diet.allwomenstalk.com/tips-on-how-to-talk-yourself-out-of-binge-eating/)
+- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
 - [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
 - [discouraged weight loss](https://diet.allwomenstalk.com/ways-to-not-get-discouraged-when-dieting/)
-- [can allergies make you gain weight](https://health.allwomenstalk.com/healthy-ways-to-gain-weight-if-you-have-food-allergies/)
 - [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
-- [binge starve cycle](https://diet.allwomenstalk.com/tips-on-how-to-talk-yourself-out-of-binge-eating/)
+- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
+- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
+- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
 - [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
-- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
 - [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
 - [9 Tips to Eating Healthy on Vacation ...](https://allwomenstalk.com/9-tips-to-eating-healthy-on-vacation/)
 

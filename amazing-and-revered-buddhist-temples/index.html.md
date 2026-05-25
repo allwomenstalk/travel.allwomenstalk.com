@@ -56,16 +56,16 @@ Top Photo Credit: [yakthai.](https://www.flickr.com/photos/yakthai/4963863708/)
 
 ## Related Posts
 
-- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
 - [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
-- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
-- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
-- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
-- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
+- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
 - [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
+- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
+- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
+- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
+- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 

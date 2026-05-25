@@ -56,16 +56,16 @@ I live in Colorado and am partial to the Denver Zoo, but almost any city you vis
 
 ## Related Posts
 
+- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
 - [tourist attractions in montevideo uruguay](https://travel.allwomenstalk.com/best-attractions-of-montevideo/)
+- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
 - [what to do when in manila](https://travel.allwomenstalk.com/fabulous-things-to-do-in-manila/)
 - [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
 - [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
-- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
 - [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
-- [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
-- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
+- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
 - [best small towns to visit in new england](https://travel.allwomenstalk.com/small-new-england-towns-that-you-must-visit/)
-- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
+- [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
 - [7 Best Theme Parks from around the World ...](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

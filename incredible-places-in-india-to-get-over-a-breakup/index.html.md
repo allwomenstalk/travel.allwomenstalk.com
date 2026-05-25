@@ -66,16 +66,16 @@ Now the next time heartbreak strikes, you know where to go – right?
 
 ## Related Posts
 
-- [getting back on your feet after divorce](https://love.allwomenstalk.com/how-to-get-back-up-on-your-feet-after-a-bad-divorce/)
+- [feeling neglected relationship](https://love.allwomenstalk.com/ways-to-stop-feeling-neglected-by-your-bf/)
+- [how to deal with frenemies](https://lifestyle.allwomenstalk.com/dump-your-frenemies-by-following-these-tips/)
+- [missing an ex who was bad for you](https://love.allwomenstalk.com/things-its-healthy-to-miss-about-your-ex/)
+- [busted break up](https://love.allwomenstalk.com/big-breakup-myths-busted/)
+- [i won the breakup](https://love.allwomenstalk.com/how-to-win-the-breakup/)
+- [how to end a relationship with dignity](https://love.allwomenstalk.com/how-to-break-up-mindfully-and-with-dignity/)
+- [phases of breaking up](https://love.allwomenstalk.com/the-phases-of-a-break-up/)
 - [how to make them regret losing you](https://love.allwomenstalk.com/how-to-get-back-the-guy-who-got-away/)
 - [how to distract yourself from crush](https://love.allwomenstalk.com/ways-to-distract-yourself-from-thinking-of-him/)
-- [how to end a relationship with dignity](https://love.allwomenstalk.com/how-to-break-up-mindfully-and-with-dignity/)
-- [missing an ex who was bad for you](https://love.allwomenstalk.com/things-its-healthy-to-miss-about-your-ex/)
-- [how to deal with frenemies](https://lifestyle.allwomenstalk.com/dump-your-frenemies-by-following-these-tips/)
-- [phases of breaking up](https://love.allwomenstalk.com/the-phases-of-a-break-up/)
-- [i won the breakup](https://love.allwomenstalk.com/how-to-win-the-breakup/)
-- [feeling neglected relationship](https://love.allwomenstalk.com/ways-to-stop-feeling-neglected-by-your-bf/)
-- [busted break up](https://love.allwomenstalk.com/big-breakup-myths-busted/)
+- [getting back on your feet after divorce](https://love.allwomenstalk.com/how-to-get-back-up-on-your-feet-after-a-bad-divorce/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 - [10 Things to do to Get over a Breakup Easily ...](https://allwomenstalk.com/10-things-to-do-to-get-over-a-breakup-easily/)
 

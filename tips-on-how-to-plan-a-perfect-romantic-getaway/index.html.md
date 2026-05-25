@@ -36,16 +36,16 @@ And if you want to go the whole hog, you can always keep the entire holiday a se
 
 ## Related Posts
 
-- [woman like to get for valentines day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
 - [play kissing](https://love.allwomenstalk.com/fun-kissing-games-to-play/)
-- [valentines day coupons](https://love.allwomenstalk.com/love-coupons-for-valentines-day/)
-- [hug romantic gift](https://love.allwomenstalk.com/tokens-of-love-that-mean-more-than-an-expensive-gift/)
-- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
 - [late night date night ideas](https://love.allwomenstalk.com/best-date-ideas-for-late-night-owls/)
-- [homemade valentines gifts for her](https://diy.allwomenstalk.com/homemade-valentines-day-gift-ideas-for-your-other-half/)
-- [things to do in paris romantic](https://travel.allwomenstalk.com/the-most-romantic-things-to-do-in-paris/)
-- [what to give your boyfriend for valentines day](https://love.allwomenstalk.com/creative-valentines-day-gifts-for-your-boyfriend/)
+- [hug romantic gift](https://love.allwomenstalk.com/tokens-of-love-that-mean-more-than-an-expensive-gift/)
+- [valentines day coupons](https://love.allwomenstalk.com/love-coupons-for-valentines-day/)
+- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
 - [depressed on valentines day](https://love.allwomenstalk.com/facts-about-valentines-day-that-will-make-you-sad/)
+- [things to do in paris romantic](https://travel.allwomenstalk.com/the-most-romantic-things-to-do-in-paris/)
+- [homemade valentines gifts for her](https://diy.allwomenstalk.com/homemade-valentines-day-gift-ideas-for-your-other-half/)
+- [what to give your boyfriend for valentines day](https://love.allwomenstalk.com/creative-valentines-day-gifts-for-your-boyfriend/)
+- [woman like to get for valentines day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
 - [7 Passionately Romantic Ways to Improve Your Sex L...](https://love.allwomenstalk.com/passionately-romantic-ways-to-improve-your-sex-life/)
 - [7 Ways to Create a Romantic Evening ...](https://love.allwomenstalk.com/ways-to-create-a-romantic-evening/)
 

@@ -43,15 +43,15 @@ If all else fails then good old fashioned charm and friendliness is the way to g
 ## Related Posts
 
 - [what are the qualifications for cabin crew](https://travel.allwomenstalk.com/general-requirements-to-be-cabin-crew/)
-- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
 - [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
-- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
-- [our first getaway](https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/)
+- [how to attract tourists](https://travel.allwomenstalk.com/ways-to-be-a-good-tourist/)
+- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
 - [idyllic holidays](https://travel.allwomenstalk.com/ways-to-bring-paradise-home-after-an-idyllic-vacation/)
 - [must haves for honeymoon](https://wedding.allwomenstalk.com/honeymoon-essentials-you-cannot-forget-to-pack/)
 - [easy airport](https://travel.allwomenstalk.com/tips-for-a-smooth-and-easy-airport-experience/)
-- [how to attract tourists](https://travel.allwomenstalk.com/ways-to-be-a-good-tourist/)
-- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
+- [our first getaway](https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/)
+- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
+- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
 - [7 Tips for Getting a Great Hotel Deal ...](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
 - [7 Ways to Negotiate a Better Hotel Room Rate ...](https://travel.allwomenstalk.com/ways-to-negotiate-a-better-hotel-room-rate/)
 

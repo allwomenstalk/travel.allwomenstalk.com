@@ -58,16 +58,16 @@ Top Photo Credit: [L.Brumm Photography and Design](https://www.flickr.com/photos
 
 ## Related Posts
 
-- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
-- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
-- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
-- [american towns with english names](https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/)
-- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
+- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [american towns with english names](https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/)
+- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 - [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
-- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
 - [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
+- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
+- [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 

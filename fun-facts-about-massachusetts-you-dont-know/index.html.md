@@ -46,16 +46,16 @@ Now that you know some fun facts about Massachusetts, how about a trip here? It 
 
 ## Related Posts
 
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
+- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
 - [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
+- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
 - [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
+- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
 - [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
-- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
 - [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
-- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
-- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
 - [7 Facts on Florida ...](https://travel.allwomenstalk.com/7-facts-on-florida/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 

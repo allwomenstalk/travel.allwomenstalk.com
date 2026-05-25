@@ -76,14 +76,14 @@ When visiting TO, start with an open air bus tour. Any of them are excellent and
 
 ## Related Posts
 
-- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
-- [things to do when youre lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
 - [things to do on your phone when bored](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-bored/)
-- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
-- [2 people challenges](https://teen.allwomenstalk.com/challenges-to-do-with-friends/)
-- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
-- [what to do on your 30th birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-30th-birthday/)
 - [quirky date ideas](https://love.allwomenstalk.com/offbeat-date-ideas/)
+- [things to do when youre lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
+- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
+- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
+- [2 people challenges](https://teen.allwomenstalk.com/challenges-to-do-with-friends/)
+- [what to do on your 30th birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-30th-birthday/)
+- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
 - [road trip date ideas](https://travel.allwomenstalk.com/fun-things-to-do-on-a-road-trip-with-your-partner/)
 - [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)

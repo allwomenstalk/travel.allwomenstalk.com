@@ -91,16 +91,16 @@ In wrapping up, remember that holiday travel doesn't have to be a stress-fest. A
 
 ## Related Posts
 
-- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
-- [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
-- [Solo Travel Tips For Your Next Escapade to Capri](https://allwomenstalk.com/capri-solo-travel-tips/)
-- [6 Essential Items for Him to Take on the Honeymoon...](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon_/)
-- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
-- [road trip planning tips](https://travel.allwomenstalk.com/planning-tips-for-your-next-road-trip/)
 - [why did janni and jon break up](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon/)
+- [Solo Travel Tips For Your Next Escapade to Capri](https://allwomenstalk.com/capri-solo-travel-tips/)
 - [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
+- [6 Essential Items for Him to Take on the Honeymoon...](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon_/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
+- [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
+- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
 - [7 Essential Items to Carry when You Go Hiking ...](https://travel.allwomenstalk.com/essential-items-to-carry-when-you-go-hiking/)
+- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
+- [road trip planning tips](https://travel.allwomenstalk.com/planning-tips-for-your-next-road-trip/)
 - [7 Travel Tips You Should Know ...](https://travel.allwomenstalk.com/travel-tips-you-should-know/)
 - [10 Ultimate Tips for Girl Travelers in London ...](https://travel.allwomenstalk.com/ultimate-tips-for-girl-travelers-in-london/)
 

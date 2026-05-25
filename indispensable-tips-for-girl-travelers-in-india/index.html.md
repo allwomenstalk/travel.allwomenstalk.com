@@ -42,16 +42,16 @@ I must give credit to the India Times for providing these excellent tips for gir
 
 ## Related Posts
 
-- [a jet setter](https://travel.allwomenstalk.com/ways-to-travel-like-a-jetsetter/)
-- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
-- [lightest luggage](https://travel.allwomenstalk.com/pieces-of-lightweight-luggage-perfect-for-holiday-travel/)
 - [things to do before you go on vacation](https://travel.allwomenstalk.com/fun-things-to-do-before-your-next-vacation/)
-- [rude gestures](https://travel.allwomenstalk.com/rude-gestures-to-avoid-when-traveling-around-the-world/)
 - [what to wear when traveling to the middle east](https://travel.allwomenstalk.com/essential-tips-for-women-traveling-in-the-middle-east/)
-- [vacation friends budget](https://travel.allwomenstalk.com/points-to-discuss-when-you-want-to-vacation-with-friends/)
 - [how to cut travel time](https://travel.allwomenstalk.com/ways-to-cut-time-in-lines-when-you-travel/)
+- [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
+- [a jet setter](https://travel.allwomenstalk.com/ways-to-travel-like-a-jetsetter/)
+- [rude gestures](https://travel.allwomenstalk.com/rude-gestures-to-avoid-when-traveling-around-the-world/)
+- [vacation friends budget](https://travel.allwomenstalk.com/points-to-discuss-when-you-want-to-vacation-with-friends/)
 - [things people forget to pack](https://travel.allwomenstalk.com/most-common-things-we-forget-to-pack/)
 - [local guide program](https://travel.allwomenstalk.com/ways-to-feng-shui-your-vacation/)
+- [lightest luggage](https://travel.allwomenstalk.com/pieces-of-lightweight-luggage-perfect-for-holiday-travel/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 

@@ -80,16 +80,16 @@ Fun fact: James Cameron(the guy behind Alien, Terminator, Titanic, Avatar and mo
 
 ## Related Posts
 
-- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
-- [fun facts about tinder](https://apps.allwomenstalk.com/tinder-facts/)
-- [womens chanel number 5](https://perfumes.allwomenstalk.com/fascinating-facts-about-chanel-no-5-every-woman-should-know/)
-- [chiclephobia pronunciation](https://lifestyle.allwomenstalk.com/craziest-phobias-you-will-not-believe-exist/)
-- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
-- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
-- [caitriona balfe beauty secrets](https://celebs.allwomenstalk.com/facts-about-caitriona-balfe/)
-- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
 - [Did You Know Your Christmas Glitter Kills Fishes ....](https://lifestyle.allwomenstalk.com/did-you-know-your-christmas-glitter-kills-fishes/)
+- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
+- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
+- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
+- [chiclephobia pronunciation](https://lifestyle.allwomenstalk.com/craziest-phobias-you-will-not-believe-exist/)
+- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
+- [caitriona balfe beauty secrets](https://celebs.allwomenstalk.com/facts-about-caitriona-balfe/)
+- [womens chanel number 5](https://perfumes.allwomenstalk.com/fascinating-facts-about-chanel-no-5-every-woman-should-know/)
 - [facts that make you sound smart](https://lifestyle.allwomenstalk.com/these-amazing-facts-will-make-you-smarter/)
+- [fun facts about tinder](https://apps.allwomenstalk.com/tinder-facts/)
 - [5 Cool Paranormal Facts ...](https://twilight.allwomenstalk.com/5-cool-paranormal-facts/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 

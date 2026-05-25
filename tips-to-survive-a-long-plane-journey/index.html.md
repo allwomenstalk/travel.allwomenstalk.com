@@ -48,14 +48,14 @@ Top Photo Credit: [amadeus fotografi](https://web.archive.org/web/https://www.fl
 
 ## Related Posts
 
-- [shopping abroad](https://travel.allwomenstalk.com/7-tips-for-shopping-overseas/)
-- [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
-- [8 Steps to Dressing for a Long Flight ...](https://travel.allwomenstalk.com/steps-to-dressing-for-a-long-flight/)
 - [toma photography](https://travel.allwomenstalk.com/ways-to-take-great-photos-while-traveling/)
-- [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
+- [8 Steps to Dressing for a Long Flight ...](https://travel.allwomenstalk.com/steps-to-dressing-for-a-long-flight/)
 - [things not to forget to pack when traveling](https://travel.allwomenstalk.com/essential-travel-items-you-always-forget-to-pack-but-shouldnt/)
 - [8 Tips to Travel Cheap ...](https://travel.allwomenstalk.com/8-tips-to-travel-cheap/)
+- [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
+- [shopping abroad](https://travel.allwomenstalk.com/7-tips-for-shopping-overseas/)
 - [7 Tips for Traveling Safely ...](https://travel.allwomenstalk.com/tips-for-traveling-safely/)
+- [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
 - [AWS Essential Travel Guide: 10 Things You Should K...](https://travel.allwomenstalk.com/aws-essential-travel-guide-10-things-you-should-know-about-passports-and-visas/)
 - [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
 - [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)

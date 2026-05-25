@@ -56,16 +56,16 @@ Portland is a very busy city, it amazes me how much natural and man-made beauty 
 
 ## Related Posts
 
-- [best destination to visit in kenya](https://travel.allwomenstalk.com/top-places-to-visit-in-kenya/)
 - [barcelona farmers market](https://travel.allwomenstalk.com/top-street-markets-around-the-world/)
-- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
-- [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
 - [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
+- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
+- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
+- [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
 - [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
 - [mary shelley blue plaque](https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/)
-- [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
-- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
 - [european galleries feature mustsee](https://travel.allwomenstalk.com/must-see-art-galleries-in-europe/)
+- [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
+- [best destination to visit in kenya](https://travel.allwomenstalk.com/top-places-to-visit-in-kenya/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 

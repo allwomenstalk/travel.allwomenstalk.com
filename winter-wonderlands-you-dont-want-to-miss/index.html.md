@@ -56,16 +56,16 @@ Ok, so I’ll admit that this was a rather indulgent piece to share my love of s
 
 ## Related Posts
 
-- [things to do before fall](https://lifestyle.allwomenstalk.com/thing-to-do-before-fall-ends/)
+- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
 - [chris mazder](https://celebs.allwomenstalk.com/athletes-you-cannot-miss-during-the-winter-olympics/)
 - [ready for spring](https://inspiration.allwomenstalk.com/things-to-do-to-get-yourself-ready-for-spring/)
-- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
 - [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
-- [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
+- [trees strongest in autumn](https://inspiration.allwomenstalk.com/fall-trees-to-get-you-in-the-mood-for-the-season/)
+- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
+- [things to do before fall](https://lifestyle.allwomenstalk.com/thing-to-do-before-fall-ends/)
 - [weird food hacks](https://food.allwomenstalk.com/winter-food-hacks-that-taste-amazing/)
 - [fall squash varieties](https://food.allwomenstalk.com/different-varieties-of-winter-squash-you-have-to-try-this-fall/)
-- [trees strongest in autumn](https://inspiration.allwomenstalk.com/fall-trees-to-get-you-in-the-mood-for-the-season/)
-- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
+- [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

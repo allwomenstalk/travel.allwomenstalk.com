@@ -116,16 +116,16 @@ Are you dreaming of solo travel adventures? Where’s on your list?
 
 ## Related Posts
 
-- [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
-- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
-- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
 - [things to do on january 1](https://travel.allwomenstalk.com/fabulous-places-to-spend-january-1st/)
-- [cheapest skiing in europe](https://travel.allwomenstalk.com/best-budget-ski-destinations-in-europe/)
 - [new years ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
-- [alternative christmas destinations](https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/)
+- [most christmassy places in the world](https://travel.allwomenstalk.com/the-best-places-in-the-world-to-spend-christmas/)
+- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
 - [eben ice caves photos](https://travel.allwomenstalk.com/pictures-of-paradise-that-will-give-you-travel-envy/)
 - [couples christmas bucket list](https://travel.allwomenstalk.com/travel-bucket-list-for-the-best-ever-christmas/)
-- [most christmassy places in the world](https://travel.allwomenstalk.com/the-best-places-in-the-world-to-spend-christmas/)
+- [alternative christmas destinations](https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/)
+- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
+- [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
+- [cheapest skiing in europe](https://travel.allwomenstalk.com/best-budget-ski-destinations-in-europe/)
 - [7 Top Solo Travel Spots ...](https://travel.allwomenstalk.com/top-solo-travel-spots/)
 - [21 Top Dangerous Places to Go on Vacation ...](https://allwomenstalk.com/top-dangerous-places-to-go-on-vacation/)
 

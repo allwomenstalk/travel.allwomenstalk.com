@@ -74,16 +74,16 @@ Are you going to be away for the holidays this year? Where are you going?
 
 ## Related Posts
 
-- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
-- [alternative christmas destinations](https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/)
-- [nashville lonely planet](https://travel.allwomenstalk.com/which-cities-does-lonely-planet-say-to-visit-in/)
-- [cheapest skiing in europe](https://travel.allwomenstalk.com/best-budget-ski-destinations-in-europe/)
-- [new years ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
 - [things to do on january 1](https://travel.allwomenstalk.com/fabulous-places-to-spend-january-1st/)
+- [alternative christmas destinations](https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/)
 - [eben ice caves photos](https://travel.allwomenstalk.com/pictures-of-paradise-that-will-give-you-travel-envy/)
+- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
 - [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
-- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
+- [new years ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
 - [national geographic trips](https://travel.allwomenstalk.com/national-geographics-recommended-trips-for/)
+- [nashville lonely planet](https://travel.allwomenstalk.com/which-cities-does-lonely-planet-say-to-visit-in/)
+- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
+- [cheapest skiing in europe](https://travel.allwomenstalk.com/best-budget-ski-destinations-in-europe/)
 - [Travel Resources for Planning Your Next Trip ...](https://allwomenstalk.com/travel-resources-for-planning-your-next-trip/)
 - [9 Tips for Traveling during the Holidays ...](https://allwomenstalk.com/9-tips-for-traveling-during-the-holidays/)
 

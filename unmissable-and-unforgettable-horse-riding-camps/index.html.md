@@ -46,16 +46,16 @@ Top Photo Credit: [Turkish Travel](https://www.flickr.com/photos/turkish-travel/
 
 ## Related Posts
 
-- [adventurist air](https://travel.allwomenstalk.com/air-adventure-experiences/)
-- [8 Best Movie Destinations to Visit ...](https://travel.allwomenstalk.com/best-movie-destinations-to-visit/)
-- [7 Top Honeymoon Destinations ...](https://wedding.allwomenstalk.com/7-top-honeymoon-destinations/)
-- [romantic honeymoon destinations](https://wedding.allwomenstalk.com/great-sightseeing-honeymoon-destinations/)
-- [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 - [Romantic Honeymoon in Puerto Vallarta: Guest Blogg...](https://wedding.allwomenstalk.com/romantic-honeymoon-in-puerto-vallarta-guest-blogger-savy-deets-bridal/)
-- [best solo vacation spots](https://travel.allwomenstalk.com/top-solo-travel-spots/)
-- [small towns with beaches](https://travel.allwomenstalk.com/terrific-little-beach-towns-in-america/)
-- [fun places to go to](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [8 Romantic Cabin Locations ...](https://travel.allwomenstalk.com/8-romantic-cabin-locations/)
+- [8 Best Movie Destinations to Visit ...](https://travel.allwomenstalk.com/best-movie-destinations-to-visit/)
+- [best solo vacation spots](https://travel.allwomenstalk.com/top-solo-travel-spots/)
+- [adventurist air](https://travel.allwomenstalk.com/air-adventure-experiences/)
+- [fun places to go to](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
+- [romantic honeymoon destinations](https://wedding.allwomenstalk.com/great-sightseeing-honeymoon-destinations/)
+- [7 Top Honeymoon Destinations ...](https://wedding.allwomenstalk.com/7-top-honeymoon-destinations/)
+- [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
+- [small towns with beaches](https://travel.allwomenstalk.com/terrific-little-beach-towns-in-america/)
 - [7 Adventure Holiday Ideas ...](https://travel.allwomenstalk.com/7-adventure-holiday-ideas/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 

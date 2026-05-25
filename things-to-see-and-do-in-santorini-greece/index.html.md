@@ -58,16 +58,16 @@ I haven’t mentioned it but you must also pay a visit to the town of Oia – po
 
 ## Related Posts
 
-- [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
 - [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
 - [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
+- [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
 - [what to do in nova scotia](https://travel.allwomenstalk.com/here-are-the-best-places-to-visit-in-nova-scotia/)
-- [places to visit near milwaukee](https://travel.allwomenstalk.com/places-to-go-and-things-to-see-in-milwaukee/)
 - [what to see and do in antigua](https://travel.allwomenstalk.com/things-to-see-and-do-in-antigua/)
-- [type of dance in india](https://travel.allwomenstalk.com/traditional-dance-forms-unique-to-india/)
-- [world heritage sites florida](https://travel.allwomenstalk.com/natural-unesco-world-heritage-sites-in-the-usa/)
 - [san antonio tx attractions](https://travel.allwomenstalk.com/attractions-of-san-antonio-texas/)
 - [cat cuddle cafe](https://travel.allwomenstalk.com/unusual-cafes-around-the-world/)
+- [places to visit near milwaukee](https://travel.allwomenstalk.com/places-to-go-and-things-to-see-in-milwaukee/)
+- [world heritage sites florida](https://travel.allwomenstalk.com/natural-unesco-world-heritage-sites-in-the-usa/)
+- [type of dance in india](https://travel.allwomenstalk.com/traditional-dance-forms-unique-to-india/)
 - [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 

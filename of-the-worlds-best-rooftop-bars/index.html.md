@@ -114,16 +114,16 @@ Soho House is the most chic and comfortable way to set your eyes upon all of Bar
 
 ## Related Posts
 
-- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
-- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
-- [bmw tower bangkok](https://travel.allwomenstalk.com/the-best-things-to-see-in-bangkok/)
+- [to do in jerusalem](https://travel.allwomenstalk.com/awesome-things-to-see-and-do-in-jerusalem/)
 - [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
+- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
+- [bmw tower bangkok](https://travel.allwomenstalk.com/the-best-things-to-see-in-bangkok/)
+- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
+- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
+- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
+- [t-express roller coaster korea](https://travel.allwomenstalk.com/of-the-worlds-most-jaw-dropping-roller-coasters-for-a-scream-fest/)
 - [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
 - [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
-- [t-express roller coaster korea](https://travel.allwomenstalk.com/of-the-worlds-most-jaw-dropping-roller-coasters-for-a-scream-fest/)
-- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
-- [to do in jerusalem](https://travel.allwomenstalk.com/awesome-things-to-see-and-do-in-jerusalem/)
-- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [10 of the Smallest but Most Welcoming Bars in the ...](https://travel.allwomenstalk.com/of-the-smallest-but-most-welcoming-bars-in-the-world/)
 

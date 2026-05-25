@@ -42,16 +42,16 @@ The geographical facts of Ireland can’t really convey just how gorgeous this c
 
 ## Related Posts
 
-- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
-- [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
-- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
 - [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
+- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
+- [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
 - [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
+- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

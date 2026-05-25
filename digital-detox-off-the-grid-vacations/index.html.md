@@ -56,16 +56,16 @@ I’d be perfectly at home in any of these places. How do you feel about staying
 
 ## Related Posts
 
-- [a weekend to never forget](https://travel.allwomenstalk.com/weekend-trips-youll-never-forget/)
 - [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
-- [deardorff apple orchard](https://love.allwomenstalk.com/pick-your-own-apple-farms-thatll-make-for-great-dates/)
-- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
-- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
+- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
 - [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
 - [place to escape](https://travel.allwomenstalk.com/places-where-you-really-escape-the-rat-race/)
+- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
+- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
+- [a weekend to never forget](https://travel.allwomenstalk.com/weekend-trips-youll-never-forget/)
+- [deardorff apple orchard](https://love.allwomenstalk.com/pick-your-own-apple-farms-thatll-make-for-great-dates/)
 - [the man of your dreams](https://love.allwomenstalk.com/here-are-the-best-places-to-meet-the-man-of-your-dreams/)
 - [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
-- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 

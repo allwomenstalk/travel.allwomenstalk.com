@@ -56,16 +56,16 @@ What do you think about black sand beaches? Do you find them as beautiful as gol
 
 ## Related Posts
 
-- [when is the summer in the philippines](https://travel.allwomenstalk.com/best-summer-destinations-in-the-philippines/)
-- [camping near warwick castle](https://travel.allwomenstalk.com/gorgeous-places-to-go-glamping/)
 - [world weird places](https://travel.allwomenstalk.com/unusual-places-to-go-surfing-around-the-world/)
-- [infinity pool on roof](https://travel.allwomenstalk.com/infinity-pools-that-youll-want-to-dive-right-into/)
+- [when is the summer in the philippines](https://travel.allwomenstalk.com/best-summer-destinations-in-the-philippines/)
 - [greece best pictures](https://travel.allwomenstalk.com/photos-that-will-make-you-want-to-visit-greece/)
-- [poster vacation](https://travel.allwomenstalk.com/fascinating-travel-posters-that-will-make-you-want-to-book-a-vacation/)
+- [camping near warwick castle](https://travel.allwomenstalk.com/gorgeous-places-to-go-glamping/)
+- [australia must go](https://travel.allwomenstalk.com/reasons-to-visit-the-west-coast-of-australia/)
 - [city breaks new york](https://travel.allwomenstalk.com/delightful-city-breaks-to-plan/)
+- [infinity pool on roof](https://travel.allwomenstalk.com/infinity-pools-that-youll-want-to-dive-right-into/)
 - [great orme lighthouse](https://travel.allwomenstalk.com/lighthouses-you-can-sleep-in/)
 - [2nd honeymoon ideas](https://travel.allwomenstalk.com/destinations-for-your-second-honeymoon/)
-- [australia must go](https://travel.allwomenstalk.com/reasons-to-visit-the-west-coast-of-australia/)
+- [poster vacation](https://travel.allwomenstalk.com/fascinating-travel-posters-that-will-make-you-want-to-book-a-vacation/)
 - [7 Best Beaches in the USA ...](https://travel.allwomenstalk.com/7-best-beaches-in-the-usa/)
 - [9 Best Surf Spots in the World ...](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
 

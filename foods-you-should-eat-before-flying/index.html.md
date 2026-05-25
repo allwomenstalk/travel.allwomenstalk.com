@@ -56,16 +56,16 @@ Knowing which foods to eat before a flight will help your body function normally
 
 ## Related Posts
 
-- [vitamin c snacks](https://food.allwomenstalk.com/vitamin-c-rich-foods-to-consume-more-of-this-winter/)
 - [ethnic dish](https://food.allwomenstalk.com/of-the-healthiest-ethnic-foods-you-should-be-eating-more-of/)
-- [8 sugars](https://health.allwomenstalk.com/sugars-your-body-needs-that-you-should-get-enough-of/)
-- [7 foods you should never eat](https://travel.allwomenstalk.com/foods-you-should-not-eat-before-flying/)
 - [what fills you up](https://food.allwomenstalk.com/lean-foods-that-fill-you-up-not-out/)
-- [entree salads](https://food.allwomenstalk.com/tasty-entree-salads-to-help-you-get-your-veggie-fix/)
+- [vitamin c snacks](https://food.allwomenstalk.com/vitamin-c-rich-foods-to-consume-more-of-this-winter/)
 - [substitutes for yogurt in smoothies](https://food.allwomenstalk.com/healthy-vegan-substitutes-for-smoothies/)
-- [non dairy probiotic foods](https://food.allwomenstalk.com/delicious-dairy-free-sources-of-probiotics-besides-supplements/)
-- [of the following foods iron is best absorbed from](https://food.allwomenstalk.com/dishes-that-are-diet-friendly-and-delicious/)
+- [7 foods you should never eat](https://travel.allwomenstalk.com/foods-you-should-not-eat-before-flying/)
+- [entree salads](https://food.allwomenstalk.com/tasty-entree-salads-to-help-you-get-your-veggie-fix/)
 - [uses for almonds](https://food.allwomenstalk.com/positively-wonderful-and-healthy-things-to-make-with-almonds-in-your-kitchen/)
+- [of the following foods iron is best absorbed from](https://food.allwomenstalk.com/dishes-that-are-diet-friendly-and-delicious/)
+- [8 sugars](https://health.allwomenstalk.com/sugars-your-body-needs-that-you-should-get-enough-of/)
+- [non dairy probiotic foods](https://food.allwomenstalk.com/delicious-dairy-free-sources-of-probiotics-besides-supplements/)
 - [7 Airlines That Serve the Best Food ...](https://travel.allwomenstalk.com/7-airlines-that-serve-the-best-food/)
 - [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
 

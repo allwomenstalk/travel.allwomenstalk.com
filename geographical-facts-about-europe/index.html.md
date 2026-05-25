@@ -48,14 +48,14 @@ I’ve enjoyed my journey through some facts of European geography – hope you 
 
 - [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
 - [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
-- [chinese culture customs](https://travel.allwomenstalk.com/interesting-customs-of-chinese-culture/)
-- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
-- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
-- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
 - [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
 - [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
 - [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
 - [rose titanic real photo](https://movies.allwomenstalk.com/facts-about-the-movie-titanic-you-didnt-know/)
+- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
+- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
+- [chinese culture customs](https://travel.allwomenstalk.com/interesting-customs-of-chinese-culture/)
 - [8 Great Road Trip Destinations ...](https://travel.allwomenstalk.com/8-great-road-trip-destinations/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 

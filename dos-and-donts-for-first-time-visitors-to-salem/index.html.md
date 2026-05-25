@@ -80,15 +80,15 @@ The biggest DO I can suggest is to have fun!
 ## Related Posts
 
 - [flight rows](https://travel.allwomenstalk.com/how-to-get-an-airplane-row-to-yourself/)
-- [hate to travel](https://travel.allwomenstalk.com/what-to-do-when-you-hate-the-destination-youve-traveled-to/)
-- [solo road trip essentials](https://travel.allwomenstalk.com/essentials-for-a-solo-road-trip/)
 - [expat tips](https://lifestyle.allwomenstalk.com/tips-for-becoming-an-expat/)
-- [music festivals essentials](https://music.allwomenstalk.com/the-essentials-to-pack-for-a-music-festival/)
-- [beach trip must haves](https://travel.allwomenstalk.com/essentials-for-a-beach-trip/)
-- [experience paris](https://travel.allwomenstalk.com/ways-to-experience-paris-like-a-local/)
 - [disney vacation ideas](https://travel.allwomenstalk.com/tips-for-planning-a-disney-vacation/)
-- [road trip tips for couples](https://love.allwomenstalk.com/how-to-survive-a-long-road-trip-with-your-partner/)
+- [solo road trip essentials](https://travel.allwomenstalk.com/essentials-for-a-solo-road-trip/)
 - [feeling first class](https://travel.allwomenstalk.com/perfect-tips-on-how-to-make-economy-feel-like-first-class/)
+- [music festivals essentials](https://music.allwomenstalk.com/the-essentials-to-pack-for-a-music-festival/)
+- [hate to travel](https://travel.allwomenstalk.com/what-to-do-when-you-hate-the-destination-youve-traveled-to/)
+- [road trip tips for couples](https://love.allwomenstalk.com/how-to-survive-a-long-road-trip-with-your-partner/)
+- [experience paris](https://travel.allwomenstalk.com/ways-to-experience-paris-like-a-local/)
+- [beach trip must haves](https://travel.allwomenstalk.com/essentials-for-a-beach-trip/)
 - [9 Things for a Mother to Remember on a Trip ...](https://travel.allwomenstalk.com/things-for-a-mother-to-remember-on-a-trip/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 

@@ -46,15 +46,15 @@ Top Photo Credit: [Stephskimo](https://www.flickr.com/photos/stephaniesadler/540
 
 ## Related Posts
 
-- [8 Brilliant Places to Visit in Bali ...](https://travel.allwomenstalk.com/brilliant-places-to-visit-in-bali/)
 - [10 Brilliant New Attractions Opening in 2012 ...](https://travel.allwomenstalk.com/brilliant-new-attractions-opening-in/)
 - [8 Gorgeous Places to Visit in Springs Full Bloom ....](https://travel.allwomenstalk.com/gorgeous-places-to-visit-in-springs-full-bloom/)
-- [7 Magnificent Sights of Madrid ...](https://travel.allwomenstalk.com/magnificent-sights-of-madrid/)
-- [10 Fabulous Festivals Happening in March 2012 ...](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-march/)
-- [8 Places to Explore in Africa ...](https://travel.allwomenstalk.com/places-to-explore-in-africa/)
-- [pitstop letchworth](https://travel.allwomenstalk.com/quirky-towns-and-villages-worth-a-visit/)
 - [8 Must-See Tourist Hotspots ...](https://travel.allwomenstalk.com/must-see-tourist-hotspots/)
+- [7 Magnificent Sights of Madrid ...](https://travel.allwomenstalk.com/magnificent-sights-of-madrid/)
+- [8 Brilliant Places to Visit in Bali ...](https://travel.allwomenstalk.com/brilliant-places-to-visit-in-bali/)
+- [10 Fabulous Festivals Happening in March 2012 ...](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-march/)
+- [pitstop letchworth](https://travel.allwomenstalk.com/quirky-towns-and-villages-worth-a-visit/)
 - [9 Exceptional Things to See and do in Japan ...](https://travel.allwomenstalk.com/exceptional-things-to-see-and-do-in-japan/)
+- [8 Places to Explore in Africa ...](https://travel.allwomenstalk.com/places-to-explore-in-africa/)
 - [7 American Cities for a Great Cycle Trip ...](https://travel.allwomenstalk.com/american-cities-for-a-great-cycle-trip/)
 - [7 Most Delicious World Cuisines ...](https://allwomenstalk.com/7-most-delicious-world-cuisines/)
 - [7 Reasons to Love China ...](https://allwomenstalk.com/7-reasons-to-love-china/)

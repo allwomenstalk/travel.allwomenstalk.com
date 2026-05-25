@@ -50,16 +50,16 @@ Other summer camps for adults I came across include horse riding, improv and com
 
 ## Related Posts
 
-- [infinity pose with friends](https://lifestyle.allwomenstalk.com/of-the-most-fun-places-for-summer-dates-with-friends/)
-- [summer popsicle ideas](https://food.allwomenstalk.com/refreshing-and-delicious-popsicle-recipes-to-cool-you-down-this-summer/)
 - [vacation themes](https://travel.allwomenstalk.com/awesome-summer-road-trip-themes/)
-- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
 - [college party themes](https://lifestyle.allwomenstalk.com/memorable-home-party-themes-to-host-this-summer/)
 - [great summer appetizer recipes](https://food.allwomenstalk.com/summer-appetizer-ideas/)
-- [cool things to do in dc](https://travel.allwomenstalk.com/fun-things-to-do-in-washington-dc-this-summer/)
-- [what do you like](https://food.allwomenstalk.com/amazing-ways-to-enjoy-yogurt/)
-- [why is my boyfriend so warm](https://love.allwomenstalk.com/ways-to-keep-cool-with-your-boyfriend-in-the-summer-heat/)
 - [hen weekend meaning](https://wedding.allwomenstalk.com/amazing-bachelorette-party-ideas-for-summer/)
+- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
+- [cool things to do in dc](https://travel.allwomenstalk.com/fun-things-to-do-in-washington-dc-this-summer/)
+- [summer popsicle ideas](https://food.allwomenstalk.com/refreshing-and-delicious-popsicle-recipes-to-cool-you-down-this-summer/)
+- [what do you like](https://food.allwomenstalk.com/amazing-ways-to-enjoy-yogurt/)
+- [infinity pose with friends](https://lifestyle.allwomenstalk.com/of-the-most-fun-places-for-summer-dates-with-friends/)
+- [why is my boyfriend so warm](https://love.allwomenstalk.com/ways-to-keep-cool-with-your-boyfriend-in-the-summer-heat/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 

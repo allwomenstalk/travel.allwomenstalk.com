@@ -56,16 +56,16 @@ There’s a multitude of awesome adventures for adrenaline junkies all over the 
 
 ## Related Posts
 
-- [can you swim in lake nyos](https://travel.allwomenstalk.com/amazing-lakes-even-mermaids-wouldnt-want-to-swim-in/)
-- [hipster chicks](https://travel.allwomenstalk.com/hipster-hotels-that-are-too-cool-for-school/)
-- [drummond castle ireland](https://travel.allwomenstalk.com/jaw-dropping-castles-to-visit-before-you-die/)
-- [unfogettable](https://travel.allwomenstalk.com/the-most-romantic-places-to-cuddle-up-to-watch-a-summer-sunset/)
-- [fly and swap vacations for couples](https://travel.allwomenstalk.com/amazing-no-fly-holidays-youll-enjoy-if-you-are-an-aviophobe/)
-- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
 - [place to escape](https://travel.allwomenstalk.com/places-where-you-really-escape-the-rat-race/)
-- [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
-- [green mountain detox](https://travel.allwomenstalk.com/digital-detox-off-the-grid-vacations/)
+- [fly and swap vacations for couples](https://travel.allwomenstalk.com/amazing-no-fly-holidays-youll-enjoy-if-you-are-an-aviophobe/)
+- [drummond castle ireland](https://travel.allwomenstalk.com/jaw-dropping-castles-to-visit-before-you-die/)
 - [costa rica treehouse hotels](https://travel.allwomenstalk.com/the-perfect-hideaway-fabulous-treehouse-hotels/)
+- [unfogettable](https://travel.allwomenstalk.com/the-most-romantic-places-to-cuddle-up-to-watch-a-summer-sunset/)
+- [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
+- [hipster chicks](https://travel.allwomenstalk.com/hipster-hotels-that-are-too-cool-for-school/)
+- [can you swim in lake nyos](https://travel.allwomenstalk.com/amazing-lakes-even-mermaids-wouldnt-want-to-swim-in/)
+- [green mountain detox](https://travel.allwomenstalk.com/digital-detox-off-the-grid-vacations/)
+- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 

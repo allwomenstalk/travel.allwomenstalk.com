@@ -52,16 +52,16 @@ Top Photo Credit: [shyb](https://www.flickr.com/photos/shyb/63692776/)
 
 ## Related Posts
 
-- [rent a privet jet](https://travel.allwomenstalk.com/ways-to-travel-in-style/)
 - [how to avoid flight sickness](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
 - [7 Tips for Travelling with Children ...](https://travel.allwomenstalk.com/tips-for-travelling-with-children/)
-- [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
-- [9 Things for a Mother to Remember on a Trip ...](https://travel.allwomenstalk.com/things-for-a-mother-to-remember-on-a-trip/)
-- [armchair traveller meaning](https://travel.allwomenstalk.com/7-advantages-of-armchair-travel/)
 - [How to Deal with a Lost or Stolen Passport ...](https://travel.allwomenstalk.com/how-to-deal-with-a-lost-or-stolen-passport/)
-- [7 Things for Your Travel Wardrobe ...](https://travel.allwomenstalk.com/things-for-your-travel-wardrobe/)
-- [7 Packing Tips when Planning a Warm Vacation ...](https://travel.allwomenstalk.com/7-packing-tips-when-planning-a-warm-vacation/)
+- [rent a privet jet](https://travel.allwomenstalk.com/ways-to-travel-in-style/)
+- [9 Things for a Mother to Remember on a Trip ...](https://travel.allwomenstalk.com/things-for-a-mother-to-remember-on-a-trip/)
 - [8 Tips on Getting Currency for a Trip Abroad ...](https://travel.allwomenstalk.com/tips-on-getting-currency-for-a-trip-abroad/)
+- [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
+- [7 Packing Tips when Planning a Warm Vacation ...](https://travel.allwomenstalk.com/7-packing-tips-when-planning-a-warm-vacation/)
+- [armchair traveller meaning](https://travel.allwomenstalk.com/7-advantages-of-armchair-travel/)
+- [7 Things for Your Travel Wardrobe ...](https://travel.allwomenstalk.com/things-for-your-travel-wardrobe/)
 - [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
 - [7 Ways to Pass the Time on an 11 Hour Flight ...](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
 

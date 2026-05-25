@@ -56,16 +56,16 @@ Top Photo Credit: [lazyandcrazy](https://www.flickr.com/photos/jmrlourenco/42846
 
 ## Related Posts
 
+- [8 Amazingly Spectacular Places to Enjoy a Soak ...](https://travel.allwomenstalk.com/amazingly-spectacular-places-to-enjoy-a-soak/)
 - [7 Best Beaches in the USA ...](https://travel.allwomenstalk.com/7-best-beaches-in-the-usa/)
 - [5 Places to Travel on Your Honeymoon in Italy ...](https://wedding.allwomenstalk.com/5-places-to-travel-on-your-honeymoon-in-italy/)
+- [21 mind blowing trips of a lifetime](https://travel.allwomenstalk.com/river-trips-of-a-lifetime/)
 - [top winter sports](https://travel.allwomenstalk.com/top-destinations-for-winter-sports/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
-- [hawaii honeymoon cruise](https://wedding.allwomenstalk.com/a-honeymoon-cruise-to-hawaii-guest-blogger-bicoastal-bride/)
-- [8 Amazingly Spectacular Places to Enjoy a Soak ...](https://travel.allwomenstalk.com/amazingly-spectacular-places-to-enjoy-a-soak/)
 - [the breathtaking view](https://travel.allwomenstalk.com/breathtaking-views-from-an-airplane/)
-- [21 mind blowing trips of a lifetime](https://travel.allwomenstalk.com/river-trips-of-a-lifetime/)
-- [canada winter holidays](https://travel.allwomenstalk.com/wonderfully-awesome-and-fabulous-destinations-for-the-winter-holidays/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
+- [canada winter holidays](https://travel.allwomenstalk.com/wonderfully-awesome-and-fabulous-destinations-for-the-winter-holidays/)
+- [hawaii honeymoon cruise](https://wedding.allwomenstalk.com/a-honeymoon-cruise-to-hawaii-guest-blogger-bicoastal-bride/)
 - [10 Best Destinations for 2012 ...](https://travel.allwomenstalk.com/best-destinations-for/)
 - [10 Best Cruises for 2012 ...](https://travel.allwomenstalk.com/best-cruises-for/)
 

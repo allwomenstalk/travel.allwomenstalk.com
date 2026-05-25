@@ -42,16 +42,16 @@ Going abroad during college is a great experience! If you have the opportunity t
 
 ## Related Posts
 
-- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
-- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
 - [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
-- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
-- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
-- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
-- [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
-- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
 - [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
+- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
+- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
+- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
+- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
 - [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
+- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
+- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
+- [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 - [10 Things to Learn How to do before Starting Colle...](https://lifestyle.allwomenstalk.com/things-to-learn-how-to-do-before-starting-college/)
 

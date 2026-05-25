@@ -34,16 +34,16 @@ So the next time your flight attendant asks you to do certain things, maybe she 
 
 ## Related Posts
 
-- [reasons hes not texting you](https://love.allwomenstalk.com/why-he-isnt-texting-back/)
 - [reasons why long term relationships end](https://love.allwomenstalk.com/reasons-to-end-a-long-term-relationship/)
-- [looking for.love in all the wrong places](https://love.allwomenstalk.com/why-we-look-for-love-in-the-wrong-places/)
-- [meeting someone organically](https://apps.allwomenstalk.com/why-you-should-delete-your-dating-apps/)
-- [going to a wedding single](https://love.allwomenstalk.com/understandable-reasons-why-single-women-are-not-so-fond-of-weddings/)
 - [ask for money instead of gifts wedding](https://wedding.allwomenstalk.com/why-you-shouldnt-ask-for-cash-as-a-wedding-gift/)
+- [looking for.love in all the wrong places](https://love.allwomenstalk.com/why-we-look-for-love-in-the-wrong-places/)
+- [why am i failing at life](https://inspiration.allwomenstalk.com/reasons-you-are-failing-at-life/)
+- [going to a wedding single](https://love.allwomenstalk.com/understandable-reasons-why-single-women-are-not-so-fond-of-weddings/)
+- [reasons hes not texting you](https://love.allwomenstalk.com/why-he-isnt-texting-back/)
+- [meeting someone organically](https://apps.allwomenstalk.com/why-you-should-delete-your-dating-apps/)
+- [is it normal to not want children](https://parenting.allwomenstalk.com/why-its-ok-to-not-want-children/)
 - [holidays are rough](https://lifestyle.allwomenstalk.com/why-the-holidays-can-be-rough/)
 - [give teens a break](https://teen.allwomenstalk.com/reasons-to-give-teenagers-a-break/)
-- [why am i failing at life](https://inspiration.allwomenstalk.com/reasons-you-are-failing-at-life/)
-- [is it normal to not want children](https://parenting.allwomenstalk.com/why-its-ok-to-not-want-children/)
 - [7 Reasons Why Kids Misbehave ...](https://allwomenstalk.com/7-reasons-why-kids-misbehave/)
 - [7 Reasons to Love Traveling ...](https://allwomenstalk.com/7-reasons-to-love-traveling/)
 

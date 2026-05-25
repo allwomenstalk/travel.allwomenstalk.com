@@ -49,13 +49,13 @@ Top Image Source: _photoshelter.com_
 ## Related Posts
 
 - [7credit](https://travel.allwomenstalk.com/credit-card-security-tips-for-travelers/)
+- [thai customs and traditions](https://travel.allwomenstalk.com/customs-of-thailand-travelers-should-know/)
 - [how to prepare for an overnight flight](https://travel.allwomenstalk.com/simple-tips-for-surviving-overnight-flights/)
-- [couchsurfing paris](https://travel.allwomenstalk.com/hints-on-how-to-use-couchsurfing-to-see-the-world/)
 - [booty](https://travel.allwomenstalk.com/tips-for-happy-traveling-with-the-in-laws/)
 - [how to pick a hotel](https://travel.allwomenstalk.com/top-tips-for-choosing-the-right-hotel/)
-- [giving back with travel](https://travel.allwomenstalk.com/ways-to-give-back-when-you-travel/)
-- [thai customs and traditions](https://travel.allwomenstalk.com/customs-of-thailand-travelers-should-know/)
+- [couchsurfing paris](https://travel.allwomenstalk.com/hints-on-how-to-use-couchsurfing-to-see-the-world/)
 - [paris color riche stylo smoky eternal sunshine](https://travel.allwomenstalk.com/must-have-travel-size-items/)
+- [giving back with travel](https://travel.allwomenstalk.com/ways-to-give-back-when-you-travel/)
 - [is it safe to meet someone at a hotel](https://travel.allwomenstalk.com/tips-for-staying-safe-when-meeting-other-travelers/)
 - [travel freebies](https://travel.allwomenstalk.com/best-travel-freebies/)
 - [8 Ways to Travel Light ...](https://travel.allwomenstalk.com/ways-to-travel-light/)

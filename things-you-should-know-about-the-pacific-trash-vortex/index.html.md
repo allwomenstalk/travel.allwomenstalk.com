@@ -42,16 +42,16 @@ I hope this article has helped you become aware of the impact human consumption 
 
 ## Related Posts
 
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
-- [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
-- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
-- [citrus 7](https://food.allwomenstalk.com/surprising-facts-about-citrus-fruits/)
-- [pitch perfect titanium scene](https://movies.allwomenstalk.com/awesome-little-known-facts-about-pitch-perfect/)
 - [taylor swift snl monologue song](https://celebs.allwomenstalk.com/things-no-one-told-you-about-taylor-swift/)
-- [most consumed vegetable](https://food.allwomenstalk.com/interesting-facts-about-vegetables/)
+- [citrus 7](https://food.allwomenstalk.com/surprising-facts-about-citrus-fruits/)
 - [simon cowell style](https://celebs.allwomenstalk.com/things-to-know-about-simon-cowell/)
-- [watch the fault in our stars movie](https://movies.allwomenstalk.com/fun-facts-from-the-fault-in-our-stars-movie/)
+- [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
+- [pitch perfect titanium scene](https://movies.allwomenstalk.com/awesome-little-known-facts-about-pitch-perfect/)
+- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [most consumed vegetable](https://food.allwomenstalk.com/interesting-facts-about-vegetables/)
 - [weirdest cheese](https://food.allwomenstalk.com/weird-and-wonderful-facts-about-british-cheese/)
+- [watch the fault in our stars movie](https://movies.allwomenstalk.com/fun-facts-from-the-fault-in-our-stars-movie/)
 - [5 Facts on UFOs ...](https://twilight.allwomenstalk.com/5-facts-on-ufos/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

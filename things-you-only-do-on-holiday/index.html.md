@@ -56,16 +56,16 @@ How many of these things you only do on holiday are you guilty of? Food and drin
 
 ## Related Posts
 
-- [7 Travel Blunders You Should Avoid Committing ...](https://travel.allwomenstalk.com/travel-blunders-you-should-avoid-committing/)
-- [7 Safety Tips Every Woman Who Travels Alone Should...](https://travel.allwomenstalk.com/safety-hacks-every-woman-who-travels-alone-should-know/)
+- [funny dietary requirements](https://travel.allwomenstalk.com/ultimate-tips-for-travelers-with-special-dietary-requirements/)
 - [7 Things to Pack for a Weekend Road Trip ...](https://travel.allwomenstalk.com/things-to-pack-for-a-weekend-road-trip/)
-- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
-- [9 Tips for Travelling to Marrakech ...](https://travel.allwomenstalk.com/tips-for-travelling-to-marrakech/)
 - [9 Tips for Traveling with Small Children ...](https://parenting.allwomenstalk.com/tips-for-traveling-with-small-children-2/)
+- [7 Travel Blunders You Should Avoid Committing ...](https://travel.allwomenstalk.com/travel-blunders-you-should-avoid-committing/)
+- [9 Tips for Travelling to Marrakech ...](https://travel.allwomenstalk.com/tips-for-travelling-to-marrakech/)
+- [7 Safety Tips Every Woman Who Travels Alone Should...](https://travel.allwomenstalk.com/safety-hacks-every-woman-who-travels-alone-should-know/)
 - [paris riche stylo bottomless](https://travel.allwomenstalk.com/ways-to-not-be-a-jerk-when-traveling/)
+- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
 - [7 Medicines to Take when Travelling ...](https://travel.allwomenstalk.com/medicines-to-take-when-travelling/)
 - [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
-- [funny dietary requirements](https://travel.allwomenstalk.com/ultimate-tips-for-travelers-with-special-dietary-requirements/)
 - [8 Benefits of Holidaying Alone ...](https://travel.allwomenstalk.com/8-benefits-of-holidaying-alone/)
 - [10 Signs That You Need a Vacation ...](https://travel.allwomenstalk.com/10-signs-that-you-need-a-vacation/)
 

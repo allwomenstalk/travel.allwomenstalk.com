@@ -52,16 +52,16 @@ Are you planning to head off for some fun wine tasting? (Just remember to have a
 
 ## Related Posts
 
-- [Have You Visited These Unique Hotspots](https://travel.allwomenstalk.com/unique-travel-destinations-to-check-out/)
-- [Here Are the 52 Places the New York Times Says You...](https://travel.allwomenstalk.com/here-are-the-places-the-new-york-times-says-you-should-visit-in/)
-- [how to join the tartan army](https://travel.allwomenstalk.com/sights-of-scotland-thatll-make-you-want-to-join-the-tartan-army/)
-- [7 Intriguing Small Towns in the US That You Should...](https://travel.allwomenstalk.com/intriguing-small-towns-in-the-us-that-you-should-visit/)
 - [restaurant in norway epcot](https://travel.allwomenstalk.com/delicious-restaurants-in-epcot-youve-gotta-try/)
-- [7 Cities in the Balkans Worth a Visit ...](https://travel.allwomenstalk.com/cities-in-the-balkans-worth-a-visit/)
-- [the ancient place is still](https://travel.allwomenstalk.com/mysterious-ancient-places-that-still-puzzle-us-today/)
-- [hongkong activities](https://travel.allwomenstalk.com/top-tourist-activities-in-hong-kong/)
-- [Here Are 7 Fabulous Places to Celebrate the UN Yea...](https://travel.allwomenstalk.com/here-are-fabulous-places-to-celebrate-the-un-year-of-light/)
+- [Have You Visited These Unique Hotspots](https://travel.allwomenstalk.com/unique-travel-destinations-to-check-out/)
 - [ancient cities to visit](https://travel.allwomenstalk.com/ancient-cities-that-will-take-you-back-in-time/)
+- [hongkong activities](https://travel.allwomenstalk.com/top-tourist-activities-in-hong-kong/)
+- [how to join the tartan army](https://travel.allwomenstalk.com/sights-of-scotland-thatll-make-you-want-to-join-the-tartan-army/)
+- [the ancient place is still](https://travel.allwomenstalk.com/mysterious-ancient-places-that-still-puzzle-us-today/)
+- [Here Are the 52 Places the New York Times Says You...](https://travel.allwomenstalk.com/here-are-the-places-the-new-york-times-says-you-should-visit-in/)
+- [Here Are 7 Fabulous Places to Celebrate the UN Yea...](https://travel.allwomenstalk.com/here-are-fabulous-places-to-celebrate-the-un-year-of-light/)
+- [7 Cities in the Balkans Worth a Visit ...](https://travel.allwomenstalk.com/cities-in-the-balkans-worth-a-visit/)
+- [7 Intriguing Small Towns in the US That You Should...](https://travel.allwomenstalk.com/intriguing-small-towns-in-the-us-that-you-should-visit/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

@@ -56,16 +56,16 @@ I live on a teeny island, which is why I believe it’s possible to see much mor
 
 ## Related Posts
 
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
 - [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
-- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
 - [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
+- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
 - [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
 - [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
-- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 

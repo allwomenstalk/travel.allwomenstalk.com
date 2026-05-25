@@ -48,16 +48,16 @@ Top Photo Credit: [PGill Family](https://web.archive.org/web/https://www.flickr.
 
 ## Related Posts
 
-- [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
+- [8 Steps to Dressing for a Long Flight ...](https://travel.allwomenstalk.com/steps-to-dressing-for-a-long-flight/)
+- [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
+- [how to avoid flight sickness](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
 - [how to travel comfortably on long flights](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
+- [9 Ways to Get the Cheapest Airfare ...](https://travel.allwomenstalk.com/ways-to-get-the-cheapest-airfare/)
+- [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Tips for Travelling with Children ...](https://travel.allwomenstalk.com/tips-for-travelling-with-children/)
-- [how to avoid flight sickness](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
-- [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
-- [9 Ways to Get the Cheapest Airfare ...](https://travel.allwomenstalk.com/ways-to-get-the-cheapest-airfare/)
-- [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
-- [8 Steps to Dressing for a Long Flight ...](https://travel.allwomenstalk.com/steps-to-dressing-for-a-long-flight/)
 - [stealing towels from hotels](https://travel.allwomenstalk.com/things-people-steal-from-hotels/)
+- [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
 - [7 Places to Travel on a Budget ...](https://travel.allwomenstalk.com/7-places-to-travel-on-a-budget/)
 - [7 Tips to Book a Cheap Flight ...](https://travel.allwomenstalk.com/7-tips-to-book-a-cheap-flight/)
 

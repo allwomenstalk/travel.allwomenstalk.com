@@ -56,16 +56,16 @@ Are you thinking of heading out west for your snow fun this year? If you prefer 
 
 ## Related Posts
 
-- [7 of the Best Ski Destinations in the Alps ...](https://travel.allwomenstalk.com/of-the-best-ski-destinations-in-the-alps/)
-- [7 Top Rated Places to Visit in the Bahamas ...](https://travel.allwomenstalk.com/top-rated-places-to-visit-in-the-bahamas/)
-- [7 off the Radar Destinations to Consider for 2015 ...](https://travel.allwomenstalk.com/off-the-radar-destinations-to-consider-for/)
+- [exotic destination](https://travel.allwomenstalk.com/most-exotic-destinations-for-your-next-vacation/)
 - [7 Brilliant Value Destinations for 2015 ...](https://travel.allwomenstalk.com/brilliant-value-destinations-for/)
+- [most romantic islands](https://travel.allwomenstalk.com/beautiful-islands-where-romance-lives-forever/)
+- [7 of the Best Ski Destinations in the Alps ...](https://travel.allwomenstalk.com/of-the-best-ski-destinations-in-the-alps/)
 - [7 Themed Cruises for 2015 ...](https://travel.allwomenstalk.com/themed-cruises-for/)
 - [bucketlisters winter wonderland](https://travel.allwomenstalk.com/winter-wonderlands-to-put-on-your-bucket-list/)
+- [7 off the Radar Destinations to Consider for 2015 ...](https://travel.allwomenstalk.com/off-the-radar-destinations-to-consider-for/)
 - [7 Events on a Cruise You Shouldnt Miss ...](https://travel.allwomenstalk.com/events-on-a-cruise-you-shouldnt-miss/)
-- [most romantic islands](https://travel.allwomenstalk.com/beautiful-islands-where-romance-lives-forever/)
-- [exotic destination](https://travel.allwomenstalk.com/most-exotic-destinations-for-your-next-vacation/)
 - [best asian cruises](https://travel.allwomenstalk.com/benefits-of-doing-an-asian-cruise/)
+- [7 Top Rated Places to Visit in the Bahamas ...](https://travel.allwomenstalk.com/top-rated-places-to-visit-in-the-bahamas/)
 - [7 Best Beaches in the USA ...](https://travel.allwomenstalk.com/7-best-beaches-in-the-usa/)
 - [7 Top Ski Resorts ...](https://travel.allwomenstalk.com/top-ski-resorts/)
 

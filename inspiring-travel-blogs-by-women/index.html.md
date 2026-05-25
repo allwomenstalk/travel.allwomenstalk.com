@@ -79,14 +79,14 @@ Tell us, ever felt like leaving everything behind to see the world?
 
 - [order food in korean language](https://food.allwomenstalk.com/top-korean-food-blogs/)
 - [food bloggers](https://allwomenstalk.com/incredible-irish-food-blogs/)
-- [james kicinski mccoy](https://fashion.allwomenstalk.com/fashion-bloggers-you-need-to-know/)
-- [fashion blog chic](https://fashion.allwomenstalk.com/chic-hong-kong-style-blogs/)
-- [nz bloggers](https://fashion.allwomenstalk.com/fab-style-blogs-from-new-zealand/)
 - [french fashion bloggers](https://allwomenstalk.com/beautifully-chic-style-blogs-from-france/)
+- [fashion blog chic](https://fashion.allwomenstalk.com/chic-hong-kong-style-blogs/)
 - [fashion blogger indonesia](https://fashion.allwomenstalk.com/incredibly-fab-style-blogs-from-indonesia/)
 - [lady food blogger](https://food.allwomenstalk.com/fantastic-seattle-food-blogs/)
+- [nz bloggers](https://fashion.allwomenstalk.com/fab-style-blogs-from-new-zealand/)
 - [mixed fashion bloggers](https://fashion.allwomenstalk.com/beautiful-style-blogs-from-berlin/)
 - [quilting twin blog](https://allwomenstalk.com/creatively-inspiring-quilting-blogs/)
+- [james kicinski mccoy](https://fashion.allwomenstalk.com/fashion-bloggers-you-need-to-know/)
 - [7 Best Travel Blogs and Websites ...](https://allwomenstalk.com/7-best-travel-blogs-and-websites/)
 - [7 Awesome Travel Photo Blogs ...](https://allwomenstalk.com/awesome-travel-photo-blogs/)
 

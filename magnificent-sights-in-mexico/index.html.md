@@ -56,16 +56,16 @@ Top Image Source: [comptois.com](https://goo.gl/Fy6FYa)
 
 ## Related Posts
 
-- [examples of lakes](https://travel.allwomenstalk.com/of-the-worlds-most-stunning-lakes/)
+- [wheelchair city](https://travel.allwomenstalk.com/wheelchair-friendly-places-in-new-york/)
+- [food festival wales](https://travel.allwomenstalk.com/fabuolous-food-festivals/)
 - [most beautiful places in australia](https://travel.allwomenstalk.com/truly-amazing-places-in-australia/)
-- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
-- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
-- [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
 - [strange bar](https://travel.allwomenstalk.com/really-weird-bars-around-the-world/)
+- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
 - [asian street food lissabon](https://food.allwomenstalk.com/top-street-foods-from-around-the-world/)
 - [things to do at parks](https://travel.allwomenstalk.com/fabulous-things-to-do-in-uk-parks/)
-- [food festival wales](https://travel.allwomenstalk.com/fabuolous-food-festivals/)
-- [wheelchair city](https://travel.allwomenstalk.com/wheelchair-friendly-places-in-new-york/)
+- [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
+- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
+- [examples of lakes](https://travel.allwomenstalk.com/of-the-worlds-most-stunning-lakes/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Sights to See in Germany ...](https://travel.allwomenstalk.com/sights-to-see-in-germany/)
 

@@ -42,16 +42,16 @@ So, how many of these facts about the Great Lakes did you already know?
 
 ## Related Posts
 
+- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
-- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
-- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
 - [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
 - [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
+- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
 - [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
-- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
+- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

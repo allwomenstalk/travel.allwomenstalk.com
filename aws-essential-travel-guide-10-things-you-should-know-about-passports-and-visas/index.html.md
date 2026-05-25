@@ -56,16 +56,16 @@ Top Photo Credit: [pinterest.com](https://www.pinterest.com/pin/1393308006667650
 
 ## Related Posts
 
-- [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
-- [9 Ways to Get the Cheapest Airfare ...](https://travel.allwomenstalk.com/ways-to-get-the-cheapest-airfare/)
-- [how to travel comfortably on long flights](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
-- [how to avoid flight sickness](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
+- [shopping abroad](https://travel.allwomenstalk.com/7-tips-for-shopping-overseas/)
 - [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
 - [8 Tips to Travel Cheap ...](https://travel.allwomenstalk.com/8-tips-to-travel-cheap/)
-- [shopping abroad](https://travel.allwomenstalk.com/7-tips-for-shopping-overseas/)
+- [how to avoid flight sickness](https://travel.allwomenstalk.com/tips-to-avoid-flight-sickness/)
 - [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
 - [stealing towels from hotels](https://travel.allwomenstalk.com/things-people-steal-from-hotels/)
+- [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
 - [8 Steps to Dressing for a Long Flight ...](https://travel.allwomenstalk.com/steps-to-dressing-for-a-long-flight/)
+- [how to travel comfortably on long flights](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
+- [9 Ways to Get the Cheapest Airfare ...](https://travel.allwomenstalk.com/ways-to-get-the-cheapest-airfare/)
 - [8 Things to Never Forget to Carry on a Trip ...](https://allwomenstalk.com/8-things-to-never-forget-to-carry-on-a-trip/)
 - [9 Useful Tips for Those Traveling to Other Countri...](https://allwomenstalk.com/9-useful-tips-for-those-traveling-to-other-countries/)
 

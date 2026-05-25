@@ -44,16 +44,16 @@ Top image source: [kaypachatravels.com](https://goo.gl/IJzL5s)
 
 ## Related Posts
 
-- [AWS Essential Travel Guide: 10 Things You Should K...](https://travel.allwomenstalk.com/aws-essential-travel-guide-10-things-you-should-know-about-passports-and-visas/)
+- [things not to forget to pack when traveling](https://travel.allwomenstalk.com/essential-travel-items-you-always-forget-to-pack-but-shouldnt/)
 - [great hotel deal](https://travel.allwomenstalk.com/tips-gor-getting-a-great-hotel-deal/)
-- [7 Tips for Traveling Safely ...](https://travel.allwomenstalk.com/tips-for-traveling-safely/)
+- [survive the red dress girl](https://travel.allwomenstalk.com/tips-to-survive-a-long-plane-journey/)
 - [shopping abroad](https://travel.allwomenstalk.com/7-tips-for-shopping-overseas/)
+- [toma photography](https://travel.allwomenstalk.com/ways-to-take-great-photos-while-traveling/)
+- [7 Tips for Traveling Safely ...](https://travel.allwomenstalk.com/tips-for-traveling-safely/)
+- [AWS Essential Travel Guide: 10 Things You Should K...](https://travel.allwomenstalk.com/aws-essential-travel-guide-10-things-you-should-know-about-passports-and-visas/)
 - [8 Tips to Travel Cheap ...](https://travel.allwomenstalk.com/8-tips-to-travel-cheap/)
 - [spring break tips](https://travel.allwomenstalk.com/7-ways-to-stay-safe-on-spring-break/)
-- [toma photography](https://travel.allwomenstalk.com/ways-to-take-great-photos-while-traveling/)
-- [things not to forget to pack when traveling](https://travel.allwomenstalk.com/essential-travel-items-you-always-forget-to-pack-but-shouldnt/)
 - [unplugged vacations](https://travel.allwomenstalk.com/vacation-tips-on-how-to-truly-unplug/)
-- [survive the red dress girl](https://travel.allwomenstalk.com/tips-to-survive-a-long-plane-journey/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Essential Items to Carry when You Go Hiking ...](https://travel.allwomenstalk.com/essential-items-to-carry-when-you-go-hiking/)
 

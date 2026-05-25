@@ -44,15 +44,15 @@ Top Image Source: _freshisad.tumblr.com_
 
 ## Related Posts
 
+- [how to pick a hotel](https://travel.allwomenstalk.com/top-tips-for-choosing-the-right-hotel/)
 - [is it safe to meet someone at a hotel](https://travel.allwomenstalk.com/tips-for-staying-safe-when-meeting-other-travelers/)
+- [giving back with travel](https://travel.allwomenstalk.com/ways-to-give-back-when-you-travel/)
 - [travel freebies](https://travel.allwomenstalk.com/best-travel-freebies/)
 - [how to prepare for an overnight flight](https://travel.allwomenstalk.com/simple-tips-for-surviving-overnight-flights/)
-- [giving back with travel](https://travel.allwomenstalk.com/ways-to-give-back-when-you-travel/)
 - [paris color riche stylo smoky eternal sunshine](https://travel.allwomenstalk.com/must-have-travel-size-items/)
-- [how to pick a hotel](https://travel.allwomenstalk.com/top-tips-for-choosing-the-right-hotel/)
 - [couchsurfing paris](https://travel.allwomenstalk.com/hints-on-how-to-use-couchsurfing-to-see-the-world/)
-- [places to go to in london](https://travel.allwomenstalk.com/ultimate-tips-for-girl-travelers-in-london/)
 - [thai customs and traditions](https://travel.allwomenstalk.com/customs-of-thailand-travelers-should-know/)
+- [places to go to in london](https://travel.allwomenstalk.com/ultimate-tips-for-girl-travelers-in-london/)
 - [booty](https://travel.allwomenstalk.com/tips-for-happy-traveling-with-the-in-laws/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Tips for Safe Travel by Train ...](https://travel.allwomenstalk.com/tips-for-safe-travel-by-train/)

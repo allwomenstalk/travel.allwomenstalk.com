@@ -74,16 +74,16 @@ Around every bend in the road, or just outside every town in Australia, there is
 
 ## Related Posts
 
-- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
-- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
-- [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
 - [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
-- [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
-- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
-- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
+- [european travel bucket list](https://travel.allwomenstalk.com/top-places-to-visit-in-europe-that-need-to-be-on-your-travel-bucket-list/)
+- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
 - [beverly hills what to see](https://travel.allwomenstalk.com/the-top-places-to-see-when-you-visit-beverly-hills/)
 - [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
-- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
+- [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
+- [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
+- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
+- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
+- [natural wonders](https://travel.allwomenstalk.com/natural-wonders-of-madagascar-for-eco-tourists/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
 - [10 Reasons to Visit Australia ...](https://travel.allwomenstalk.com/reasons-to-visit-australia/)
 

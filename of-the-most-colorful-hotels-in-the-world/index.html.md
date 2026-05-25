@@ -69,15 +69,15 @@ I’d love to stay at these arty colorful hotels. Would you?
 
 ## Related Posts
 
-- [uniquely designed buildings](https://lifestyle.allwomenstalk.com/here-are-the-worlds-most-unusual-buildings/)
-- [best town to live in the us](https://lifestyle.allwomenstalk.com/is-your-hometown-here-check-out-time-magazines-best-places-to-live/)
-- [the futuro house covington photos](https://travel.allwomenstalk.com/weird-us-attractions-worth-a-side-trip/)
-- [natural wonders in the us](https://travel.allwomenstalk.com/natural-wonders-from-all-50-states/)
-- [does thigh tattoos hurt](https://beauty.allwomenstalk.com/the-least-painful-places-for-a-tattoo/)
 - [jacobs ladder scenic byway photos](https://travel.allwomenstalk.com/states50-scenic-drives/)
+- [the futuro house covington photos](https://travel.allwomenstalk.com/weird-us-attractions-worth-a-side-trip/)
+- [best town to live in the us](https://lifestyle.allwomenstalk.com/is-your-hometown-here-check-out-time-magazines-best-places-to-live/)
 - [banana tunnel nut](https://travel.allwomenstalk.com/you-will-not-believe-these-food-shaped-buildings/)
-- [good town mystery](https://travel.allwomenstalk.com/mysterious-forgotten-cities-from-around-the-world/)
 - [places](https://travel.allwomenstalk.com/most-scenic-places-in-california/)
+- [good town mystery](https://travel.allwomenstalk.com/mysterious-forgotten-cities-from-around-the-world/)
+- [natural wonders in the us](https://travel.allwomenstalk.com/natural-wonders-from-all-50-states/)
+- [uniquely designed buildings](https://lifestyle.allwomenstalk.com/here-are-the-worlds-most-unusual-buildings/)
+- [does thigh tattoos hurt](https://beauty.allwomenstalk.com/the-least-painful-places-for-a-tattoo/)
 - [The Laziest Countries in the World ...](https://lifestyle.allwomenstalk.com/the-laziest-countries-in-the-world/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)

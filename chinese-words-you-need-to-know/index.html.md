@@ -49,16 +49,16 @@ Much of my fascination about China is directed towards it language. It is comple
 
 ## Related Posts
 
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
-- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
+- [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
 - [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
+- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
 - [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
 - [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
-- [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
 - [7 Must-Know Facts ...](https://allwomenstalk.com/7-must-have-facts/)
 - [7 Did You Know Things You Should Know ...](https://allwomenstalk.com/7-did-you-know-things-you-should-know/)
 

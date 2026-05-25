@@ -46,16 +46,16 @@ If you’re anything like me, you can see that keeping fit on vacation doesn’t
 
 ## Related Posts
 
+- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
+- [best movie dates](https://movies.allwomenstalk.com/best-dates-in-the-movies/)
+- [fall bucket list for teens](https://lifestyle.allwomenstalk.com/the-ultimate-fall-bucket-list/)
+- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
+- [never have i ever questions girls night](https://funny.allwomenstalk.com/the-best-never-have-i-ever-game-questions/)
+- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
+- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
+- [which of the following statements is not true abou...](https://books.allwomenstalk.com/heres-where-you-can-go-when-tired-of-the-internet/)
 - [activities to do alone](https://lifestyle.allwomenstalk.com/inspirational-activities-to-do-solo-this-weekend/)
 - [monday.com hacks](https://lifestyle.allwomenstalk.com/hack-your-sunday-for-a-better-week/)
-- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
-- [fall bucket list for teens](https://lifestyle.allwomenstalk.com/the-ultimate-fall-bucket-list/)
-- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
-- [which of the following statements is not true abou...](https://books.allwomenstalk.com/heres-where-you-can-go-when-tired-of-the-internet/)
-- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
-- [never have i ever questions girls night](https://funny.allwomenstalk.com/the-best-never-have-i-ever-game-questions/)
-- [best movie dates](https://movies.allwomenstalk.com/best-dates-in-the-movies/)
-- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
 - [7 Fun Ways a Busy Mom Can Exercise ...](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
 - [7 Jobs Where Youll Get a Lot of Exercise ...](https://allwomenstalk.com/7-jobs-where-youll-get-a-lot-of-exercise/)
 

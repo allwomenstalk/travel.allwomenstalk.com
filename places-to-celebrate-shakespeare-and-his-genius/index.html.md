@@ -52,16 +52,16 @@ This is just a selection of the places to celebrate Shakespeare around the world
 
 ## Related Posts
 
-- [prettiest cities to visit](https://travel.allwomenstalk.com/beautiful-cities-everyone-should-visit-at-least-once-in-their-lifetime/)
-- [christmas cities usa](https://travel.allwomenstalk.com/places-called-christmas-where-santa-doesnt-live/)
 - [best childrens museum in us](https://travel.allwomenstalk.com/of-the-best-childrens-museums-in-the-united-states/)
 - [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
 - [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
-- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
 - [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
-- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
-- [denver breakfast restaurant](https://food.allwomenstalk.com/delicious-breakfast-restaurants-in-denver-that-youve-got-to-try/)
+- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
 - [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
+- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
+- [christmas cities usa](https://travel.allwomenstalk.com/places-called-christmas-where-santa-doesnt-live/)
+- [denver breakfast restaurant](https://food.allwomenstalk.com/delicious-breakfast-restaurants-in-denver-that-youve-got-to-try/)
+- [prettiest cities to visit](https://travel.allwomenstalk.com/beautiful-cities-everyone-should-visit-at-least-once-in-their-lifetime/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Ways to Celebrate a Teens Birthday ...](https://parenting.allwomenstalk.com/7-ways-to-celebrate-a-teens-birthday/)
 

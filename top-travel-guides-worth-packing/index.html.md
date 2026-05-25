@@ -50,16 +50,16 @@ Making your selection of the top travel guides is a fun part of planning your va
 
 ## Related Posts
 
-- [what to check on car before long trip](https://travel.allwomenstalk.com/things-to-check-in-your-car-before-a-road-trip/)
-- [tips for first cruise](https://travel.allwomenstalk.com/tips-to-know-before-you-take-your-first-cruise/)
 - [easy commuting](https://lifestyle.allwomenstalk.com/ways-to-make-commuting-easier/)
 - [how to pass time at an airport](https://travel.allwomenstalk.com/ways-to-pass-time-at-the-airport/)
-- [things to do when moving to a new country](https://travel.allwomenstalk.com/things-to-take-when-moving-to-a-new-country/)
-- [things to pack for a cruise](https://travel.allwomenstalk.com/unusual-items-to-pack-for-a-cruise/)
-- [traveling with a purpose](https://travel.allwomenstalk.com/ways-to-travel-with-a-purpose/)
 - [camper van trip](https://travel.allwomenstalk.com/tips-to-have-an-amazing-camper-van-trip/)
-- [kind of travelers](https://travel.allwomenstalk.com/types-of-travelers-which-kind-are-you/)
+- [traveling with a purpose](https://travel.allwomenstalk.com/ways-to-travel-with-a-purpose/)
+- [tips for first cruise](https://travel.allwomenstalk.com/tips-to-know-before-you-take-your-first-cruise/)
+- [things to pack for a cruise](https://travel.allwomenstalk.com/unusual-items-to-pack-for-a-cruise/)
 - [make money while on vacation](https://travel.allwomenstalk.com/ways-to-make-money-on-vacation/)
+- [kind of travelers](https://travel.allwomenstalk.com/types-of-travelers-which-kind-are-you/)
+- [things to do when moving to a new country](https://travel.allwomenstalk.com/things-to-take-when-moving-to-a-new-country/)
+- [what to check on car before long trip](https://travel.allwomenstalk.com/things-to-check-in-your-car-before-a-road-trip/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 

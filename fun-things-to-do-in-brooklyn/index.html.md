@@ -56,16 +56,16 @@ With so many fun and exciting things to do in Brooklyn, I am glad that Brooklyn 
 
 ## Related Posts
 
-- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
 - [funny things to do on a first date](https://love.allwomenstalk.com/fun-things-to-do-on-a-first-date/)
-- [7 Things to do in Austin Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
-- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
-- [9 Themed Races That Youll Want to Run ...](https://running.allwomenstalk.com/themes-races-that-youll-want-to-run/)
-- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
+- [realistic bucket list](https://funny.allwomenstalk.com/cheeky-goals-to-put-on-your-realistic-bucket-list/)
+- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
 - [9 Fun Activities to Try with Your Child That Dont ...](https://parenting.allwomenstalk.com/fun-activities-to-try-with-your-child-that-doesnt-involve-the-tv/)
 - [9 Things to do This Spring That Will Make You Happ...](https://inspiration.allwomenstalk.com/things-to-do-this-spring-that-will-make-you-happy/)
-- [realistic bucket list](https://funny.allwomenstalk.com/cheeky-goals-to-put-on-your-realistic-bucket-list/)
+- [7 Things to do in Austin Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
 - [children s party themes](https://parenting.allwomenstalk.com/childrens-party-theme-ideas/)
+- [9 Themed Races That Youll Want to Run ...](https://running.allwomenstalk.com/themes-races-that-youll-want-to-run/)
+- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
+- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
 - [7 Unique Things to do at the Beach ...](https://travel.allwomenstalk.com/7-unique-things-to-do-at-the-beach/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 

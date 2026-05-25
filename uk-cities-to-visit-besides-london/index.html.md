@@ -62,16 +62,16 @@ Any Brits reading this will ask how come I’ve included Manchester but not Live
 
 ## Related Posts
 
-- [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
-- [mary shelley blue plaque](https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/)
-- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
-- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
-- [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
+- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
 - [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
-- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
+- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
+- [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
+- [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
+- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
 - [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
 - [barcelona farmers market](https://travel.allwomenstalk.com/top-street-markets-around-the-world/)
-- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
+- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
+- [mary shelley blue plaque](https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 

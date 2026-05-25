@@ -46,16 +46,16 @@ I feel more relaxed just even reading about the top US spas for 2013. How about 
 
 ## Related Posts
 
-- [honeymoon destinations on a budget](https://travel.allwomenstalk.com/brilliant-budget-destinations-for/)
-- [mount pinatubo active or inactive](https://travel.allwomenstalk.com/active-volcanoes-to-visit/)
-- [spring break staycation](https://travel.allwomenstalk.com/spring-break-staycation-ideas/)
-- [secret things to do at disney world](https://lifestyle.allwomenstalk.com/hidden-gems-of-disney-world/)
-- [celebrity honeymoon destinations](https://wedding.allwomenstalk.com/celebrity-honeymoon-destinations/)
-- [exotic caribbean islands](https://travel.allwomenstalk.com/captivating-caribbean-islands-how-to-choose-one-for-a-vacation/)
-- [most popular rides at california adventure](https://travel.allwomenstalk.com/exciting-disney-california-adventure-park-rides/)
-- [dream exotic](https://travel.allwomenstalk.com/exotic-destinations-to-dream-of/)
-- [tulum yoga resorts](https://travel.allwomenstalk.com/amazing-yoga-retreats/)
 - [best eco travel destinations](https://travel.allwomenstalk.com/best-eco-tourism-destinations-for/)
+- [exotic caribbean islands](https://travel.allwomenstalk.com/captivating-caribbean-islands-how-to-choose-one-for-a-vacation/)
+- [honeymoon destinations on a budget](https://travel.allwomenstalk.com/brilliant-budget-destinations-for/)
+- [celebrity honeymoon destinations](https://wedding.allwomenstalk.com/celebrity-honeymoon-destinations/)
+- [tulum yoga resorts](https://travel.allwomenstalk.com/amazing-yoga-retreats/)
+- [most popular rides at california adventure](https://travel.allwomenstalk.com/exciting-disney-california-adventure-park-rides/)
+- [secret things to do at disney world](https://lifestyle.allwomenstalk.com/hidden-gems-of-disney-world/)
+- [mount pinatubo active or inactive](https://travel.allwomenstalk.com/active-volcanoes-to-visit/)
+- [dream exotic](https://travel.allwomenstalk.com/exotic-destinations-to-dream-of/)
+- [spring break staycation](https://travel.allwomenstalk.com/spring-break-staycation-ideas/)
 - [7 Best Beaches in the USA ...](https://travel.allwomenstalk.com/7-best-beaches-in-the-usa/)
 - [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 

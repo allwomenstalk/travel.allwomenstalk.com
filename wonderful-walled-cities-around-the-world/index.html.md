@@ -56,16 +56,16 @@ Are you as fascinated with walled towns and cities as I am? Have you visited any
 
 ## Related Posts
 
-- [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
-- [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
-- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
+- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
 - [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
+- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
+- [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
 - [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
 - [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
 - [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
-- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
 - [date ideas williamsburg brooklyn](https://travel.allwomenstalk.com/swanky-date-spots-in-brooklyn-that-you-wont-regret-visiting/)
-- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
 - [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

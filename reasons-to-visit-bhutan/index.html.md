@@ -56,16 +56,16 @@ I think there are some truly great reasons to visit Bhutan. Do you agree?
 
 ## Related Posts
 
-- [st patricks in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
-- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
-- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
-- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
 - [why do you want to join sports committee](https://teen.allwomenstalk.com/reasons-why-you-should-join-a-sport-in-high-school/)
 - [why do you deserve the best](https://inspiration.allwomenstalk.com/reasons-why-you-deserve-happiness/)
-- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
-- [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
+- [st patricks in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
+- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
+- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
 - [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
 - [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
+- [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
+- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
+- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
 - [8 Reasons to Visit Japan ...](https://travel.allwomenstalk.com/reasons-to-visit-japan/)
 - [10 Reasons to Visit Australia ...](https://travel.allwomenstalk.com/reasons-to-visit-australia/)
 

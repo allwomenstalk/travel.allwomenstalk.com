@@ -32,15 +32,15 @@ In 2020, travelers were facing all sorts of restrictions. The new year is likely
 
 ## Related Posts
 
-- [with your family](https://travel.allwomenstalk.com/how-to-keep-your-family-safe-when-traveling-this-holiday-season/)
-- [plan trip to rome](https://allwomenstalk.com/planning-trip-rome/)
-- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
 - [holiday travel hacks](https://travel.allwomenstalk.com/women-travel-holiday-tips/)
-- [A Guide To Planning A Luxurious Vacation ...](https://allwomenstalk.com/guide-to-planning-luxurious-vacation-2022/)
-- [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
+- [plan trip to rome](https://allwomenstalk.com/planning-trip-rome/)
+- [with your family](https://travel.allwomenstalk.com/how-to-keep-your-family-safe-when-traveling-this-holiday-season/)
+- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
 - [why did janni and jon break up](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon/)
 - [Solo Travel Tips For Your Next Escapade to Capri](https://allwomenstalk.com/capri-solo-travel-tips/)
-- [10 Ridiculously Outrageous Travel Costs to Avoid ....](https://travel.allwomenstalk.com/ridiculously-outrageous-travel-costs-to-avoid/)
+- [8 Tips on Staying Healthy While Travelling. ...](https://travel.allwomenstalk.com/8-tips-on-staying-healthy-while-travelling/)
+- [11 hour flight](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
+- [A Guide To Planning A Luxurious Vacation ...](https://allwomenstalk.com/guide-to-planning-luxurious-vacation-2022/)
 - [tips on relocating to another state](https://allwomenstalk.com/ultimate-guide-state-to-state-movers/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 - [10 Simple Ideas for Stress Free Holidays ...](https://allwomenstalk.com/10-simple-ideas-for-stress-free-holidays/)

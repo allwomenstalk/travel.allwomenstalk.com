@@ -116,16 +116,16 @@ Stunning aren’t they? Imagine what these places were like in their early years
 
 ## Related Posts
 
+- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
 - [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
-- [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
+- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
+- [carlsbad flower market](https://travel.allwomenstalk.com/best-blooming-flower-markets-around-the-world/)
 - [thailand color festival](https://travel.allwomenstalk.com/thai-festivals-full-of-color-and-spectacle/)
 - [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
 - [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
-- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
 - [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
-- [carlsbad flower market](https://travel.allwomenstalk.com/best-blooming-flower-markets-around-the-world/)
+- [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
 - [juices ghost town](https://travel.allwomenstalk.com/colorful-towns-that-will-get-your-wanderlust-juices-flowing/)
-- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 

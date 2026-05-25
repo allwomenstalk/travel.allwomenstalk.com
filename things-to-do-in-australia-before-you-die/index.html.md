@@ -186,16 +186,16 @@ Thanks for sticking it through to the end. Was your pick on the list?
 
 ## Related Posts
 
-- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
-- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
 - [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
-- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
-- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
 - [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
+- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
+- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
+- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
 - [10 Trips to Take before You Die](https://travel.allwomenstalk.com/10-trips-to-take-before-you-die/)
 - [7 Unique Things to do at the Beach ...](https://travel.allwomenstalk.com/7-unique-things-to-do-at-the-beach/)
 

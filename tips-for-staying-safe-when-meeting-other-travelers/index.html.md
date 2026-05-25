@@ -42,16 +42,16 @@ Meeting other travelers can lead to rewarding friendships and experiences, and a
 
 ## Related Posts
 
-- [how to pick a hotel](https://travel.allwomenstalk.com/top-tips-for-choosing-the-right-hotel/)
-- [places to go to in london](https://travel.allwomenstalk.com/ultimate-tips-for-girl-travelers-in-london/)
 - [preparation for camping](https://lifestyle.allwomenstalk.com/essential-tips-you-should-know-to-prepare-for-a-camping-trip/)
-- [tips for hitchhiking](https://travel.allwomenstalk.com/essential-tips-for-hitchhikers/)
-- [travel questions and answers](https://travel.allwomenstalk.com/most-common-travel-questions-and-answers/)
-- [exercises on airplane](https://travel.allwomenstalk.com/in-flight-exercises-for-every-time-you-fly/)
-- [florence souvenirs](https://travel.allwomenstalk.com/unique-souvenirs-to-get-abroad/)
+- [travel freebies](https://travel.allwomenstalk.com/best-travel-freebies/)
+- [places to go to in london](https://travel.allwomenstalk.com/ultimate-tips-for-girl-travelers-in-london/)
 - [ipad for travel](https://travel.allwomenstalk.com/tips-for-traveling-with-an-ipad/)
 - [how to prepare for an overnight flight](https://travel.allwomenstalk.com/simple-tips-for-surviving-overnight-flights/)
-- [travel freebies](https://travel.allwomenstalk.com/best-travel-freebies/)
+- [how to pick a hotel](https://travel.allwomenstalk.com/top-tips-for-choosing-the-right-hotel/)
+- [tips for hitchhiking](https://travel.allwomenstalk.com/essential-tips-for-hitchhikers/)
+- [exercises on airplane](https://travel.allwomenstalk.com/in-flight-exercises-for-every-time-you-fly/)
+- [travel questions and answers](https://travel.allwomenstalk.com/most-common-travel-questions-and-answers/)
+- [florence souvenirs](https://travel.allwomenstalk.com/unique-souvenirs-to-get-abroad/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Tips for Choosing a Travel Buddy ...](https://travel.allwomenstalk.com/tips-for-choosing-a-travel-buddy/)
 

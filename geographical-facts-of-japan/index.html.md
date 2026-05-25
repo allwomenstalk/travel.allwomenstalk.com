@@ -56,16 +56,16 @@ Japan is such a fascinating and glorious country that most travelers are so in a
 
 ## Related Posts
 
-- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
-- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
-- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
 - [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
+- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
+- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
+- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
 - [8 Reasons to Visit Japan ...](https://travel.allwomenstalk.com/reasons-to-visit-japan/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 

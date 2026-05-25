@@ -58,16 +58,16 @@ Top Image Source: [digitaltrends.com](https://www.digitaltrends.com/movies/james
 
 ## Related Posts
 
-- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
-- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
-- [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
-- [mythical places on earth](https://travel.allwomenstalk.com/places-of-myth-and-legend/)
 - [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
+- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
+- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
+- [mythical places on earth](https://travel.allwomenstalk.com/places-of-myth-and-legend/)
+- [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
 - [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
 - [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
-- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
-- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
-- [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
+- [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
+- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

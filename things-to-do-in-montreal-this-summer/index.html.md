@@ -44,16 +44,16 @@ Whether you’re looking for an adventure or to simply sightsee, the city’s Eu
 
 ## Related Posts
 
-- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
-- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
-- [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
+- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
 - [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
+- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
+- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
+- [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [get fit for summer](https://fitness.allwomenstalk.com/ways-to-get-fit-this-summer/)
+- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
 - [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
 - [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
-- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
-- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
-- [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
-- [get fit for summer](https://fitness.allwomenstalk.com/ways-to-get-fit-this-summer/)
 - [7 Cool Things to do in Paris ...](https://travel.allwomenstalk.com/things-to-do-in-paris/)
 - [7 Most Fun Summer Activities ...](https://allwomenstalk.com/7-most-fun-summer-activities/)
 

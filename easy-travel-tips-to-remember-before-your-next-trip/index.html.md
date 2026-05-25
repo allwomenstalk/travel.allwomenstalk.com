@@ -42,16 +42,16 @@ What are your travel tips? Let me know in the comments!
 
 ## Related Posts
 
-- [business trip with my boss](https://money.allwomenstalk.com/tips-when-bringing-your-family-on-a-business-trip/)
-- [hotel room upgrades](https://travel.allwomenstalk.com/ways-to-get-a-hotel-room-upgrade-on-your-travels-this-year/)
-- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
-- [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
-- [our first getaway](https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/)
-- [what are the qualifications for cabin crew](https://travel.allwomenstalk.com/general-requirements-to-be-cabin-crew/)
-- [must haves for honeymoon](https://wedding.allwomenstalk.com/honeymoon-essentials-you-cannot-forget-to-pack/)
 - [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
-- [how to attract tourists](https://travel.allwomenstalk.com/ways-to-be-a-good-tourist/)
+- [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
 - [easy airport](https://travel.allwomenstalk.com/tips-for-a-smooth-and-easy-airport-experience/)
+- [must haves for honeymoon](https://wedding.allwomenstalk.com/honeymoon-essentials-you-cannot-forget-to-pack/)
+- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
+- [what are the qualifications for cabin crew](https://travel.allwomenstalk.com/general-requirements-to-be-cabin-crew/)
+- [hotel room upgrades](https://travel.allwomenstalk.com/ways-to-get-a-hotel-room-upgrade-on-your-travels-this-year/)
+- [our first getaway](https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/)
+- [business trip with my boss](https://money.allwomenstalk.com/tips-when-bringing-your-family-on-a-business-trip/)
+- [how to attract tourists](https://travel.allwomenstalk.com/ways-to-be-a-good-tourist/)
 - [Traveling Abroad Guide - Tips and Tricks](https://allwomenstalk.com/traveling-abroad-guide-tips-tricks/)
 - [Latest Ways to Conquer Travel-Induced Stress for t...](https://travel.allwomenstalk.com/ways-to-avoid-travel-induced-stress/)
 

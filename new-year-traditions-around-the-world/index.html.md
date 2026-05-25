@@ -42,15 +42,15 @@ I’m sure there are plenty more New Year traditions out there. Would love to kn
 
 ## Related Posts
 
-- [new year things](https://lifestyle.allwomenstalk.com/great-things-to-do-in-the-new-year/)
-- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
-- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
-- [fun things to do when you re bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-when-youre-bored/)
-- [carnival birthday shirt ideas](https://parenting.allwomenstalk.com/fun-ways-to-create-a-carnival-themed-birthday-party/)
-- [what to get my best friend for his birthday](https://lifestyle.allwomenstalk.com/ways-to-surprise-your-best-friend-that-will-make-her-day/)
-- [fun things to do at home with boyfriend](https://love.allwomenstalk.com/kid-inspired-activities-to-do-with-your-boyfriend/)
 - [surprise party food ideas](https://lifestyle.allwomenstalk.com/stupendous-ideas-for-a-surprise-party/)
+- [carnival birthday shirt ideas](https://parenting.allwomenstalk.com/fun-ways-to-create-a-carnival-themed-birthday-party/)
+- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
+- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
 - [new year what to do](https://lifestyle.allwomenstalk.com/important-things-to-do-in-the-new-year/)
+- [fun things to do at home with boyfriend](https://love.allwomenstalk.com/kid-inspired-activities-to-do-with-your-boyfriend/)
+- [fun things to do when you re bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-when-youre-bored/)
+- [what to get my best friend for his birthday](https://lifestyle.allwomenstalk.com/ways-to-surprise-your-best-friend-that-will-make-her-day/)
+- [new year things](https://lifestyle.allwomenstalk.com/great-things-to-do-in-the-new-year/)
 - [hobbies to do with your hands](https://diy.allwomenstalk.com/really-fun-hobbies-that-wont-break-the-bank/)
 - [11 Ways to Bring in the New Year ...](https://allwomenstalk.com/7-ways-to-bring-in-the-new-year/)
 - [8 Christmas Traditions from around the World](https://allwomenstalk.com/8-christmas-traditions-from-around-the-world/)

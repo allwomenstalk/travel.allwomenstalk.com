@@ -68,16 +68,16 @@ They sound great don’t they? If you haven’t got the seasonal feels yet, a vi
 
 ## Related Posts
 
-- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
-- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
-- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [The Best Places in the World for Runners to Hit th...](https://running.allwomenstalk.com/the-best-places-in-the-world-to-go-for-a-run/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
-- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
-- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
 - [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
+- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
+- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
+- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
 - [10 Absolutely Fabulous Christmas Markets for Festi...](https://travel.allwomenstalk.com/absolutely-fabulous-christmas-markets-for-festive-cheer-and-revelry/)
 - [The 10 Best American Cities to Visit in Winter ...](https://travel.allwomenstalk.com/the10-best-american-cities-to-visit-in-winter/)
 

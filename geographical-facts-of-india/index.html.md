@@ -42,16 +42,16 @@ It is not often the geographical facts of India that calls to travelers but as y
 
 ## Related Posts
 
-- [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
+- [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
+- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
+- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
 - [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
 - [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
-- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
-- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
-- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [Top 10 Places to Visit in India ...](https://travel.allwomenstalk.com/top-places-to-visit-in-india/)
 

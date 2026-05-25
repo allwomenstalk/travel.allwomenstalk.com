@@ -56,16 +56,16 @@ I love to see pictures of Mount Everest and I imagine a trip to base camp must b
 
 ## Related Posts
 
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
-- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
-- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
-- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
-- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
-- [does coke clean corrosion](https://diy.allwomenstalk.com/shocking-uses-for-coca-cola/)
 - [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
-- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
 - [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
+- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
+- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
+- [does coke clean corrosion](https://diy.allwomenstalk.com/shocking-uses-for-coca-cola/)
+- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
+- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
+- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [8 Interesting Facts That Will Make You Go Wow ...](https://allwomenstalk.com/8-interesting-facts-that-will-make-you-go-wow/)
 

@@ -68,16 +68,16 @@ Don’t get me wrong – I think general hostels are a brilliant option for any 
 
 ## Related Posts
 
-- [budget cruises](https://travel.allwomenstalk.com/budget-cruises-you-can-afford/)
-- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
-- [how many islands are in the united states](https://travel.allwomenstalk.com/uninhabited-us-islands-for-a-true-escape-from-the-rat-race/)
-- [most economical caribbean vacation](https://travel.allwomenstalk.com/affordable-caribbean-destinations-for-dream-tropical-vacations/)
-- [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
-- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
-- [bays in new england](https://travel.allwomenstalk.com/fabulous-beaches-of-new-england/)
-- [fayetteville nc zipline](https://travel.allwomenstalk.com/best-places-for-a-zipline-adventure-in-the-usa/)
 - [what to visit in bermuda](https://travel.allwomenstalk.com/reasons-to-visit-bermuda-for-a-taste-of-island-life/)
+- [how many islands are in the united states](https://travel.allwomenstalk.com/uninhabited-us-islands-for-a-true-escape-from-the-rat-race/)
+- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
+- [fayetteville nc zipline](https://travel.allwomenstalk.com/best-places-for-a-zipline-adventure-in-the-usa/)
+- [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
+- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
+- [bays in new england](https://travel.allwomenstalk.com/fabulous-beaches-of-new-england/)
 - [mcdonald flats campground](https://travel.allwomenstalk.com/campgrounds-in-the-rocky-mountains/)
+- [budget cruises](https://travel.allwomenstalk.com/budget-cruises-you-can-afford/)
+- [most economical caribbean vacation](https://travel.allwomenstalk.com/affordable-caribbean-destinations-for-dream-tropical-vacations/)
 - [8 Great Gifts for a Girl with Wanderlust ...](https://allwomenstalk.com/great-gifts-for-a-girl-with-wanderlust/)
 - [9 Super Fun Trips to Take with Your Girlfriends .....](https://travel.allwomenstalk.com/super-fun-trips-to-take-with-your-girlfriends/)
 

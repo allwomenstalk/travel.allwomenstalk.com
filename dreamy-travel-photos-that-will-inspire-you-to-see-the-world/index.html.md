@@ -416,14 +416,14 @@ She captures all the perfect little details that make her photos so interesting 
 
 - [breathtaking travel](https://travel.allwomenstalk.com/breathtaking-travel-photos-that-will-make-you-want-to-pack-up-your-bags-right-away/)
 - [Travel the World in These 147 Gorgeous Pics ...](https://fashion.allwomenstalk.com/travel-the-world-in-these-gorgeous-pics/)
-- [The Best Places to Travel in the U.S. in 2017 ...](https://travel.allwomenstalk.com/the-best-places-to-travel-in-the-u-s-in/)
 - [32 Places to Go on a Trip this year ...](https://travel.allwomenstalk.com/places-to-go-in/)
-- [100 Sublime Travel Photos That Will Fill You with ...](https://travel.allwomenstalk.com/sublime-travel-photos-that-will-fill-you-with-wanderlust/)
 - [fall break road trips](https://travel.allwomenstalk.com/awesome-places-to-take-a-fall-road-trip/)
 - [vacation goo](https://travel.allwomenstalk.com/things-every-adult-secretly-wants-to-do-on-vacation/)
-- [149 Travel Adventures to Make Us All Wish It Was S...](https://travel.allwomenstalk.com/travel-adventures-to-make-us-all-wish-it-was-still-summer/)
 - [The Best Couples Only Resorts for True Romantics ....](https://travel.allwomenstalk.com/the-best-couples-only-resorts-for-true-romantics/)
+- [The Best Places to Travel in the U.S. in 2017 ...](https://travel.allwomenstalk.com/the-best-places-to-travel-in-the-u-s-in/)
 - [phenomenal place](https://travel.allwomenstalk.com/phenomenal-places-to-travel-to-for-people-who-are-feeling-blue/)
+- [149 Travel Adventures to Make Us All Wish It Was S...](https://travel.allwomenstalk.com/travel-adventures-to-make-us-all-wish-it-was-still-summer/)
+- [100 Sublime Travel Photos That Will Fill You with ...](https://travel.allwomenstalk.com/sublime-travel-photos-that-will-fill-you-with-wanderlust/)
 - [8 Iconic Travel Trips to Help You on Adventures ar...](https://travel.allwomenstalk.com/iconic-travel-trips/)
 - [7 Awesome Travel Photo Blogs ...](https://allwomenstalk.com/awesome-travel-photo-blogs/)
 

@@ -216,16 +216,16 @@ Have you ever been to Salem on Halloween? If you love the holiday, you have to c
 
 ## Related Posts
 
-- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
 - [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
-- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
+- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
+- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
+- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
 - [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
+- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
 - [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
 - [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
-- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
-- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
+- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
 - [8 Photographers That Will Blow You Away ...](https://allwomenstalk.com/8-photographers-that-will-blow-you-away/)
 - [12 Amazingly Creative Wedding Photos ...](https://allwomenstalk.com/12-amazingly-creative-wedding-photos/)
 

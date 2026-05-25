@@ -55,15 +55,15 @@ Which are going on your bucket list?
 ## Related Posts
 
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [PrayForParis: 11 Ways to Show Your Support for Par...](https://lifestyle.allwomenstalk.com/prayforparis/)
+- [21 Famous Landmarks You Should See in Person ...](https://travel.allwomenstalk.com/famous-landmarks-you-should-see-in-person/)
+- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
+- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [The Best Places in the World for Runners to Hit th...](https://running.allwomenstalk.com/the-best-places-in-the-world-to-go-for-a-run/)
 - [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
-- [21 Famous Landmarks You Should See in Person ...](https://travel.allwomenstalk.com/famous-landmarks-you-should-see-in-person/)
-- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
-- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
-- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
-- [PrayForParis: 11 Ways to Show Your Support for Par...](https://lifestyle.allwomenstalk.com/prayforparis/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
 - [9 of the Best US Christmas Markets ...](https://travel.allwomenstalk.com/of-the-best-us-christmas-markets/)
+- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 - [10 Historic Sites Everyone Should Visit ...](https://allwomenstalk.com/10-historic-sites-everyone-should-visit/)
 

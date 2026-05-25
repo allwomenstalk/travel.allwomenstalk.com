@@ -56,16 +56,16 @@ I highly recommend taking the occasional trip with another couple. It's a great 
 
 ## Related Posts
 
-- [why travelling is overrated](https://travel.allwomenstalk.com/worldwide-destinations-that-are-overrated/)
-- [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
-- [largest canadian islands](https://travel.allwomenstalk.com/islands-of-canada-and-why-you-would-visit-them/)
 - [small island near italy](https://travel.allwomenstalk.com/small-islands-of-italy-for-perfect-escapes/)
-- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
-- [americas best kept secret](https://travel.allwomenstalk.com/of-americas-best-kept-travel-secrets/)
+- [why travelling is overrated](https://travel.allwomenstalk.com/worldwide-destinations-that-are-overrated/)
 - [reasons to visit mauritius](https://travel.allwomenstalk.com/marvelous-reasons-to-visit-mauritius/)
 - [places with royalty](https://travel.allwomenstalk.com/places-to-holiday-like-royalty/)
-- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
+- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
+- [americas best kept secret](https://travel.allwomenstalk.com/of-americas-best-kept-travel-secrets/)
 - [is traveling a hobby](https://diy.allwomenstalk.com/hip-hobbies-for-travelers/)
+- [largest canadian islands](https://travel.allwomenstalk.com/islands-of-canada-and-why-you-would-visit-them/)
+- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
+- [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 

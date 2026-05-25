@@ -72,16 +72,16 @@ Home to Prince Henry the Navigator, who led in the European golden age of explor
 
 ## Related Posts
 
+- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
+- [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
 - [Grand Canyon National Park ...](https://allwomenstalk.com/grand-canyon-national-park/)
 - [unique restaurants in the world](https://travel.allwomenstalk.com/most-unique-restaurants-around-the-world-in-remote-places/)
-- [what happens on a food tour](https://food.allwomenstalk.com/what-to-expect-on-a-food-tour/)
-- [pretty pictures of israel](https://travel.allwomenstalk.com/the-most-beautiful-places-for-selfies-in-israel/)
 - [the 37th state](https://allwomenstalk.com/nebraska-the-37th-state/)
-- [We Made Our Annual Passover Pilgrimage to Connecti...](https://allwomenstalk.com/we-made-our-annual-passover-pilgrimage-to-connecti/)
-- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
-- [beverly hills what to see](https://travel.allwomenstalk.com/the-top-places-to-see-when-you-visit-beverly-hills/)
 - [what was the 14th state](https://allwomenstalk.com/vermont-the-14th-state/)
+- [beverly hills what to see](https://travel.allwomenstalk.com/the-top-places-to-see-when-you-visit-beverly-hills/)
+- [We Made Our Annual Passover Pilgrimage to Connecti...](https://allwomenstalk.com/we-made-our-annual-passover-pilgrimage-to-connecti/)
 - [Viva Le Tower: the 118th Anniversary of the Eiffel...](https://allwomenstalk.com/viva-le-tower-the-118th-anniversary-of-the-eiffel-tower/)
+- [electric tram museum amsterdam](https://allwomenstalk.com/amsterdam-travel-hidden-gems/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

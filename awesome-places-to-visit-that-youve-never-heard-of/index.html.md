@@ -194,16 +194,16 @@ So there you have it folks! A list of 30 awesome places that you’ve (most like
 
 ## Related Posts
 
-- [souks in istanbul](https://travel.allwomenstalk.com/souks-where-you-can-test-your-haggling-power/)
-- [best churches in the us](https://travel.allwomenstalk.com/gorgeous-american-churches/)
-- [night sky country](https://travel.allwomenstalk.com/best-countries-for-stargazing/)
-- [best sunset world](https://travel.allwomenstalk.com/of-the-worlds-best-sunsets/)
-- [roadkill festival](https://travel.allwomenstalk.com/crazy-festivals-you-can-go-to-in-the-us/)
-- [fondue restaurants bay area](https://food.allwomenstalk.com/amazing-restaurants-in-the-bay-area/)
 - [attractions in. brazil](https://travel.allwomenstalk.com/brilliant-places-to-visit-in-brazil/)
+- [fondue restaurants bay area](https://food.allwomenstalk.com/amazing-restaurants-in-the-bay-area/)
 - [communes around the world](https://travel.allwomenstalk.com/arty-communes-around-the-world/)
+- [roadkill festival](https://travel.allwomenstalk.com/crazy-festivals-you-can-go-to-in-the-us/)
 - [anglers newport maine](https://food.allwomenstalk.com/maine-seafood-restaurants-youve-got-to-try-in-your-lifetime/)
+- [best churches in the us](https://travel.allwomenstalk.com/gorgeous-american-churches/)
 - [strange landmarks](https://travel.allwomenstalk.com/strange-landmarks-in-the-us/)
+- [best sunset world](https://travel.allwomenstalk.com/of-the-worlds-best-sunsets/)
+- [night sky country](https://travel.allwomenstalk.com/best-countries-for-stargazing/)
+- [souks in istanbul](https://travel.allwomenstalk.com/souks-where-you-can-test-your-haggling-power/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [10 Incredibly Obscure but Amazing Places ...](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
 

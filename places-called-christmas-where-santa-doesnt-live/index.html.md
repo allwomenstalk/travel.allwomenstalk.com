@@ -56,15 +56,15 @@ I wonder what people who live in places called Christmas think of their town’s
 
 ## Related Posts
 
-- [out of the ordinary things to do](https://travel.allwomenstalk.com/out-of-the-ordinary-places-to-visit-in-the-united-states/)
-- [aroostook national wildlife refuge](https://travel.allwomenstalk.com/wonderful-wildlife-refuges-in-the-us/)
-- [oregon attractions](https://travel.allwomenstalk.com/attractions-of-oregon-you-shouldnt-miss/)
-- [example of recycling](https://lifestyle.allwomenstalk.com/brilliant-examples-of-recycling-around-the-world/)
-- [antigua new years](https://travel.allwomenstalk.com/wonderful-new-years-eve-celebrations-around-the-world-i-would-love-to-attend/)
 - [canada vs america differences](https://travel.allwomenstalk.com/differences-between-america-and-canada/)
+- [example of recycling](https://lifestyle.allwomenstalk.com/brilliant-examples-of-recycling-around-the-world/)
 - [wonders in russia](https://travel.allwomenstalk.com/beautiful-natural-wonders-of-russia/)
+- [antigua new years](https://travel.allwomenstalk.com/wonderful-new-years-eve-celebrations-around-the-world-i-would-love-to-attend/)
 - [busiest airport world](https://travel.allwomenstalk.com/top-busiest-airports-in-the-world/)
 - [canada winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-canada/)
+- [oregon attractions](https://travel.allwomenstalk.com/attractions-of-oregon-you-shouldnt-miss/)
+- [aroostook national wildlife refuge](https://travel.allwomenstalk.com/wonderful-wildlife-refuges-in-the-us/)
+- [out of the ordinary things to do](https://travel.allwomenstalk.com/out-of-the-ordinary-places-to-visit-in-the-united-states/)
 - [beijing bucket list](https://travel.allwomenstalk.com/must-sees-in-beijing-for-every-visitor/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [9 Places You Will Never Visit ...](https://travel.allwomenstalk.com/places-you-will-never-visit/)

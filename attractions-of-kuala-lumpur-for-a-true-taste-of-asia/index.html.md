@@ -54,16 +54,16 @@ There are plenty of things to do in Kuala Lumpur whatever your travel predilecti
 
 ## Related Posts
 
+- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
+- [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
+- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
 - [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
 - [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
-- [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
-- [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
-- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
-- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
 - [8 Places to Visit in the Far East ...](https://travel.allwomenstalk.com/places-to-visit-in-the-far-east/)
 - [8 Reasons to Visit Thailand ...](https://travel.allwomenstalk.com/reasons-to-visit-thailand/)
 

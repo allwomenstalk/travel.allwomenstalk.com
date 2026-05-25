@@ -170,16 +170,16 @@ So many things to do, so little time. These ideas are great whether you fly or n
 
 ## Related Posts
 
-- [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
-- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
-- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
-- [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
 - [green mountain detox](https://travel.allwomenstalk.com/digital-detox-off-the-grid-vacations/)
+- [mont megantic dark sky reserve](https://travel.allwomenstalk.com/these-dark-sky-reserves-are-the-best-places-to-go-stargazing/)
+- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
+- [bungee jumping yosemite](https://travel.allwomenstalk.com/scream-for-your-life-at-these-brilliant-bungee-jump-locations-in-the-usa/)
+- [hammock at beach](https://travel.allwomenstalk.com/best-us-island-beaches-to-hang-up-your-hammock/)
 - [place to escape](https://travel.allwomenstalk.com/places-where-you-really-escape-the-rat-race/)
+- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
 - [costa rica treehouse hotels](https://travel.allwomenstalk.com/the-perfect-hideaway-fabulous-treehouse-hotels/)
 - [unfogettable](https://travel.allwomenstalk.com/the-most-romantic-places-to-cuddle-up-to-watch-a-summer-sunset/)
-- [la sagesse beach](https://travel.allwomenstalk.com/beaches-thatll-make-you-want-to-quit-your-job/)
-- [hotel concepts](https://travel.allwomenstalk.com/new-hotel-concepts-that-are-hitting-the-travel-scene/)
+- [town under water](https://travel.allwomenstalk.com/chilling-underwater-ghost-towns-and-buildings/)
 - [10 Great Ideas for a Girls Get Away ...](https://travel.allwomenstalk.com/10-great-ideas-for-a-girls-get-away/)
 - [8 Great Gifts for a Girl with Wanderlust ...](https://allwomenstalk.com/great-gifts-for-a-girl-with-wanderlust/)
 

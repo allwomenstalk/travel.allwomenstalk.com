@@ -128,16 +128,16 @@ Are you scared now? I’m not sure I would have the nerve to stomach any of thes
 
 ## Related Posts
 
-- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
-- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
-- [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
-- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
-- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
-- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
 - [halloween house diy](https://diy.allwomenstalk.com/adorable-and-super-easy-diy-halloween-decorations/)
-- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
-- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
+- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
 - [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
+- [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
+- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
+- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
+- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
+- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
+- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 

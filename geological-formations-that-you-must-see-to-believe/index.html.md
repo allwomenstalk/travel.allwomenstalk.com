@@ -56,16 +56,16 @@ There are amazing geological formations all around us, and we probably never eve
 
 ## Related Posts
 
+- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
+- [room 873 banff springs hotel](https://travel.allwomenstalk.com/haunted-places-in-canada-that-will-give-you-the-heebie-geebies/)
+- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
 - [sustainable village](https://travel.allwomenstalk.com/sustainable-villages-in-the-world/)
 - [staten island places](https://travel.allwomenstalk.com/amazing-places-to-visit-in-staten-island/)
-- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
 - [the world theatre](https://lifestyle.allwomenstalk.com/different-types-of-theater-from-around-the-world/)
-- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
-- [italy capital](https://travel.allwomenstalk.com/hot-cities-in-the-boot-of-italy/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
 - [where to meet potential dates](https://love.allwomenstalk.com/great-places-to-meet-potential-dates/)
 - [what to see in the city](https://travel.allwomenstalk.com/ways-to-see-more-of-your-city/)
-- [room 873 banff springs hotel](https://travel.allwomenstalk.com/haunted-places-in-canada-that-will-give-you-the-heebie-geebies/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
 - [7 Sights to See in Germany ...](https://travel.allwomenstalk.com/sights-to-see-in-germany/)
 - [7 Scariest Natural Phenomena ...](https://lifestyle.allwomenstalk.com/scariest-natural-phenomena/)
 

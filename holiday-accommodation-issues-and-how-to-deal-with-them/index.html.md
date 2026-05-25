@@ -42,16 +42,16 @@ No doubt you worked hard to save money for your vacation and it’s such a disap
 
 ## Related Posts
 
-- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
-- [im 21 and still live with my parents](https://lifestyle.allwomenstalk.com/excellent-reasons-its-okay-to-live-with-your-parents-in-your-20s/)
 - [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
-- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
 - [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
-- [the wrong roommate cast](https://money.allwomenstalk.com/ways-choosing-the-wrong-roommate-can-cost-you/)
-- [best ways to help the homeless](https://lifestyle.allwomenstalk.com/practical-ways-to-help-the-homeless/)
 - [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
+- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
 - [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
+- [im 21 and still live with my parents](https://lifestyle.allwomenstalk.com/excellent-reasons-its-okay-to-live-with-your-parents-in-your-20s/)
+- [the wrong roommate cast](https://money.allwomenstalk.com/ways-choosing-the-wrong-roommate-can-cost-you/)
+- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
 - [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
+- [best ways to help the homeless](https://lifestyle.allwomenstalk.com/practical-ways-to-help-the-homeless/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Adventure Holiday Ideas ...](https://travel.allwomenstalk.com/7-adventure-holiday-ideas/)
 

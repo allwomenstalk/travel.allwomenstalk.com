@@ -44,16 +44,16 @@ Top Photo Credit: [spudart](https://www.flickr.com/photos/spudart/5413657644/)
 
 ## Related Posts
 
-- [5 facts about ghosts](https://twilight.allwomenstalk.com/5-facts-on-ghosts/)
 - [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
+- [theories about ghosts](https://paranormal.allwomenstalk.com/8-interesting-theories-about-ghosts/)
+- [5 facts about ghosts](https://twilight.allwomenstalk.com/5-facts-on-ghosts/)
 - [bad girl photo](https://twilight.allwomenstalk.com/5-facts-on-love-spells/)
 - [7 Facts about the Unborn ...](https://parenting.allwomenstalk.com/facts-about-the-unborn/)
-- [5 facts about owls](https://twilight.allwomenstalk.com/5-facts-on-owls/)
-- [theories about ghosts](https://paranormal.allwomenstalk.com/8-interesting-theories-about-ghosts/)
-- [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 - [midwife facts](https://parenting.allwomenstalk.com/facts-about-midwifery/)
-- [5 Facts on EMF Detectors ...](https://twilight.allwomenstalk.com/5-facts-on-emf-detectors/)
+- [5 facts about owls](https://twilight.allwomenstalk.com/5-facts-on-owls/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
+- [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
+- [5 Facts on EMF Detectors ...](https://twilight.allwomenstalk.com/5-facts-on-emf-detectors/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [7 Facts on Florida ...](https://travel.allwomenstalk.com/7-facts-on-florida/)
 

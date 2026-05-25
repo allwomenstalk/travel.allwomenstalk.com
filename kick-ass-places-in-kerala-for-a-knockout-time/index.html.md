@@ -56,16 +56,16 @@ This little list of kick-ass places in Kerala really is just a mini selection of
 
 ## Related Posts
 
-- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
-- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
 - [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
-- [the world is a book and those who do not travel re...](https://travel.allwomenstalk.com/stimulating-travel-quotes-full-of-meaning/)
 - [scandinavian honeymoon](https://travel.allwomenstalk.com/superlicious-scandinavian-beaches-that-stir-the-soul/)
-- [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
-- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
+- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
 - [veterans san diego zoo](https://lifestyle.allwomenstalk.com/fantastic-ways-to-vacation-in-san-diego/)
-- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
+- [the world is a book and those who do not travel re...](https://travel.allwomenstalk.com/stimulating-travel-quotes-full-of-meaning/)
+- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
 - [date trips](https://love.allwomenstalk.com/wonderful-day-trips-to-take-with-your-date/)
+- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
+- [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
+- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

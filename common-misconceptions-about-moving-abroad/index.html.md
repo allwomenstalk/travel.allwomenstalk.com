@@ -42,15 +42,15 @@ There are so many misconceptions about moving abroad and although you need to th
 
 ## Related Posts
 
-- [tips for having a garage sale](https://money.allwomenstalk.com/safety-tips-to-remember-when-having-a-garage-sale-at-your-home/)
 - [slumlord](https://money.allwomenstalk.com/reasons-why-some-renters-are-happier-than-homeowners/)
-- [how to evict roommate not on lease](https://funny.allwomenstalk.com/ways-to-get-an-annoying-roommate-to-move-out/)
-- [furnishing my apartment](https://diy.allwomenstalk.com/ways-to-furnish-a-small-apartment/)
-- [bad living habits](https://lifestyle.allwomenstalk.com/bad-habits-to-avoid-when-you-live-alone/)
-- [advantages of a roommate](https://money.allwomenstalk.com/of-the-best-financial-benefits-of-having-a-roommate/)
-- [how to deal with moving](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-move/)
-- [opposite gender roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-moving-in-with-a-male-roommate/)
 - [how to build a panic room for a home invasion](https://lifestyle.allwomenstalk.com/ways-to-handle-a-home-invasion/)
+- [opposite gender roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-moving-in-with-a-male-roommate/)
+- [tips for having a garage sale](https://money.allwomenstalk.com/safety-tips-to-remember-when-having-a-garage-sale-at-your-home/)
+- [how to deal with moving](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-move/)
+- [bad living habits](https://lifestyle.allwomenstalk.com/bad-habits-to-avoid-when-you-live-alone/)
+- [furnishing my apartment](https://diy.allwomenstalk.com/ways-to-furnish-a-small-apartment/)
+- [how to evict roommate not on lease](https://funny.allwomenstalk.com/ways-to-get-an-annoying-roommate-to-move-out/)
+- [advantages of a roommate](https://money.allwomenstalk.com/of-the-best-financial-benefits-of-having-a-roommate/)
 - [trailer that looks like a house](https://diy.allwomenstalk.com/ways-to-create-more-space-in-a-single-wide-trailer/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)

@@ -68,16 +68,16 @@ Fresh or salty, cold or warm, water is such an amazing element. It cleanses and 
 
 ## Related Posts
 
-- [spa at the peninsula nyc](https://travel.allwomenstalk.com/best-spas-in-nyc-to-treat-yourself/)
-- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
+- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
+- [aqualoop boat](https://travel.allwomenstalk.com/wild-water-rides-around-the-world/)
+- [greek white island](https://travel.allwomenstalk.com/greek-islands-in-a-nutshell/)
 - [top 10 luxury trains in the world](https://travel.allwomenstalk.com/luxurious-train-trips/)
 - [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
+- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
 - [jamaica demographics race](https://travel.allwomenstalk.com/juicy-reasons-to-visit-jamaica/)
-- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
 - [weird honeymoon destinations](https://wedding.allwomenstalk.com/offbeat-honeymoon-destinations/)
+- [spa at the peninsula nyc](https://travel.allwomenstalk.com/best-spas-in-nyc-to-treat-yourself/)
 - [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
-- [greek white island](https://travel.allwomenstalk.com/greek-islands-in-a-nutshell/)
-- [aqualoop boat](https://travel.allwomenstalk.com/wild-water-rides-around-the-world/)
 - [9 Best Surf Spots in the World ...](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
 - [9 Best Diving Sites ...](https://travel.allwomenstalk.com/best-diving-sites/)
 

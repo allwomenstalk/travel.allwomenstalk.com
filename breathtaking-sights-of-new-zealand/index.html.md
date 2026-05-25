@@ -353,13 +353,13 @@ Well we've come to the end of my selection of the sights of New Zealand. I'll ne
 
 ## Related Posts
 
-- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
-- [pic of volcanoes](https://travel.allwomenstalk.com/pictures-showing-the-awesome-force-of-volcanoes/)
-- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
-- [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
 - [sights of toronto](https://travel.allwomenstalk.com/umissable-sights-of-toronto/)
 - [britain castles](https://travel.allwomenstalk.com/british-castles-full-of-history/)
+- [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
 - [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
+- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
+- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
+- [pic of volcanoes](https://travel.allwomenstalk.com/pictures-showing-the-awesome-force-of-volcanoes/)
 - [london to visit places](https://travel.allwomenstalk.com/places-to-visit-in-britain-other-than-london/)
 - [as roma wallpaper 4k iphone](https://travel.allwomenstalk.com/magnificent-and-memorable-sights-of-rome/)
 - [francis lee smith house](https://lifestyle.allwomenstalk.com/still-beautiful-abandoned-buildings-around-the-world/)

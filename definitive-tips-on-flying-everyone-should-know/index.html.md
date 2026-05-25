@@ -42,15 +42,15 @@ Following these tips on flying will help you appear to be a travel pro, even if 
 
 ## Related Posts
 
-- [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
-- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
-- [take off one accessory before leaving the house](https://lifestyle.allwomenstalk.com/important-things-to-do-before-you-leave-the-house/)
-- [leaving the house](https://lifestyle.allwomenstalk.com/things-to-check-before-leaving-the-house/)
-- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
-- [momentous sleep pack](https://teen.allwomenstalk.com/quick-tips-to-follow-for-your-senior-trip/)
-- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
 - [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
+- [take off one accessory before leaving the house](https://lifestyle.allwomenstalk.com/important-things-to-do-before-you-leave-the-house/)
 - [books for interrailing](https://travel.allwomenstalk.com/things-you-should-know-about-interrailing/)
+- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
+- [momentous sleep pack](https://teen.allwomenstalk.com/quick-tips-to-follow-for-your-senior-trip/)
+- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
+- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
+- [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
+- [leaving the house](https://lifestyle.allwomenstalk.com/things-to-check-before-leaving-the-house/)
 - [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
 - [7 Tips to Book a Cheap Flight ...](https://travel.allwomenstalk.com/7-tips-to-book-a-cheap-flight/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)

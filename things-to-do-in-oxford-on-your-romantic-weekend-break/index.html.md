@@ -56,16 +56,16 @@ Oxford is such a romantic city and it's filled with so many things to see and do
 
 ## Related Posts
 
-- [idea of perfect date](https://love.allwomenstalk.com/classy-date-ideas-that-you-wont-forget-easily/)
-- [a quote to make someone smile](https://inspiration.allwomenstalk.com/best-love-quotes-that-know-exactly-how-you-feel/)
-- [fancy poses](https://love.allwomenstalk.com/cute-couple-poses-to-try-when-taking-photos-with-your-boyfriend/)
-- [how to prove love](https://love.allwomenstalk.com/romantic-couples-to-prove-love-does-exist/)
 - [how to get a man to propose](https://love.allwomenstalk.com/fun-and-romantic-ways-to-propose-to-him/)
-- [dance in the living room](https://love.allwomenstalk.com/romantic-dance-moves-to-perform-with-him-in-your-own-living-room/)
-- [cute ways to write letters](https://love.allwomenstalk.com/adorable-reasons-to-write-love-letters/)
 - [classic date](https://love.allwomenstalk.com/classic-dates-to-bring-back-today/)
+- [idea of perfect date](https://love.allwomenstalk.com/classy-date-ideas-that-you-wont-forget-easily/)
+- [how to prove love](https://love.allwomenstalk.com/romantic-couples-to-prove-love-does-exist/)
 - [ways to snuggle](https://love.allwomenstalk.com/best-snuggle-positions-that-you-and-your-partner-will-love/)
 - [date ideas for long distance](https://love.allwomenstalk.com/technology-based-date-ideas-for-long-distance-couples/)
+- [fancy poses](https://love.allwomenstalk.com/cute-couple-poses-to-try-when-taking-photos-with-your-boyfriend/)
+- [a quote to make someone smile](https://inspiration.allwomenstalk.com/best-love-quotes-that-know-exactly-how-you-feel/)
+- [dance in the living room](https://love.allwomenstalk.com/romantic-dance-moves-to-perform-with-him-in-your-own-living-room/)
+- [cute ways to write letters](https://love.allwomenstalk.com/adorable-reasons-to-write-love-letters/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Ways to Create a Romantic Evening ...](https://love.allwomenstalk.com/ways-to-create-a-romantic-evening/)
 

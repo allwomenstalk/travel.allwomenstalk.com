@@ -59,16 +59,16 @@ Cannon Beach has one of the most beautiful shorelines on the West Coast. It offe
 
 ## Related Posts
 
-- [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
-- [franklins fountain philadelphia](https://travel.allwomenstalk.com/reasons-to-visit-franklin-fountain-in-philadelphia/)
+- [may places to visit usa](https://travel.allwomenstalk.com/places-in-the-usa-you-must-see-in-your-20s/)
+- [best haunted attractions in usa](https://travel.allwomenstalk.com/best-haunted-attractions-in-the-usa-for/)
 - [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
+- [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
 - [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
 - [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
-- [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
-- [may places to visit usa](https://travel.allwomenstalk.com/places-in-the-usa-you-must-see-in-your-20s/)
+- [franklins fountain philadelphia](https://travel.allwomenstalk.com/reasons-to-visit-franklin-fountain-in-philadelphia/)
 - [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
-- [best haunted attractions in usa](https://travel.allwomenstalk.com/best-haunted-attractions-in-the-usa-for/)
 - [best places to shop online black friday](https://money.allwomenstalk.com/best-places-for-black-friday-bargains/)
+- [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [10 Really Cool Small Towns in America ...](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 

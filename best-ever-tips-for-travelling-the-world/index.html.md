@@ -242,16 +242,16 @@ At the end of the day, do things that make you happy, don’t be pressured in to
 
 ## Related Posts
 
-- [daredevil vacation](https://travel.allwomenstalk.com/how-to-release-your-inner-daredevil-on-your-travels/)
-- [post travel blues](https://travel.allwomenstalk.com/how-to-overcome-the-post-trip-blues-for-girls-who-love-to-travel/)
-- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
-- [travel checklist for women](https://travel.allwomenstalk.com/the-ultimate-travel-checklist-for-women-under/)
-- [our first vacation together](https://love.allwomenstalk.com/things-that-will-absolutely-happen-on-your-first-vacation-as-a-couple/)
-- [why people should travel](https://travel.allwomenstalk.com/this-is-why-you-should-travel-as-much-as-you-can/)
-- [traveling millionaire](https://travel.allwomenstalk.com/how-to-travel-like-a-millionaire-on-a-budget/)
-- [is uber dangerous](https://travel.allwomenstalk.com/how-to-stay-safe-for-those-who-are-riding-with-uber/)
 - [what is class y on a flight](https://travel.allwomenstalk.com/classy-tips-for-surviving-a-long-haul-flight-like-a-lady/)
+- [post travel blues](https://travel.allwomenstalk.com/how-to-overcome-the-post-trip-blues-for-girls-who-love-to-travel/)
+- [daredevil vacation](https://travel.allwomenstalk.com/how-to-release-your-inner-daredevil-on-your-travels/)
+- [our first vacation together](https://love.allwomenstalk.com/things-that-will-absolutely-happen-on-your-first-vacation-as-a-couple/)
+- [travel checklist for women](https://travel.allwomenstalk.com/the-ultimate-travel-checklist-for-women-under/)
+- [is uber dangerous](https://travel.allwomenstalk.com/how-to-stay-safe-for-those-who-are-riding-with-uber/)
+- [photography tips for solo traveler](https://travel.allwomenstalk.com/tips-for-taking-the-best-wanderlust-photosfor-girls-traveling-solo/)
 - [stress free tours](https://travel.allwomenstalk.com/how-to-have-a-stress-free-last-minute-trip/)
+- [traveling millionaire](https://travel.allwomenstalk.com/how-to-travel-like-a-millionaire-on-a-budget/)
+- [why people should travel](https://travel.allwomenstalk.com/this-is-why-you-should-travel-as-much-as-you-can/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 

@@ -42,16 +42,16 @@ New York City is an amazing place filled with unique experiences that you can't 
 
 ## Related Posts
 
-- [house repairing work](https://money.allwomenstalk.com/types-of-house-repair-jobs-you-should-always-pay-someone-to-do/)
-- [how to compromise on where to live](https://love.allwomenstalk.com/compromises-you-may-have-to-make-when-you-live-together/)
-- [is it dangerous to live alone as a woman](https://lifestyle.allwomenstalk.com/safety-tips-for-women-living-alone/)
-- [moving to be with your long-distance partner](https://love.allwomenstalk.com/fab-tips-to-follow-when-moving-in-with-your-long-distance-boyfriend/)
 - [moving to do list](https://lifestyle.allwomenstalk.com/essential-tips-for-your-moving-to-do-list/)
-- [what should you not do as a house guest](https://lifestyle.allwomenstalk.com/ways-to-be-the-perfect-house-guest/)
 - [how to help seniors stay independent](https://lifestyle.allwomenstalk.com/ways-to-help-seniors-retain-their-independence/)
-- [how to get along with your roommate](https://lifestyle.allwomenstalk.com/ways-to-get-along-with-your-roommate/)
-- [a smooth move](https://lifestyle.allwomenstalk.com/excellent-tips-for-a-smooth-move/)
+- [house repairing work](https://money.allwomenstalk.com/types-of-house-repair-jobs-you-should-always-pay-someone-to-do/)
 - [moving in with bf](https://love.allwomenstalk.com/handy-hints-for-moving-in-with-your-boyfriend/)
+- [a smooth move](https://lifestyle.allwomenstalk.com/excellent-tips-for-a-smooth-move/)
+- [what should you not do as a house guest](https://lifestyle.allwomenstalk.com/ways-to-be-the-perfect-house-guest/)
+- [moving to be with your long-distance partner](https://love.allwomenstalk.com/fab-tips-to-follow-when-moving-in-with-your-long-distance-boyfriend/)
+- [how to get along with your roommate](https://lifestyle.allwomenstalk.com/ways-to-get-along-with-your-roommate/)
+- [is it dangerous to live alone as a woman](https://lifestyle.allwomenstalk.com/safety-tips-for-women-living-alone/)
+- [how to compromise on where to live](https://love.allwomenstalk.com/compromises-you-may-have-to-make-when-you-live-together/)
 - [7 Travel Tips You Should Know ...](https://travel.allwomenstalk.com/travel-tips-you-should-know/)
 - [7 Tips for Moving with Kids ...](https://parenting.allwomenstalk.com/tips-for-moving-with-kids/)
 

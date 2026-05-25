@@ -49,15 +49,15 @@ Top Photo Credit: [Wolfgang Bartelme](https://www.flickr.com/photos/bartelme/435
 ## Related Posts
 
 - [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
-- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
-- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
-- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
-- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
-- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
-- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
+- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
+- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
+- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
+- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
 - [8 Great Summer Date Ideas ...](https://allwomenstalk.com/8-great-summer-date-ideas/)
 

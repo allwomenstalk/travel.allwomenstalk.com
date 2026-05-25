@@ -42,16 +42,16 @@ Traveling to one of the many Girl Scout Lodges around the world can be a great w
 
 ## Related Posts
 
-- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
-- [why do you want to join sports committee](https://teen.allwomenstalk.com/reasons-why-you-should-join-a-sport-in-high-school/)
-- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
-- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
-- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
-- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
-- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
-- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
-- [why do you deserve the best](https://inspiration.allwomenstalk.com/reasons-why-you-deserve-happiness/)
 - [bhutan customs](https://travel.allwomenstalk.com/reasons-to-visit-bhutan/)
+- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
+- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
+- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
+- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
+- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
+- [why do you deserve the best](https://inspiration.allwomenstalk.com/reasons-why-you-deserve-happiness/)
+- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
+- [why do you want to join sports committee](https://teen.allwomenstalk.com/reasons-why-you-should-join-a-sport-in-high-school/)
+- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
 - [8 Reasons to Visit Japan ...](https://travel.allwomenstalk.com/reasons-to-visit-japan/)
 - [8 Reasons to Love Going on Vacations ...](https://allwomenstalk.com/8-reasons-to-love-going-on-vacations/)
 

@@ -51,15 +51,15 @@ Whether you want the comfort of tradition or the thrill of the modern, the thing
 ## Related Posts
 
 - [frugal date ideas](https://love.allwomenstalk.com/super-fun-and-frugal-date-ideas/)
-- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
-- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
-- [hobbies to find friends](https://lifestyle.allwomenstalk.com/hobbies-for-making-new-friends/)
-- [fun things orlando florida](https://travel.allwomenstalk.com/amazing-and-fun-things-to-do-in-orlando/)
 - [fun classes for couples](https://love.allwomenstalk.com/fun-classes-couples-should-take-together/)
-- [what to do in paris around christmas](https://travel.allwomenstalk.com/essential-things-to-do-in-paris-at-christmas/)
-- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
+- [fun things orlando florida](https://travel.allwomenstalk.com/amazing-and-fun-things-to-do-in-orlando/)
 - [christmas activities for boys](https://parenting.allwomenstalk.com/fun-christmas-activities-to-do-with-kids/)
 - [what are some fun things to do in london during ch...](https://travel.allwomenstalk.com/essential-things-to-do-in-london-at-christmas/)
+- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
+- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
+- [what to do in paris around christmas](https://travel.allwomenstalk.com/essential-things-to-do-in-paris-at-christmas/)
+- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
+- [hobbies to find friends](https://lifestyle.allwomenstalk.com/hobbies-for-making-new-friends/)
 - [9 Non-traditional and Fun Ways to Celebrate Christ...](https://lifestyle.allwomenstalk.com/non-traditional-and-fun-ways-to-celebrate-christmas-this-year/)
 - [8 Things to Love about the Holiday Season ...](https://allwomenstalk.com/8-things-to-love-about-the-holiday-season/)
 

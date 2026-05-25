@@ -68,15 +68,15 @@ I love Marseille and hope I’ve piqued your interest in her. Is it somewhere th
 
 ## Related Posts
 
-- [fashion city in the world](https://fashion.allwomenstalk.com/most-fashionable-cities-in-the-world/)
-- [little italy providence](https://travel.allwomenstalk.com/places-to-visit-little-italy-in-the-usa/)
 - [pinspiration grand junction](https://travel.allwomenstalk.com/unforgettable-sights-of-croatia/)
+- [fashion city in the world](https://fashion.allwomenstalk.com/most-fashionable-cities-in-the-world/)
+- [best art galleries in the world](https://travel.allwomenstalk.com/must-see-art-galleries-around-the-world/)
 - [why do people visit new mexico](https://travel.allwomenstalk.com/fabulous-places-to-visit-in-new-mexico/)
+- [little italy providence](https://travel.allwomenstalk.com/places-to-visit-little-italy-in-the-usa/)
+- [taurid meteor shower](https://travel.allwomenstalk.com/stargazing-events-happening-in/)
 - [weirdest thing in the world](https://travel.allwomenstalk.com/weirdest-things-exhibited-in-museums/)
 - [unexplored land](https://travel.allwomenstalk.com/least-explored-places-on-earth/)
-- [taurid meteor shower](https://travel.allwomenstalk.com/stargazing-events-happening-in/)
 - [place to visit in key west](https://travel.allwomenstalk.com/places-to-visit-in-key-west/)
-- [best art galleries in the world](https://travel.allwomenstalk.com/must-see-art-galleries-around-the-world/)
 - [norway images](https://travel.allwomenstalk.com/pictures-that-prove-norway-really-is-nirvana/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)

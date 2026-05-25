@@ -56,15 +56,15 @@ The food map of Britain is actually more exciting than you might imagine. Even t
 
 ## Related Posts
 
-- [bridges new york](https://travel.allwomenstalk.com/of-many-new-york-bridges-to-cross/)
+- [souks in istanbul](https://travel.allwomenstalk.com/souks-where-you-can-test-your-haggling-power/)
 - [night sky country](https://travel.allwomenstalk.com/best-countries-for-stargazing/)
 - [best sunset world](https://travel.allwomenstalk.com/of-the-worlds-best-sunsets/)
-- [anglers newport maine](https://food.allwomenstalk.com/maine-seafood-restaurants-youve-got-to-try-in-your-lifetime/)
 - [roadkill festival](https://travel.allwomenstalk.com/crazy-festivals-you-can-go-to-in-the-us/)
 - [best churches in the us](https://travel.allwomenstalk.com/gorgeous-american-churches/)
-- [most amazing places in the world to visit](https://travel.allwomenstalk.com/awesome-places-to-visit-that-youve-never-heard-of/)
 - [fondue restaurants bay area](https://food.allwomenstalk.com/amazing-restaurants-in-the-bay-area/)
-- [souks in istanbul](https://travel.allwomenstalk.com/souks-where-you-can-test-your-haggling-power/)
+- [most amazing places in the world to visit](https://travel.allwomenstalk.com/awesome-places-to-visit-that-youve-never-heard-of/)
+- [anglers newport maine](https://food.allwomenstalk.com/maine-seafood-restaurants-youve-got-to-try-in-your-lifetime/)
+- [bridges new york](https://travel.allwomenstalk.com/of-many-new-york-bridges-to-cross/)
 - [communes around the world](https://travel.allwomenstalk.com/arty-communes-around-the-world/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)

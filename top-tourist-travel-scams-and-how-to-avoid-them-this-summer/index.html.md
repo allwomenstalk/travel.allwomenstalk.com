@@ -42,16 +42,16 @@ I hope I haven't scared you but still travel scams happen each year! Be alert wh
 
 ## Related Posts
 
-- [All the Advice You Ever Need for a Visit to London...](https://travel.allwomenstalk.com/pieces-of-advice-for-anyone-visiting-london/)
-- [7 Ways to Avoid Supporting Animal Cruelty on Vacat...](https://travel.allwomenstalk.com/ways-to-avoid-supporting-animal-cruelty-on-vacation/)
 - [7 Attractions at Airports You Wouldnt Mind Being D...](https://travel.allwomenstalk.com/attractions-at-airports-you-wouldnt-mind-being-delayed-for/)
+- [7 Phobias That Might Inhibit Your Travels ...](https://mindfulness.allwomenstalk.com/phobias-that-might-inhibit-your-travels/)
+- [7 Ways to Avoid Supporting Animal Cruelty on Vacat...](https://travel.allwomenstalk.com/ways-to-avoid-supporting-animal-cruelty-on-vacation/)
+- [7 Things You Only do on Vacation ...](https://travel.allwomenstalk.com/things-you-only-do-on-holiday/)
 - [7 Reasons to Always Buy Travel Insurance ...](https://travel.allwomenstalk.com/reasons-to-always-buy-travel-insurance/)
-- [Latest Ways to Conquer Travel-Induced Stress for t...](https://travel.allwomenstalk.com/ways-to-avoid-travel-induced-stress/)
+- [funny dietary requirements](https://travel.allwomenstalk.com/ultimate-tips-for-travelers-with-special-dietary-requirements/)
 - [7 Travel Tips for Backpacking with Your Dog ...](https://lifestyle.allwomenstalk.com/travel-tips-for-backpacking-with-your-dog/)
 - [7 Tips for Choosing a Travel Companion ...](https://travel.allwomenstalk.com/tips-for-choosing-a-travel-companion/)
-- [7 Phobias That Might Inhibit Your Travels ...](https://mindfulness.allwomenstalk.com/phobias-that-might-inhibit-your-travels/)
-- [funny dietary requirements](https://travel.allwomenstalk.com/ultimate-tips-for-travelers-with-special-dietary-requirements/)
-- [7 Things You Only do on Vacation ...](https://travel.allwomenstalk.com/things-you-only-do-on-holiday/)
+- [Latest Ways to Conquer Travel-Induced Stress for t...](https://travel.allwomenstalk.com/ways-to-avoid-travel-induced-stress/)
+- [All the Advice You Ever Need for a Visit to London...](https://travel.allwomenstalk.com/pieces-of-advice-for-anyone-visiting-london/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 

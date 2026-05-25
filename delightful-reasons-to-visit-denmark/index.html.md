@@ -49,15 +49,15 @@ Top Image Source: _travelimg.org_
 ## Related Posts
 
 - [british regional foods](https://travel.allwomenstalk.com/british-foods-named-after-places/)
-- [perfect pizzas](https://travel.allwomenstalk.com/places-for-perfect-pizza-in-america/)
 - [experiences berlin](https://travel.allwomenstalk.com/must-do-experiences-in-berlin/)
 - [is cape town worth visiting](https://travel.allwomenstalk.com/compelling-reasons-to-visit-cape-town/)
 - [praga what to do](https://travel.allwomenstalk.com/brilliant-things-to-do-in-prague/)
+- [china popular cities](https://travel.allwomenstalk.com/top-cities-in-china-for-travelers/)
+- [perfect pizzas](https://travel.allwomenstalk.com/places-for-perfect-pizza-in-america/)
+- [most beautiful places in europe](https://allwomenstalk.com/17-most-amazing-places-to-visit-in-europe/)
 - [swedish sights](https://travel.allwomenstalk.com/sensational-sights-in-sweden/)
 - [most popular museums in nyc](https://travel.allwomenstalk.com/top-museums-you-have-to-visit-in-nyc/)
-- [most beautiful places in europe](https://allwomenstalk.com/17-most-amazing-places-to-visit-in-europe/)
 - [why to visit istanbul](https://travel.allwomenstalk.com/inviting-reasons-to-visit-istanbul/)
-- [china popular cities](https://travel.allwomenstalk.com/top-cities-in-china-for-travelers/)
 - [10 Reasons to Visit Ireland ...](https://travel.allwomenstalk.com/10-reasons-to-visit-ireland/)
 - [8 Reasons to Visit Japan ...](https://travel.allwomenstalk.com/reasons-to-visit-japan/)
 

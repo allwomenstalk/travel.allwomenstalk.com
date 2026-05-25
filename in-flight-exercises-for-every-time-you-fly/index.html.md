@@ -42,16 +42,16 @@ There are more in-flight exercises you can do, so check out advice pages on airl
 
 ## Related Posts
 
-- [florence souvenirs](https://travel.allwomenstalk.com/unique-souvenirs-to-get-abroad/)
-- [travel questions and answers](https://travel.allwomenstalk.com/most-common-travel-questions-and-answers/)
-- [flight perks](https://travel.allwomenstalk.com/free-in-flight-perks-to-take-advantage-of/)
-- [preparation for camping](https://lifestyle.allwomenstalk.com/essential-tips-you-should-know-to-prepare-for-a-camping-trip/)
-- [local guide program](https://travel.allwomenstalk.com/ways-to-feng-shui-your-vacation/)
-- [going for vacation](https://travel.allwomenstalk.com/tips-for-avoiding-arguments-when-going-on-vacation/)
-- [girlfriend sitting boyfriend lap goals](https://travel.allwomenstalk.com/indispensable-tips-for-girl-travelers-in-india/)
 - [rude gestures](https://travel.allwomenstalk.com/rude-gestures-to-avoid-when-traveling-around-the-world/)
-- [things people forget to pack](https://travel.allwomenstalk.com/most-common-things-we-forget-to-pack/)
 - [what to bring to the waterpark](https://lifestyle.allwomenstalk.com/necessary-things-to-take-to-a-water-park/)
+- [things people forget to pack](https://travel.allwomenstalk.com/most-common-things-we-forget-to-pack/)
+- [travel questions and answers](https://travel.allwomenstalk.com/most-common-travel-questions-and-answers/)
+- [florence souvenirs](https://travel.allwomenstalk.com/unique-souvenirs-to-get-abroad/)
+- [girlfriend sitting boyfriend lap goals](https://travel.allwomenstalk.com/indispensable-tips-for-girl-travelers-in-india/)
+- [local guide program](https://travel.allwomenstalk.com/ways-to-feng-shui-your-vacation/)
+- [preparation for camping](https://lifestyle.allwomenstalk.com/essential-tips-you-should-know-to-prepare-for-a-camping-trip/)
+- [flight perks](https://travel.allwomenstalk.com/free-in-flight-perks-to-take-advantage-of/)
+- [going for vacation](https://travel.allwomenstalk.com/tips-for-avoiding-arguments-when-going-on-vacation/)
 - [8 Tips for Coping with Plane Trips ...](https://travel.allwomenstalk.com/8-tips-for-coping-with-plane-trips/)
 - [7 Ways to Pass the Time on an 11 Hour Flight ...](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
 

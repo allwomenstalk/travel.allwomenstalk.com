@@ -152,16 +152,16 @@ Where are you ringing in the New Year?
 
 ## Related Posts
 
-- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
-- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
-- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
-- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
 - [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
+- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
+- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
+- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
 - [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
-- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
-- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
+- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
+- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 

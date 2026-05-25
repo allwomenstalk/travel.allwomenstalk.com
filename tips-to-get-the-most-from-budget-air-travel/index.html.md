@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/5376997)
 
 ## Related Posts
 
-- [travel on a shoestring budget](https://travel.allwomenstalk.com/tips-for-a-road-trip-on-a-shoestring-budget/)
-- [traveling for the first time](https://travel.allwomenstalk.com/top-tips-for-first-time-travelers/)
+- [best seats to survive plane crash](https://travel.allwomenstalk.com/tips-for-how-to-survive-a-plane-crash/)
 - [things to bring on a road trip for fun](https://lifestyle.allwomenstalk.com/essentials-for-a-fun-road-trip-to-always-take-with-you/)
-- [frequent flyer tips](https://travel.allwomenstalk.com/best-travel-tips-from-frequent-travelers/)
 - [disabled travelers](https://travel.allwomenstalk.com/extremely-useful-websites-for-disabled-travelers/)
+- [traveling for the first time](https://travel.allwomenstalk.com/top-tips-for-first-time-travelers/)
+- [wifi on the move](https://travel.allwomenstalk.com/ways-to-get-free-wifi-when-on-the-move/)
 - [how to keep money safe abroad](https://travel.allwomenstalk.com/tips-for-keeping-your-money-safe-when-traveling/)
 - [low cal gas station snacks](https://health.allwomenstalk.com/healthy-gas-station-snacks-to-have-while-traveling/)
-- [wifi on the move](https://travel.allwomenstalk.com/ways-to-get-free-wifi-when-on-the-move/)
-- [best seats to survive plane crash](https://travel.allwomenstalk.com/tips-for-how-to-survive-a-plane-crash/)
 - [aware hotel](https://travel.allwomenstalk.com/sneaky-hotel-charges-you-should-be-aware-of/)
+- [travel on a shoestring budget](https://travel.allwomenstalk.com/tips-for-a-road-trip-on-a-shoestring-budget/)
+- [frequent flyer tips](https://travel.allwomenstalk.com/best-travel-tips-from-frequent-travelers/)
 - [7 Tips to Book a Cheap Flight ...](https://travel.allwomenstalk.com/7-tips-to-book-a-cheap-flight/)
 - [8 Tips to Travel Cheap ...](https://travel.allwomenstalk.com/8-tips-to-travel-cheap/)
 

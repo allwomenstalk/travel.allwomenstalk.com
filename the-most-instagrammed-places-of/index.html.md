@@ -134,16 +134,16 @@ Other than the sports stadia, there weren’t any real surprises on this list. D
 
 ## Related Posts
 
-- [is iceland real](https://travel.allwomenstalk.com/you-wont-believe-these-breathtaking-photos-of-iceland-are-real/)
-- [botched gif](https://funny.allwomenstalk.com/these-gifs-will-brighten-all-of-your-bad-days/)
 - [uriah shelton instagram](https://music.allwomenstalk.com/the-best-instagram-covers-from-your-favorite-celebs/)
-- [redo bedroom ideas](https://diy.allwomenstalk.com/instagram-accounts-thatll-make-you-want-to-redo-your-bedroom/)
-- [dubious plating](https://food.allwomenstalk.com/wait-until-you-see-these-dubious-dinner-disasters-served-up-on-instagram/)
-- [selfie duckface](https://lifestyle.allwomenstalk.com/the-new-selfie-pose-thats-replacing-duck-face/)
-- [ariana grande hiccups](https://celebs.allwomenstalk.com/check-out-the-sexiest-instagrammers-of/)
-- [engagement announcement post](https://wedding.allwomenstalk.com/how-to-nail-your-engagement-announcement-on-instagram/)
-- [comment on bf insta post](https://love.allwomenstalk.com/flirty-comments-to-leave-on-his-instagram-photos/)
 - [riche le stylo smoky eye bronzed taupe](https://diy.allwomenstalk.com/use-these-photoshop-hacks-to-fix-all-your-pictures/)
+- [selfie duckface](https://lifestyle.allwomenstalk.com/the-new-selfie-pose-thats-replacing-duck-face/)
+- [dubious plating](https://food.allwomenstalk.com/wait-until-you-see-these-dubious-dinner-disasters-served-up-on-instagram/)
+- [comment on bf insta post](https://love.allwomenstalk.com/flirty-comments-to-leave-on-his-instagram-photos/)
+- [ariana grande hiccups](https://celebs.allwomenstalk.com/check-out-the-sexiest-instagrammers-of/)
+- [botched gif](https://funny.allwomenstalk.com/these-gifs-will-brighten-all-of-your-bad-days/)
+- [is iceland real](https://travel.allwomenstalk.com/you-wont-believe-these-breathtaking-photos-of-iceland-are-real/)
+- [engagement announcement post](https://wedding.allwomenstalk.com/how-to-nail-your-engagement-announcement-on-instagram/)
+- [redo bedroom ideas](https://diy.allwomenstalk.com/instagram-accounts-thatll-make-you-want-to-redo-your-bedroom/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [10 Best Destinations for 2012 ...](https://travel.allwomenstalk.com/best-destinations-for/)
 

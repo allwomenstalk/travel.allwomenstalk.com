@@ -46,16 +46,16 @@ So there you have it – some of the interesting geographical facts of Australia
 
 ## Related Posts
 
-- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
-- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
-- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
+- [chinese culture customs](https://travel.allwomenstalk.com/interesting-customs-of-chinese-culture/)
 - [do pearls hurt oysters](https://jewelry.allwomenstalk.com/amazing-facts-about-pearls/)
 - [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
-- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
-- [about the uk](https://travel.allwomenstalk.com/geographical-facts-about-the-uk/)
-- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
-- [chinese culture customs](https://travel.allwomenstalk.com/interesting-customs-of-chinese-culture/)
 - [rose titanic real photo](https://movies.allwomenstalk.com/facts-about-the-movie-titanic-you-didnt-know/)
+- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
+- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
+- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
+- [about the uk](https://travel.allwomenstalk.com/geographical-facts-about-the-uk/)
+- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
+- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 

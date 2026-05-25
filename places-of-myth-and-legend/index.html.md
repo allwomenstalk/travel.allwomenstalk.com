@@ -46,16 +46,16 @@ People from around the world have always had a fascination with mythical places 
 
 ## Related Posts
 
-- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
-- [natural attractions in europe](https://travel.allwomenstalk.com/magnificent-natural-wonders-of-france/)
-- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
-- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
-- [traditions of mexican culture](https://travel.allwomenstalk.com/customs-and-traditions-of-mexico/)
 - [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
-- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
+- [natural attractions in europe](https://travel.allwomenstalk.com/magnificent-natural-wonders-of-france/)
+- [traditions of mexican culture](https://travel.allwomenstalk.com/customs-and-traditions-of-mexico/)
+- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
 - [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
-- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
+- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
+- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
+- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
 - [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
+- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
 - [8 Great Road Trip Destinations ...](https://travel.allwomenstalk.com/8-great-road-trip-destinations/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 

@@ -102,16 +102,16 @@ was home to the priestly family Kathros during the era of the Second Temple. Eer
 
 ## Related Posts
 
-- [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
-- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
-- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
-- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
-- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
-- [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
-- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
-- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
 - [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
+- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
+- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
+- [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
+- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
+- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
+- [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
+- [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
 - [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
+- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 - [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
 

@@ -56,15 +56,15 @@ Does the idea of these awesome restaurants make your mouth water? Mine was as I 
 ## Related Posts
 
 - [mall of america food court](https://travel.allwomenstalk.com/best-mall-food-courts-in-the-world/)
-- [indian traditional crafts](https://travel.allwomenstalk.com/traditional-crafts-of-india-to-see-on-your-travels/)
-- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
-- [route 66 length](https://travel.allwomenstalk.com/ghost-towns-to-visit-on-a-route-66-road-trip/)
-- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
-- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
-- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
-- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
 - [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
+- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
+- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
 - [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
+- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
+- [indian traditional crafts](https://travel.allwomenstalk.com/traditional-crafts-of-india-to-see-on-your-travels/)
+- [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
+- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
+- [route 66 length](https://travel.allwomenstalk.com/ghost-towns-to-visit-on-a-route-66-road-trip/)
 - [8 Compelling Reasons to Visit Cape Town ...](https://travel.allwomenstalk.com/compelling-reasons-to-visit-cape-town/)
 - [8 Places to Explore in Africa ...](https://travel.allwomenstalk.com/places-to-explore-in-africa/)
 

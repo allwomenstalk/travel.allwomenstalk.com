@@ -68,16 +68,16 @@ There are passport holders in every color, every pattern and every price range. 
 
 ## Related Posts
 
-- [practical gift ideas for christmas](https://lifestyle.allwomenstalk.com/wonderful-ideas-for-a-fun-and-practical-christmas-present/)
+- [womens gift set ideas](https://lifestyle.allwomenstalk.com/things-to-put-in-a-christmas-gift-basket/)
+- [stuff to get girlfriend for christmas](https://love.allwomenstalk.com/amazing-christmas-gifts-you-can-give-your-girlfriend/)
 - [funny ways to wrap present](https://lifestyle.allwomenstalk.com/fun-ways-to-wrap-your-gifts-this-year/)
+- [fitness gifts for couples](https://fitness.allwomenstalk.com/amazing-fitness-gifts-that-you-will-love/)
+- [christmas gifts for someone getting married](https://wedding.allwomenstalk.com/unique-christmas-wedding-gift-ideas-that-are-sure-to-be-loved/)
+- [practical gift ideas for christmas](https://lifestyle.allwomenstalk.com/wonderful-ideas-for-a-fun-and-practical-christmas-present/)
+- [gifts for spam lovers](https://diy.allwomenstalk.com/diy-christmas-presents-for-the-people-in-your-life/)
+- [gift ideas music lover](https://lifestyle.allwomenstalk.com/thoughtful-gift-ideas-for-any-music-lover/)
 - [hottest cool gadgets](https://lifestyle.allwomenstalk.com/hottest-gadgets-to-buy-your-boyfriend-for-christmas/)
 - [heart healthy christmas gifts](https://food.allwomenstalk.com/deliciously-healthy-gifts-for-christmas/)
-- [womens gift set ideas](https://lifestyle.allwomenstalk.com/things-to-put-in-a-christmas-gift-basket/)
-- [gift ideas music lover](https://lifestyle.allwomenstalk.com/thoughtful-gift-ideas-for-any-music-lover/)
-- [gifts for spam lovers](https://diy.allwomenstalk.com/diy-christmas-presents-for-the-people-in-your-life/)
-- [fitness gifts for couples](https://fitness.allwomenstalk.com/amazing-fitness-gifts-that-you-will-love/)
-- [stuff to get girlfriend for christmas](https://love.allwomenstalk.com/amazing-christmas-gifts-you-can-give-your-girlfriend/)
-- [christmas gifts for someone getting married](https://wedding.allwomenstalk.com/unique-christmas-wedding-gift-ideas-that-are-sure-to-be-loved/)
 - [7 Cute Kitsch Christmas Gifts ...](https://lifestyle.allwomenstalk.com/cute-kitsch-christmas-gifts/)
 - [8 Travel Accessories I Cant Resist ...](https://allwomenstalk.com/8-travel-accessories-i-cant-resist/)
 

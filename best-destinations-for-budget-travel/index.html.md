@@ -56,16 +56,16 @@ Traveling is expensive, and prices often make traveling less fun. After all, you
 
 ## Related Posts
 
-- [things to talk about on your honeymoon](https://travel.allwomenstalk.com/intriguing-ways-to-spend-your-honeymoon/)
 - [most romantic hotels in england](https://travel.allwomenstalk.com/of-the-uks-most-romantic-hotels/)
 - [great destinations](https://travel.allwomenstalk.com/great-destinations-for-science-geeks/)
-- [cayman island things to do](https://travel.allwomenstalk.com/captivating-things-to-do-in-the-cayman-islands/)
 - [hawaiian apple banana tree](https://food.allwomenstalk.com/varieties-of-bananas-you-should-try-on-your-next-hawaiian-vacation/)
+- [cayman island things to do](https://travel.allwomenstalk.com/captivating-things-to-do-in-the-cayman-islands/)
+- [things to talk about on your honeymoon](https://travel.allwomenstalk.com/intriguing-ways-to-spend-your-honeymoon/)
 - [vintage travel ads](https://travel.allwomenstalk.com/vintage-travel-ads-to-inspire-your-bucket-list/)
-- [mediterranean tours for couples](https://travel.allwomenstalk.com/romantic-mediterranean-getaway-ideas/)
-- [cat house on the kings](https://travel.allwomenstalk.com/fancy-feline-destinations-for-cat-lovers/)
 - [escape the crowds](https://travel.allwomenstalk.com/places-to-escape-the-tourist-crowds/)
 - [best po ship for families](https://travel.allwomenstalk.com/best-cruises-for-family-vacations/)
+- [cat house on the kings](https://travel.allwomenstalk.com/fancy-feline-destinations-for-cat-lovers/)
+- [mediterranean tours for couples](https://travel.allwomenstalk.com/romantic-mediterranean-getaway-ideas/)
 - [7 Places to Travel on a Budget ...](https://travel.allwomenstalk.com/7-places-to-travel-on-a-budget/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 

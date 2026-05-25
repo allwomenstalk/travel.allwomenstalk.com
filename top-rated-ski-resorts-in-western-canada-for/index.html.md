@@ -56,16 +56,16 @@ Canada is such a fabulous winter sports destination. There are just so many glor
 
 ## Related Posts
 
-- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
 - [travel trends 2015](https://travel.allwomenstalk.com/exciting-travel-trends-for/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [sri lankan twinks](https://travel.allwomenstalk.com/adventures-this-is-what-to-see-and-do-in-sri-lanka/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
-- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
 - [valentines day getaway](https://travel.allwomenstalk.com/gorgeous-destinations-for-a-valentines-weekend-getaway/)
 - [best massages in the world](https://travel.allwomenstalk.com/travel-around-the-world-for-different-massages/)
+- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
+- [alaska ice dragon](https://lifestyle.allwomenstalk.com/ice-sculptures-that-thrill-not-chill/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 - [7 Top Ski Resorts ...](https://travel.allwomenstalk.com/top-ski-resorts/)
 

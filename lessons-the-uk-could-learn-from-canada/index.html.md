@@ -42,16 +42,16 @@ I hope to return to Canada in the not too distant future. It deservedly has a gl
 
 ## Related Posts
 
-- [7 Bitter Life Truths You Need to Hear ...](https://inspiration.allwomenstalk.com/bitter-life-truths-you-need-to-hear/)
+- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
 - [7 Standards You Should Never Lower for a Happy Lif...](https://love.allwomenstalk.com/standards-you-should-never-lower-for-a-happy-life/)
-- [7 things to remember everyday](https://inspiration.allwomenstalk.com/beautiful-things-to-remember-about-yourself-when-youre-depressed/)
-- [why do i compare myself to his ex](https://inspiration.allwomenstalk.com/situations-when-you-may-be-tempted-to-compare-yourself-to-others/)
-- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
-- [7 Extremely Useful Things You Can Learn from Thera...](https://inspiration.allwomenstalk.com/extremely-useful-things-you-can-learn-from-therapists/)
 - [9 Things Youll Learn about Life by the Time Youre ...](https://teen.allwomenstalk.com/things-youll-learn-by-the-time-youre-19/)
 - [7 Things Only Your Best Friend Knows about You ...](https://teen.allwomenstalk.com/things-only-your-best-friend-knows-about-you/)
-- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
+- [7 Extremely Useful Things You Can Learn from Thera...](https://inspiration.allwomenstalk.com/extremely-useful-things-you-can-learn-from-therapists/)
+- [7 Bitter Life Truths You Need to Hear ...](https://inspiration.allwomenstalk.com/bitter-life-truths-you-need-to-hear/)
+- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
 - [demotivation](https://inspiration.allwomenstalk.com/common-types-of-demotivation-that-you-need-to-overcome/)
+- [7 things to remember everyday](https://inspiration.allwomenstalk.com/beautiful-things-to-remember-about-yourself-when-youre-depressed/)
+- [why do i compare myself to his ex](https://inspiration.allwomenstalk.com/situations-when-you-may-be-tempted-to-compare-yourself-to-others/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [14 Things Adults Can Learn from Children ...](https://allwomenstalk.com/14-things-adults-can-learn-from-children/)
 

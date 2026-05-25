@@ -44,16 +44,16 @@ Top Photo Credit: [LondonSLR](https://www.flickr.com/photos/londonslr/496682995/
 
 ## Related Posts
 
-- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
-- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [8 US Cities Id like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
-- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [8 Things I Want to See in Paris](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
-- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 - [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
+- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 - [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
-- [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
 - [10 Things That Have Weird Names in Other Countries...](https://travel.allwomenstalk.com/10-things-that-have-weird-names-in-other-countries/)
 
