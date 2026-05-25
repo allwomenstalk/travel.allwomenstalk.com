@@ -3,7 +3,7 @@ title: "7 Amazing Facts about the Great Lakes ..."
 description: "The Great Lakes Collectively Hold 20% of the World’s Fresh Water; The Lakes Were Discovered in the 17th Century; Only Lake Michigan is Located Solely in the United States; There Are over 30,000 Islands on the Lakes; They Are an Economic Powerhouse; More ..."
 url: "https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Amazing Facts about the Great Lakes ...
@@ -42,15 +42,15 @@ So, how many of these facts about the Great Lakes did you already know?
 
 ## Related Posts
 
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
-- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
 - [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
+- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
+- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
+- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
 - [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
-- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)

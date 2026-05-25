@@ -3,7 +3,7 @@ title: "7 of the Worlds Creepiest Attractions ..."
 description: "Most Morbid Market – Akodessewa Fetish Market (Lome, Togo); Most Chilling Church – Chapel of Bones (Evora, Portugal); Most Unamusing Amusement Park – Chernobyl Amusement Park (Pripyat, Ukraine); The Maddest Museum – Mütter Museum (Philadelphia, PA); The Most Blood-Curdling Book: Bram Stoker’s Dracula Setting (Whitby, England); More ..."
 url: "https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 of the Worlds Creepiest Attractions ...
@@ -58,14 +58,14 @@ Ooh, I feel quite a chill now! Fascinating they might be, but there’s a few mo
 
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
 - [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
-- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
-- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
 - [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
 - [8 Gloomiest Tourist Attractions ...](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 

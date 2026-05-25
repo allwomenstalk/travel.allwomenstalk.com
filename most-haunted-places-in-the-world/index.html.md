@@ -3,7 +3,7 @@ title: "7 Most Haunted Places in the World ..."
 description: "Island of the Dolls, Xochimilco, Mexico; The Bhangarh Fort, India; Eastern State Penitentiary, Pennsylvania, USA; The Tower of London; Aokigahara, Japan; More ..."
 url: "https://travel.allwomenstalk.com/most-haunted-places-in-the-world/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Most Haunted Places in the World ...
@@ -56,16 +56,16 @@ Are any of these haunted places on your wishlist to visit any time soon?
 
 ## Related Posts
 
+- [south america hidden gems](https://travel.allwomenstalk.com/hidden-gems-of-south-america/)
 - [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
-- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
+- [famous historical explorers](https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/)
 - [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
 - [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
-- [south america hidden gems](https://travel.allwomenstalk.com/hidden-gems-of-south-america/)
 - [angel falls feet](https://travel.allwomenstalk.com/most-incredible-waterfalls-on-earth-youll-have-to-visit-someday/)
-- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
+- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
 - [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [famous historical explorers](https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/)
 - [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 

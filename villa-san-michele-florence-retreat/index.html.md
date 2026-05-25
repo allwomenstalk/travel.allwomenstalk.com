@@ -3,7 +3,7 @@ title: "Villa San Micheles Hidden Corners and..."
 description: "A Journey Through History; A Fusion of Art and Nature; Enchanting Rooms and Suites; The Allure of the Guerlain Spa; Inviting the Outside In: Gardens that Speak; More ..."
 url: "https://travel.allwomenstalk.com/villa-san-michele-florence-retreat/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Villa San Micheles Hidden Corners and...

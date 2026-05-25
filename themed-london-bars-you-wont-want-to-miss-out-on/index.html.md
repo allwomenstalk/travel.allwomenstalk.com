@@ -3,7 +3,7 @@ title: "7 Themed London Bars You Wont Want to Miss out on ..."
 description: "Evans and Peel Detective Agency, Earl’s Court; Trailer Happiness, Portobello Road; Mahiki, Dover Street; Nordic Bar, Soho; ICEBAR, Heddon Street; More ..."
 url: "https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Themed London Bars You Wont Want to Miss out on ...
@@ -32,7 +32,7 @@ Say aloha to a night out at Mahiki – it’s definitely not a bar for serious t
 
 ![Nordic Bar, Soho](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/10/12115232_9151_600x400.jpg)
 
-For a taste of Scandinavia, come to the Nordic Bar in London’s Soho, and enjoy delicious flavored schnapps, gravad lax, [rye bread](https://food.allwomenstalk.com/this-is-why-jennifer-aniston-eats-rye-bread-every-day/) and smorgasbords to share. There’s a party vibe here, with regular events such as ping pong competitions ensuring your night will be fun – but be warned, it’s not a place for a quiet, intimate date! Make sure you don’t miss out on their cocktails – Nordic Fizz is a divine blend of elderberry and elderflower syrup finished off with some fizz!
+For a taste of Scandinavia, come to the Nordic Bar in London’s Soho, and enjoy delicious flavored schnapps, gravad lax, rye bread and smorgasbords to share. There’s a party vibe here, with regular events such as ping pong competitions ensuring your night will be fun – but be warned, it’s not a place for a quiet, intimate date! Make sure you don’t miss out on their cocktails – Nordic Fizz is a divine blend of elderberry and elderflower syrup finished off with some fizz!
 
 ## 5. ICEBAR, Heddon Street
 
@@ -56,15 +56,15 @@ All this talk of themed bars is making me long for a night out, and I reckon at 
 
 ## Related Posts
 
-- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
-- [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
+- [eyebrow penguins](https://travel.allwomenstalk.com/types-of-penguin-and-where-to-see-them/)
+- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
 - [what is there to do in perth australia](https://travel.allwomenstalk.com/amazing-things-to-do-in-perth-australia/)
+- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
+- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
 - [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
 - [american winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-the-us/)
-- [eyebrow penguins](https://travel.allwomenstalk.com/types-of-penguin-and-where-to-see-them/)
+- [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
 - [winter festivals around the world](https://travel.allwomenstalk.com/wonderful-winter-festivals-not-to-miss/)
-- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
-- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
 - [secret location nyc](https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/)
 - [9 Delicious Easter Cocktails You Dont Want to Miss...](https://cooking.allwomenstalk.com/7-delicious-easter-cocktails/)
 - [7 Fun Ideas for a Themed Party ...](https://allwomenstalk.com/fun-ideas-for-a-themed-party/)

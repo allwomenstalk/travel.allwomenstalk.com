@@ -3,7 +3,7 @@ title: "50 Postcards from North Africa That Say Wish You Here ..."
 description: "Sahara Desert; Sidi Bou Saïd, Tunisia; Hoggar Mountains, Algeria; Colors of Tunisia; Bab El Bahr, Tunis, Tunisia; More ..."
 url: "https://travel.allwomenstalk.com/postcards-from-north-africa-that-say-wish-you-here/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 50 Postcards from North Africa That Say Wish You Here ...
@@ -26,7 +26,7 @@ The very pretty white and blue town has become an artist's enclave.
 
 ![Hoggar Mountains, Algeria](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/y2/me/y7zxf86o_427x640.jpg)
 
-There is evidence of human life in the mountains ([cave paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)) dating back to BCE 6000.
+There is evidence of human life in the mountains (cave paintings) dating back to BCE 6000.
 
 ## 4. Colors of Tunisia
 
@@ -348,16 +348,16 @@ I'm sorry to stop it there. I'd love to share so many other sights of North Afri
 
 ## Related Posts
 
-- [place to visit in key west](https://travel.allwomenstalk.com/places-to-visit-in-key-west/)
-- [why do people visit new mexico](https://travel.allwomenstalk.com/fabulous-places-to-visit-in-new-mexico/)
+- [unexplored land](https://travel.allwomenstalk.com/least-explored-places-on-earth/)
 - [best art galleries in the world](https://travel.allwomenstalk.com/must-see-art-galleries-around-the-world/)
 - [fashion city in the world](https://fashion.allwomenstalk.com/most-fashionable-cities-in-the-world/)
-- [pinspiration grand junction](https://travel.allwomenstalk.com/unforgettable-sights-of-croatia/)
-- [norway images](https://travel.allwomenstalk.com/pictures-that-prove-norway-really-is-nirvana/)
-- [unexplored land](https://travel.allwomenstalk.com/least-explored-places-on-earth/)
-- [marseille attraction](https://travel.allwomenstalk.com/top-attractions-of-marseille/)
-- [weirdest thing in the world](https://travel.allwomenstalk.com/weirdest-things-exhibited-in-museums/)
 - [taurid meteor shower](https://travel.allwomenstalk.com/stargazing-events-happening-in/)
+- [marseille attraction](https://travel.allwomenstalk.com/top-attractions-of-marseille/)
+- [place to visit in key west](https://travel.allwomenstalk.com/places-to-visit-in-key-west/)
+- [pinspiration grand junction](https://travel.allwomenstalk.com/unforgettable-sights-of-croatia/)
+- [why do people visit new mexico](https://travel.allwomenstalk.com/fabulous-places-to-visit-in-new-mexico/)
+- [weirdest thing in the world](https://travel.allwomenstalk.com/weirdest-things-exhibited-in-museums/)
+- [norway images](https://travel.allwomenstalk.com/pictures-that-prove-norway-really-is-nirvana/)
 - [7 Unique Souvenirs to Get Abroad ...](https://travel.allwomenstalk.com/unique-souvenirs-to-get-abroad/)
 - [50 Most Visited Tourist Attractions in the World ....](https://travel.allwomenstalk.com/most-visited-tourist-attractions-in-the-world/)
 

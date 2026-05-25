@@ -3,7 +3,7 @@ title: "7 Crater Lakes of Outstanding Beauty ..."
 description: "Nemrut Lake, Turkey; Crater Lake, Oregon; Blue Lake, South Australia; Lake Nyos, Western Cameroon; Ojos Del Salado Lake, Argentina-Chile; More ..."
 url: "https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Crater Lakes of Outstanding Beauty ...
@@ -56,16 +56,16 @@ Crater lakes are pretty and photogenic and anyone that enjoys water features and
 
 ## Related Posts
 
-- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
 - [places i want to visit](https://travel.allwomenstalk.com/places-you-cant-visit-but-probably-dont-want-to-anyway/)
-- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
 - [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
 - [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
+- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
 - [7 Main Attractions of the Big Island ...](https://travel.allwomenstalk.com/7-main-attractions-of-the-big-island/)
 - [7 River Trips of a Lifetime ...](https://travel.allwomenstalk.com/river-trips-of-a-lifetime/)
 

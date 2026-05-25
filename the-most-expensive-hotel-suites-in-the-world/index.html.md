@@ -3,7 +3,7 @@ title: "The 10 Most Expensive Hotel Suites in the World ..."
 description: "Royal Penthouse Suite at Hotel President Wilson – Geneva, Switzerland; Mark Penthouse at the Mark – New York, USA; Penthouse Suite at Hotel Martinez – Cannes, France; Penthouse Suite at Faena Hotel – Miami, USA; Hilltop Villa at Laucala Island – Fiji; More ..."
 url: "https://travel.allwomenstalk.com/the-most-expensive-hotel-suites-in-the-world/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The 10 Most Expensive Hotel Suites in the World ...
@@ -24,7 +24,7 @@ Cannes is a famous playground for the rich and famous, and this five-star pentho
 
 ## 4. Penthouse Suite at Faena Hotel – Miami, USA
 
-![property, interior design, room, window, ceiling,](https://img.allw.mn/content/b6/td/gw2qu6ed5b70245309b1a451215295_600x394.jpg)
+![property, interior design, room, window, ceiling,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/b6/td/gw2qu6ed5b70245309b1a451215295_600x394.jpg)
 
 For $50,000 a night you can enjoy a five-bedroom, two floor pad that provides panoramic views of the ocean and Miami beach. The interior was actually designed by famous director Baz Luhrmann and his wife!
 
@@ -42,13 +42,13 @@ For $41,000 a night, you can stay in this suite that offers a private rooftop po
 
 ## 8. Royal Suite at the Plaza – New York, USA
 
-![living room, room, property, interior design, home,](https://img.allw.mn/content/je/ux/hli00f3f5b7259df1217a444228120_600x422.jpg)
+![living room, room, property, interior design, home,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/je/ux/hli00f3f5b7259df1217a444228120_600x422.jpg)
 
 Royal by name and royal by nature! This $40,000 a night suite includes private elevator access that overlooks Fifth Avenue, and comes with a fitness room, powder room, library, chef’s kitchen, and glove butler service!
 
 ## 9. Princess Grace Suite at Hôtel De Paris Monte Carlo – Monaco, France
 
-![interior design, ceiling, yacht, deck, real estate,](https://img.allw.mn/content/h8/ac/rv5s408n5b7021f434dee339591224_600x392.jpg)
+![interior design, ceiling, yacht, deck, real estate,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/h8/ac/rv5s408n5b7021f434dee339591224_600x392.jpg)
 
 Named after one of the most glamorous women in the world, the Princess Grace Suite features multiple walk-in closets, a sauna, heated pool, Jacuzzi, and amazing views of the Mediterranean. All yours for $37,000 per night.
 
@@ -58,16 +58,16 @@ This suite really is something special. What do you get for your $36,000 per nig
 
 ## Related Posts
 
-- [top 10 travel destinations in india](https://travel.allwomenstalk.com/top-travel-destinations-in-india/)
-- [cape town woman](https://travel.allwomenstalk.com/amazing-adventures-in-africa-one-womans-travels-from-cape-town-to-kilimanjaro/)
 - [honeymoon bled](https://travel.allwomenstalk.com/consider-these-exotic-honeymoon-destinations/)
-- [AirBnB Hottest Destination Predictions for 2019 .....](https://travel.allwomenstalk.com/airbnb-hottest-destination-predictions-for/)
-- [world top 10 beaches](https://travel.allwomenstalk.com/top-beaches-in-the-world/)
-- [womens travel magazine](https://travel.allwomenstalk.com/the-best-travel-websites-for-women/)
 - [volunteer honeymoon](https://travel.allwomenstalk.com/the-most-extreme-ways-to-spend-your-honeymoon/)
-- [exotic destinations for honeymoon](https://travel.allwomenstalk.com/best-exotic-honeymoon-destinations/)
+- [AirBnB Hottest Destination Predictions for 2019 .....](https://travel.allwomenstalk.com/airbnb-hottest-destination-predictions-for/)
+- [womens travel magazine](https://travel.allwomenstalk.com/the-best-travel-websites-for-women/)
+- [world top 10 beaches](https://travel.allwomenstalk.com/top-beaches-in-the-world/)
 - [best places to travel for sports lovers](https://travel.allwomenstalk.com/top-places-in-the-world-for-active-sports-lovers/)
+- [cape town woman](https://travel.allwomenstalk.com/amazing-adventures-in-africa-one-womans-travels-from-cape-town-to-kilimanjaro/)
 - [what is an ideal vacation](https://travel.allwomenstalk.com/girls-guide-to-choosing-your-ideal-vacation-destination/)
+- [exotic destinations for honeymoon](https://travel.allwomenstalk.com/best-exotic-honeymoon-destinations/)
+- [top 10 travel destinations in india](https://travel.allwomenstalk.com/top-travel-destinations-in-india/)
 - [10 Best Luxury Hotels in the World ...](https://travel.allwomenstalk.com/best-luxury-hotels-in-the-world/)
 - [10 Hottest Celebrity Vacation Spots ...](https://travel.allwomenstalk.com/hottest-celebrity-vacation-spots/)
 

@@ -3,7 +3,7 @@ title: "7 Things to See and do in Antigua ..."
 description: "Stingray City; Donkey Sanctuary; Betty’s Hope; Devil’s Bridge; Shirley Heights; More ..."
 url: "https://travel.allwomenstalk.com/things-to-see-and-do-in-antigua/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things to See and do in Antigua ...
@@ -56,16 +56,16 @@ I bet you’re already browsing ticket sites to book you vacation to Antigua –
 
 ## Related Posts
 
-- [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
-- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
-- [what to do in nova scotia](https://travel.allwomenstalk.com/here-are-the-best-places-to-visit-in-nova-scotia/)
-- [art colony grand marais](https://travel.allwomenstalk.com/indulge-your-muse-at-these-artist-colonies/)
-- [wildlife parks in africa](https://travel.allwomenstalk.com/the-amazing-wildlife-of-africas-national-parks-and-game-reserves/)
-- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
 - [50 cities to visit in your lifetime](https://travel.allwomenstalk.com/here-are-the-cities-to-visit-before-you-die/)
-- [new york bird eye view](https://travel.allwomenstalk.com/birds-eye-views-that-will-leave-you-breathless/)
+- [famous domes in rome](https://travel.allwomenstalk.com/of-the-most-magnificent-domes-in-the-world/)
+- [wildlife parks in africa](https://travel.allwomenstalk.com/the-amazing-wildlife-of-africas-national-parks-and-game-reserves/)
 - [castles in disney movies](https://travel.allwomenstalk.com/gorgeous-castles-that-should-belong-in-disney-movies/)
+- [new york bird eye view](https://travel.allwomenstalk.com/birds-eye-views-that-will-leave-you-breathless/)
+- [art colony grand marais](https://travel.allwomenstalk.com/indulge-your-muse-at-these-artist-colonies/)
+- [best food trucks in london](https://food.allwomenstalk.com/london-food-trucks-you-dont-want-to-miss/)
+- [famous norwegian paintings](https://travel.allwomenstalk.com/of-the-worlds-most-famous-paintings-and-where-you-can-see-them/)
 - [worlds largest lava lamp](https://travel.allwomenstalk.com/when-you-see-these-kitsch-roadside-attractions-youll-wonder-why-just-why/)
+- [what to do in nova scotia](https://travel.allwomenstalk.com/here-are-the-best-places-to-visit-in-nova-scotia/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 

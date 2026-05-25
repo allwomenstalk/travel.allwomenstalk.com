@@ -3,7 +3,7 @@ title: "7 Secret Sights in New York That Will Leave You Astonished ..."
 description: "City Hall Station; Waldorf Astoria – Track 61; \"the Underbelly Project\" Art Show; Whispering Gallery; Frick Museum Hidden Bowling Alley; More ..."
 url: "https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/"
 category: "travel"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Secret Sights in New York That Will Leave You Astonished ...
@@ -58,14 +58,14 @@ I love adding new sights to my growing list of NYC's hidden gems; I've also alwa
 
 - [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
 - [eyebrow penguins](https://travel.allwomenstalk.com/types-of-penguin-and-where-to-see-them/)
-- [date ideas williamsburg brooklyn](https://travel.allwomenstalk.com/swanky-date-spots-in-brooklyn-that-you-wont-regret-visiting/)
-- [how many walled cities are there in the world](https://travel.allwomenstalk.com/wonderful-walled-cities-around-the-world/)
-- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
 - [what is there to do in perth australia](https://travel.allwomenstalk.com/amazing-things-to-do-in-perth-australia/)
 - [american winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-the-us/)
-- [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
+- [how many walled cities are there in the world](https://travel.allwomenstalk.com/wonderful-walled-cities-around-the-world/)
 - [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
+- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
 - [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
+- [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
+- [date ideas williamsburg brooklyn](https://travel.allwomenstalk.com/swanky-date-spots-in-brooklyn-that-you-wont-regret-visiting/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 
