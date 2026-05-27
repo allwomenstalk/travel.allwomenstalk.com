@@ -3,7 +3,7 @@ title: "8 Special Places to Celebrate St. Patricks Day ..."
 description: "Dublin, Ireland; Chicago, USA; Buenos Aires, Argentina; New York, USA; Boston, USA; More ..."
 url: "https://travel.allwomenstalk.com/special-places-to-celebrate-st-patricks-day/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Special Places to Celebrate St. Patricks Day ...
@@ -67,13 +67,13 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/7998900)
 - [iceland corstorphine](https://travel.allwomenstalk.com/top-attractions-of-edinburgh/)
 - [is cape town worth visiting](https://travel.allwomenstalk.com/compelling-reasons-to-visit-cape-town/)
 - [most beautiful places in europe](https://allwomenstalk.com/17-most-amazing-places-to-visit-in-europe/)
-- [british regional foods](https://travel.allwomenstalk.com/british-foods-named-after-places/)
-- [italy off the beaten track](https://travel.allwomenstalk.com/special-places-to-go-off-the-beaten-track-in-italy/)
-- [croatia points of interest](https://travel.allwomenstalk.com/places-in-croatia-every-visitor-must-see/)
 - [china popular cities](https://travel.allwomenstalk.com/top-cities-in-china-for-travelers/)
-- [why do people visit boston](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-boston/)
-- [is denmark worth visiting](https://travel.allwomenstalk.com/delightful-reasons-to-visit-denmark/)
 - [chicago top attractions](https://travel.allwomenstalk.com/great-tourist-attractions-in-chicago/)
+- [why do people visit boston](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-boston/)
+- [croatia points of interest](https://travel.allwomenstalk.com/places-in-croatia-every-visitor-must-see/)
+- [italy off the beaten track](https://travel.allwomenstalk.com/special-places-to-go-off-the-beaten-track-in-italy/)
+- [british regional foods](https://travel.allwomenstalk.com/british-foods-named-after-places/)
+- [is denmark worth visiting](https://travel.allwomenstalk.com/delightful-reasons-to-visit-denmark/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 - [7 Ways to Celebrate an Irish Themed Wedding ...](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
 

@@ -3,7 +3,7 @@ title: "7 Crazy Festivals Where You Throw Things ..."
 description: "La Tomatina; The Battle of the Oranges; Gulal; Songkran Festival; Els Enfarinats; More ..."
 url: "https://travel.allwomenstalk.com/crazy-festivals-where-you-throw-things/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Crazy Festivals Where You Throw Things ...
@@ -56,16 +56,16 @@ These are just some crazy throwing festivals you could take part in if you ever 
 
 ## Related Posts
 
-- [funny gender reveal for husband](https://parenting.allwomenstalk.com/gender-reveal-party-ideas-youll-love/)
-- [things to do with spare time](https://inspiration.allwomenstalk.com/productive-things-to-do-in-your-free-time/)
-- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/50s-party-ideas/)
-- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
-- [family dates](https://parenting.allwomenstalk.com/fun-family-dates-at-home/)
-- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
 - [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [kid games board](https://lifestyle.allwomenstalk.com/board-games-i-loved-as-a-kid/)
+- [family dates](https://parenting.allwomenstalk.com/fun-family-dates-at-home/)
+- [wedding grand exit](https://wedding.allwomenstalk.com/fun-grand-exit-ideas/)
+- [funny gender reveal for husband](https://parenting.allwomenstalk.com/gender-reveal-party-ideas-youll-love/)
+- [when are you at most daring meaning](https://inspiration.allwomenstalk.com/daring-things-to-do-while-youre-young/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/50s-party-ideas/)
+- [things to do with spare time](https://inspiration.allwomenstalk.com/productive-things-to-do-in-your-free-time/)
 - [fun educational websites for kids](https://parenting.allwomenstalk.com/fun-websites-for-kids/)
+- [themed nights ideas](https://lifestyle.allwomenstalk.com/fun-ideas-for-a-girls-night-in/)
 - [7 Fun Things to do in San Francisco ...](https://allwomenstalk.com/7-fun-things-to-do-in-san-francisco/)
 - [7 Fun Things to do on the Weekend ...](https://allwomenstalk.com/7-fun-things-to-do-on-the-weekend/)
 

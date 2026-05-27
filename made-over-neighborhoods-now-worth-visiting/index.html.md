@@ -3,7 +3,7 @@ title: "7 Made-over Neighborhoods Now Worth Visiting ..."
 description: "Shoreditch, London, England; Naka-Meguro, Tokyo, Japan; Williamsburg, Brooklyn, New York, USA; CBD/Newtown, Johannesburg, South Africa; Florentin, Tel Aviv, Israel; More ..."
 url: "https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Made\-over Neighborhoods Now Worth Visiting ...
@@ -56,16 +56,16 @@ Neighborhoods that have had a makeover make an interesting detour from a major c
 
 ## Related Posts
 
-- [thailand color festival](https://travel.allwomenstalk.com/thai-festivals-full-of-color-and-spectacle/)
-- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
-- [juices ghost town](https://travel.allwomenstalk.com/colorful-towns-that-will-get-your-wanderlust-juices-flowing/)
 - [carlsbad flower market](https://travel.allwomenstalk.com/best-blooming-flower-markets-around-the-world/)
-- [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
 - [desert cities in the us](https://travel.allwomenstalk.com/deliciously-interesting-desert-towns-in-the-usa/)
-- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
-- [pretty college](https://teen.allwomenstalk.com/most-gorgeous-college-campuses/)
+- [things to do in baku azerbaijan](https://travel.allwomenstalk.com/things-to-do-in-baku-azerbaijan/)
 - [most popular fair food](https://food.allwomenstalk.com/wild-and-crazy-state-fair-foods-youve-got-to-see-to-believe/)
+- [pretty college](https://teen.allwomenstalk.com/most-gorgeous-college-campuses/)
+- [thailand color festival](https://travel.allwomenstalk.com/thai-festivals-full-of-color-and-spectacle/)
 - [model billage](https://travel.allwomenstalk.com/model-villages-in-the-uk-for-a-fun-day-out/)
+- [juices ghost town](https://travel.allwomenstalk.com/colorful-towns-that-will-get-your-wanderlust-juices-flowing/)
+- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
+- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 

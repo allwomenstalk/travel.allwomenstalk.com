@@ -3,7 +3,7 @@ title: "10 Best Christmas Markets in the UK for 2018 ..."
 description: "Blenheim Palace (15th – 18th November); Bath Christmas Market (22nd November – 9th December); Edinburgh Christmas Market (16th November – 5 January); Country Living in London (7th – 11th November); York Christmas Market (15th – 23rd December); More ..."
 url: "https://travel.allwomenstalk.com/best-christmas-markets-in-the-uk-for/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 10 Best Christmas Markets in the UK for 2018 ...
@@ -72,16 +72,16 @@ A day out to the races can also be combined with a lovely market experience than
 
 ## Related Posts
 
-- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
-- [to do in jerusalem](https://travel.allwomenstalk.com/awesome-things-to-see-and-do-in-jerusalem/)
-- [t-express roller coaster korea](https://travel.allwomenstalk.com/of-the-worlds-most-jaw-dropping-roller-coasters-for-a-scream-fest/)
-- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
-- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
-- [highest rooftop bars in the world](https://travel.allwomenstalk.com/of-the-worlds-best-rooftop-bars/)
-- [bmw tower bangkok](https://travel.allwomenstalk.com/the-best-things-to-see-in-bangkok/)
-- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
 - [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
 - [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
+- [highest rooftop bars in the world](https://travel.allwomenstalk.com/of-the-worlds-best-rooftop-bars/)
+- [t-express roller coaster korea](https://travel.allwomenstalk.com/of-the-worlds-most-jaw-dropping-roller-coasters-for-a-scream-fest/)
+- [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
+- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
+- [bmw tower bangkok](https://travel.allwomenstalk.com/the-best-things-to-see-in-bangkok/)
+- [to do in jerusalem](https://travel.allwomenstalk.com/awesome-things-to-see-and-do-in-jerusalem/)
+- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
+- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 - [10 Free Entry Attractions in London ...](https://travel.allwomenstalk.com/free-entry-attractions-in-london/)
 

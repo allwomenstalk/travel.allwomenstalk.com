@@ -3,7 +3,7 @@ title: "20 Winners of the World Travel Awards 2012 ..."
 description: "Best Airline: Etihad; Best Destination: India; Best Hotel: Burj Al Arab; Best “Classic” Boutique Hotel: Dukes; Best Theme Park: Universal Orlando; More ..."
 url: "https://travel.allwomenstalk.com/winners-of-the-world-travel-awards/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 20 Winners of the World Travel Awards 2012 ...
@@ -94,16 +94,16 @@ Maybe there were few surprises among the World Travel Awards 2012 but it does go
 
 ## Related Posts
 
-- [dream exotic](https://travel.allwomenstalk.com/exotic-destinations-to-dream-of/)
-- [best eco travel destinations](https://travel.allwomenstalk.com/best-eco-tourism-destinations-for/)
-- [mount pinatubo active or inactive](https://travel.allwomenstalk.com/active-volcanoes-to-visit/)
-- [celebrity honeymoon destinations](https://wedding.allwomenstalk.com/celebrity-honeymoon-destinations/)
 - [most popular rides at california adventure](https://travel.allwomenstalk.com/exciting-disney-california-adventure-park-rides/)
-- [exotic caribbean islands](https://travel.allwomenstalk.com/captivating-caribbean-islands-how-to-choose-one-for-a-vacation/)
-- [beaver creek massage](https://travel.allwomenstalk.com/top-us-spas-for/)
 - [disneyland adventures rides](https://travel.allwomenstalk.com/best-disneyland-adventure-rides/)
+- [celebrity honeymoon destinations](https://wedding.allwomenstalk.com/celebrity-honeymoon-destinations/)
+- [mount pinatubo active or inactive](https://travel.allwomenstalk.com/active-volcanoes-to-visit/)
+- [best eco travel destinations](https://travel.allwomenstalk.com/best-eco-tourism-destinations-for/)
+- [beaver creek massage](https://travel.allwomenstalk.com/top-us-spas-for/)
+- [exotic caribbean islands](https://travel.allwomenstalk.com/captivating-caribbean-islands-how-to-choose-one-for-a-vacation/)
 - [secret things to do at disney world](https://lifestyle.allwomenstalk.com/hidden-gems-of-disney-world/)
 - [tulum yoga resorts](https://travel.allwomenstalk.com/amazing-yoga-retreats/)
+- [dream exotic](https://travel.allwomenstalk.com/exotic-destinations-to-dream-of/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

@@ -3,7 +3,7 @@ title: "7 Best Spas in NYC to Treat Yourself ..."
 description: "Caudalie Spa; Peninsula Hotel Spa; Spa Castle; Bliss Spa; Mandarin Oriental Spa; More ..."
 url: "https://travel.allwomenstalk.com/best-spas-in-nyc-to-treat-yourself/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Best Spas in NYC to Treat Yourself ...
@@ -70,16 +70,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1164603403335366
 
 ## Related Posts
 
+- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
 - [weird honeymoon destinations](https://wedding.allwomenstalk.com/offbeat-honeymoon-destinations/)
-- [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
 - [greek white island](https://travel.allwomenstalk.com/greek-islands-in-a-nutshell/)
-- [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
-- [kid friendly flights](https://travel.allwomenstalk.com/child-friendly-airlines/)
+- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
 - [aqualoop boat](https://travel.allwomenstalk.com/wild-water-rides-around-the-world/)
 - [jamaica demographics race](https://travel.allwomenstalk.com/juicy-reasons-to-visit-jamaica/)
 - [top 10 luxury trains in the world](https://travel.allwomenstalk.com/luxurious-train-trips/)
-- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
-- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
+- [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
+- [kid friendly flights](https://travel.allwomenstalk.com/child-friendly-airlines/)
+- [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

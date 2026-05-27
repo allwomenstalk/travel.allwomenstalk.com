@@ -3,7 +3,7 @@ title: "7 Countries That Were Once Portuguese Colonies ..."
 description: "Angola; Brazil; Cape Verde; Equatorial Guinea; Mozambique; More ..."
 url: "https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Countries That Were Once Portuguese Colonies ...
@@ -42,16 +42,16 @@ It’s quite surprising that a country as small as Portugal could once have rule
 
 ## Related Posts
 
-- [mia jewelry aventura mall](https://travel.allwomenstalk.com/amazing-reasons-to-visit-miami/)
-- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
-- [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
-- [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
-- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
-- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
-- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
-- [natural attractions in europe](https://travel.allwomenstalk.com/magnificent-natural-wonders-of-france/)
-- [traditions of mexican culture](https://travel.allwomenstalk.com/customs-and-traditions-of-mexico/)
 - [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
+- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
+- [traditions of mexican culture](https://travel.allwomenstalk.com/customs-and-traditions-of-mexico/)
+- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
+- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
+- [worlds best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
+- [natural attractions in europe](https://travel.allwomenstalk.com/magnificent-natural-wonders-of-france/)
+- [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
+- [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
+- [mia jewelry aventura mall](https://travel.allwomenstalk.com/amazing-reasons-to-visit-miami/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

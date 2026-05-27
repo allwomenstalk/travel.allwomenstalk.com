@@ -3,7 +3,7 @@ title: "Coffins Cars and Cribs: the Craziest Hotel Beds ..."
 description: "The Sandwich Bed in the FantaSuite Hotel, Greenwood, Indiana; The Only Room at Grand Hotel De Kromme Raake, Eenrum, the Netherlands; Indoor Camping in Room 121 at Hotel Fox, Copenhagen, Denmark; Fall in Love or Drown in Pepto-Bismol at Grand Hotel Savoia, Cortina D’Ampezzo, Italy; The Kiboko Star Bed in the Loisaba Wilderness, Laikipa, Kenya; More ..."
 url: "https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Coffins Cars and Cribs: the Craziest Hotel Beds ...
@@ -152,16 +152,16 @@ The hotel industry has all sorts of plays, ploys and tricks to pull us in as pun
 
 ## Related Posts
 
-- [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
-- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
-- [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
-- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
 - [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
-- [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
-- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
-- [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
 - [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
+- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
+- [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
+- [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
+- [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
+- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
 - [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
+- [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
+- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [Aloft Hotels: an Experience ...](https://allwomenstalk.com/aloft-hotels-an-experience/)
 

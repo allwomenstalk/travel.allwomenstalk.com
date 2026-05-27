@@ -3,7 +3,7 @@ title: "The Gore London: Where History Meets Hospitality"
 description: "A Legacy of Unforgettable Elegance; A Homage to History’s Leading Ladies; Royalty in Every Detail; The Legacy of Fanny and Ada Cook; A Taste of Kensington's Charm; More ..."
 url: "https://travel.allwomenstalk.com/enchanting-suites-the-gore-london/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # The Gore London: Where History Meets Hospitality

@@ -3,7 +3,7 @@ title: "15 Awesome Things to See and do in Jerusalem ..."
 description: "The Old City; Yad Vashem; The Dome of the Rock; The Western Wall Tunnel; The Mount of Olives; More ..."
 url: "https://travel.allwomenstalk.com/awesome-things-to-see-and-do-in-jerusalem/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 15 Awesome Things to See and do in Jerusalem ...
@@ -102,15 +102,15 @@ was home to the priestly family Kathros during the era of the Second Temple. Eer
 
 ## Related Posts
 
-- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
-- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
-- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
 - [activities to do in cape town](https://travel.allwomenstalk.com/fun-things-to-do-in-cape-town/)
-- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
-- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
+- [holi outside india](https://travel.allwomenstalk.com/best-places-to-celebrate-holi-outside-india/)
 - [beautiful destinations in australia](https://travel.allwomenstalk.com/natural-attractions-of-australia/)
-- [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
+- [prettiest universities in the world](https://travel.allwomenstalk.com/top-most-beautiful-universities-in-the-world/)
 - [biggest st patricks day celebrations in the world](https://travel.allwomenstalk.com/awesome-st-patricks-day-parades-from-around-the-world-to-put-on-your-travel-bucket-list/)
+- [los angeles vacation attractions](https://travel.allwomenstalk.com/top-tourist-attractions-in-los-angeles/)
+- [best place in the world to celebrate christmas](https://travel.allwomenstalk.com/best-places-in-the-world-to-celebrate-christmas/)
+- [barcelona skull building](https://travel.allwomenstalk.com/must-see-gaudi-buildings-in-barcelona/)
+- [festival of lights celebrations around the world](https://travel.allwomenstalk.com/fabulous-light-festivals-around-the-world/)
 - [bursa travel guide](https://travel.allwomenstalk.com/a-tourists-guide-to-bursa-turkey/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 - [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)

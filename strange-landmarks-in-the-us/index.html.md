@@ -3,7 +3,7 @@ title: "7 Strange Landmarks in the US ..."
 description: "Salton Sea, California; Roswell, New Mexico; Lucy the Margate Elephant, New Jersey; Cadillac Ranch, Texas; Lucas, Kansas; More ..."
 url: "https://travel.allwomenstalk.com/strange-landmarks-in-the-us/"
 category: "travel"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Strange Landmarks in the US ...
@@ -56,15 +56,15 @@ Hands up then! Who’s visited any of these strange US landmarks?
 
 ## Related Posts
 
-- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
-- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
-- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
-- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
 - [what to do when in manila](https://travel.allwomenstalk.com/fabulous-things-to-do-in-manila/)
-- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
 - [tourist attractions in montevideo uruguay](https://travel.allwomenstalk.com/best-attractions-of-montevideo/)
+- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
+- [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
+- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
 - [best small towns to visit in new england](https://travel.allwomenstalk.com/small-new-england-towns-that-you-must-visit/)
 - [world zoos ranked](https://travel.allwomenstalk.com/epic-zoos-around-the-world-you-must-see-at-least-once/)
+- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
+- [inspired writers](https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/)
 - [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [Top 10 Places to Travel to in the US ...](https://allwomenstalk.com/top-10-places-to-travel-to-in-the-us/)
