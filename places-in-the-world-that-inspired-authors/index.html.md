@@ -3,7 +3,7 @@ title: "7 Places in the World That Inspired Authors ..."
 description: "Washington, D.C; Edinburgh, Scotland; St. Petersburg, Russia; Paris, France; London, England; More ..."
 url: "https://travel.allwomenstalk.com/places-in-the-world-that-inspired-authors/"
 category: "travel"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Places in the World That Inspired Authors ...
@@ -56,16 +56,16 @@ I could also have mentioned the gorgeous Greek island of Santorini (Lord Byron),
 
 ## Related Posts
 
-- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
+- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
 - [best things to do new york city](https://travel.allwomenstalk.com/touristy-things-to-do-in-new-york-city/)
+- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
+- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
 - [best small towns to visit in new england](https://travel.allwomenstalk.com/small-new-england-towns-that-you-must-visit/)
 - [sandeman tours london](https://travel.allwomenstalk.com/free-walking-tours-in-south-america/)
-- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
-- [dutch restaurant cape town](https://travel.allwomenstalk.com/awesome-restaurants-in-cape-town-for-a-taste-of-south-africa/)
-- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
-- [casual places for dinner](https://travel.allwomenstalk.com/of-americas-best-casual-restaurants/)
-- [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
 - [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
+- [carparthian](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-romania/)
+- [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
+- [tours to south east asia](https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

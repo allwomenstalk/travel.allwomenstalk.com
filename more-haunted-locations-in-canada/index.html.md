@@ -3,7 +3,7 @@ title: "7 More Haunted Locations in Canada ..."
 description: "Fairmont Empress Hotel, Victoria, British Columbia; Kingston Penitentiary, Kingston, Ontario; Ottawa Jail Hostel, Ottawa, Ontario; Deane House, Fort Calgary, Alberta; Riverview Mental Hospital, Coquitlam, British Columbia; More ..."
 url: "https://travel.allwomenstalk.com/more-haunted-locations-in-canada/"
 category: "travel"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 More Haunted Locations in Canada ...
@@ -56,16 +56,16 @@ Did any of these places give you the heebie-geebies? Have you visited any before
 
 ## Related Posts
 
-- [are music festivals worth it](https://music.allwomenstalk.com/music-festivals-worth-going-to-if-you-have-the-chance/)
-- [most fun cities to visit in the us](https://travel.allwomenstalk.com/cities-you-must-visit-in-the-united-states/)
-- [spice lounge launceston](https://travel.allwomenstalk.com/hidden-gems-in-tasmania-australia/)
 - [darjeeling chowk bazar](https://travel.allwomenstalk.com/attractions-and-things-to-do-in-darjeeling/)
+- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
+- [are music festivals worth it](https://music.allwomenstalk.com/music-festivals-worth-going-to-if-you-have-the-chance/)
+- [free walking tours washington dc](https://travel.allwomenstalk.com/free-walking-tours-in-north-america/)
+- [most fun cities to visit in the us](https://travel.allwomenstalk.com/cities-you-must-visit-in-the-united-states/)
+- [best places to get volunteer hours](https://teen.allwomenstalk.com/best-places-to-get-volunteer-hours/)
+- [boulder sightseeing](https://travel.allwomenstalk.com/boldest-attractions-in-boulder-colorado/)
+- [spice lounge launceston](https://travel.allwomenstalk.com/hidden-gems-in-tasmania-australia/)
 - [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
 - [best italian castles](https://travel.allwomenstalk.com/italian-castles-youll-want-to-call-home/)
-- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
-- [free walking tours washington dc](https://travel.allwomenstalk.com/free-walking-tours-in-north-america/)
-- [boulder sightseeing](https://travel.allwomenstalk.com/boldest-attractions-in-boulder-colorado/)
-- [best places to get volunteer hours](https://teen.allwomenstalk.com/best-places-to-get-volunteer-hours/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 

@@ -3,7 +3,7 @@ title: "Why the 80s Were Marbellas Most Dazzling Decade..."
 description: "The 80s: A Symphony of Elegance and Opulence; Cars, Couture, and Captivating Nights; Festivals, Fêtes, and Moonlit Masquerades; The Legacy of Marbella: Timeless Influence; More ..."
 url: "https://travel.allwomenstalk.com/timeless-glamour-marbella-1980s/"
 category: "travel"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Why the 80s Were Marbellas Most Dazzling Decade...

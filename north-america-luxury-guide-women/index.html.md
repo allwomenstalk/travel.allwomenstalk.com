@@ -3,7 +3,7 @@ title: "The Discerning Woman’s Guide to Luxury in North America"
 description: "Planning a girls' trip or thinking of taking a luxury solo getaway? This is the women’s guide to luxury in North America you didn't know you needed."
 url: "https://travel.allwomenstalk.com/north-america-luxury-guide-women/"
 category: "travel"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # The Discerning Woman’s Guide to Luxury in North America

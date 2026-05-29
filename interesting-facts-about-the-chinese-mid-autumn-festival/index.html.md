@@ -3,7 +3,7 @@ title: "7 Interesting Facts about the Chinese Mid-Autumn Festival ..."
 description: "‘Thank You, Moon!’; Full Moon; Mooncakes Galore; Different Flavors; The Girl with the Moon; More ..."
 url: "https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/"
 category: "travel"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Interesting Facts about the Chinese Mid\-Autumn Festival ...
@@ -42,16 +42,16 @@ Did you celebrate the festival and burn incense to the moon?
 
 ## Related Posts
 
-- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
-- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
-- [frozen 3d movie](https://movies.allwomenstalk.com/little-known-facts-about-disneys-frozen/)
-- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
-- [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
 - [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
-- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
+- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
+- [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
 - [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
 - [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
+- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
+- [frozen 3d movie](https://movies.allwomenstalk.com/little-known-facts-about-disneys-frozen/)
 - [5 Dragons Facts to Know ...](https://twilight.allwomenstalk.com/5-dragons-facts-to-know/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 
