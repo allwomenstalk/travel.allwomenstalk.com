@@ -3,7 +3,7 @@ title: "4 Fun Things to do in Kansas City ..."
 description: "Worlds of Fun; Winstead's; Country Club Plaza; Museums; More ..."
 url: "https://travel.allwomenstalk.com/top-things-to-do-to-in-kansas-city/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 4 Fun  Things to do in Kansas City ...
@@ -36,16 +36,16 @@ Kansas City has a ton of museum options when you are interested in learning some
 
 ## Related Posts
 
-- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
+- [celebrate gif friends](https://lifestyle.allwomenstalk.com/ways-to-celebrate-christmas-with-friends/)
 - [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
-- [things to do when youre lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
-- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
-- [quirky date ideas](https://love.allwomenstalk.com/offbeat-date-ideas/)
-- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
 - [top 10 things to do in toronto](https://travel.allwomenstalk.com/top-10-things-to-do-in-toronto/)
 - [what to do on your 30th birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-30th-birthday/)
-- [celebrate gif friends](https://lifestyle.allwomenstalk.com/ways-to-celebrate-christmas-with-friends/)
+- [good couple activities](https://love.allwomenstalk.com/fun-things-for-couples-to-do-together/)
+- [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
+- [things to do when youre lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
 - [things to do on your phone when bored](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-bored/)
+- [quirky date ideas](https://love.allwomenstalk.com/offbeat-date-ideas/)
+- [latin dancing nyc](https://music.allwomenstalk.com/learn-salsa-for-free-in-new-york-city/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 - [10 Top Fun Things to do in San Francisco ...](https://travel.allwomenstalk.com/top-fun-things-to-do-in-san-francisco/)
 

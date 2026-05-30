@@ -3,7 +3,7 @@ title: "10 Really Cool Small Towns in America ..."
 description: "Lexington, Virginia; Cayucos, California; Breaux Bridge, Louisiana; Tubac, Arizona; Wallace, Idaho; More ..."
 url: "https://travel.allwomenstalk.com/really-cool-small-towns-in-america/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 Really Cool Small Towns in America ...
@@ -56,16 +56,16 @@ Top Photo Credit: [m@percy](https://www.flickr.com/photos/henstyle/5100914921/)
 
 ## Related Posts
 
-- [10 Top Places for Afternoon Tea in London ...](https://travel.allwomenstalk.com/top-places-for-afternoon-tea-in-london/)
-- [athens consignment sale](https://travel.allwomenstalk.com/places-for-shopping-in-athens/)
-- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
-- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
-- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
+- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
+- [athens consignment sale](https://travel.allwomenstalk.com/places-for-shopping-in-athens/)
+- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
+- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
 - [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
-- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
+- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [10 Top Places for Afternoon Tea in London ...](https://travel.allwomenstalk.com/top-places-for-afternoon-tea-in-london/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 

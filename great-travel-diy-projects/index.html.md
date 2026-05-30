@@ -3,7 +3,7 @@ title: "10 Great Travel DIY Projects ..."
 description: "Tech Organizer; Art Kit; Pocket + Hanger; Sewing Kit; Drawing Kit; More ..."
 url: "https://travel.allwomenstalk.com/great-travel-diy-projects/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 Great Travel DIY Projects ...
@@ -93,16 +93,16 @@ If you have more to add to this list of **travel craft ideas**, let us know!
 
 ## Related Posts
 
+- [diy flowy skirt](https://lifestyle.allwomenstalk.com/sweet-diy-maxi-skirts-to-sew/)
+- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
+- [how to make hats](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
+- [diy mini cake stand](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
+- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
 - [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
 - [artistic cutlery](https://lifestyle.allwomenstalk.com/creative-cutlery-crafts/)
+- [creative camping ideas](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)
 - [home made shelf ideas](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [suitcase cabinet](https://lifestyle.allwomenstalk.com/brilliant-ways-to-repurpose-a-suitcase/)
-- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
-- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
-- [diy flowy skirt](https://lifestyle.allwomenstalk.com/sweet-diy-maxi-skirts-to-sew/)
-- [how to make hats](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
-- [creative camping ideas](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)
-- [diy mini cake stand](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

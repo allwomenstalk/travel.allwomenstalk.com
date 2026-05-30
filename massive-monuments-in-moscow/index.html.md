@@ -3,7 +3,7 @@ title: "7 Massive Monuments in Moscow ..."
 description: "Yuri Dolgoruky, Tverskaya Street; Peter the Great, Moscow River; Alexander Pushkin, Pushkinskaya Square; The White Knight of the Soviet Union, Red Square; Minin and Pozharsky, St. Basil’s Cathedral; More ..."
 url: "https://travel.allwomenstalk.com/massive-monuments-in-moscow/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Massive Monuments in Moscow ...
@@ -56,16 +56,16 @@ It might seem that once you start looking, the monuments of Moscow stand on ever
 
 ## Related Posts
 
-- [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)
-- [best cities for runners](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
-- [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
-- [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
-- [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 - [top 10 skylines in the us](https://travel.allwomenstalk.com/best-city-skylines-in-the-world/)
+- [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 - [8 over-rated Tourist Places ...](https://travel.allwomenstalk.com/over-rated-tourist-places/)
+- [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
+- [8 Things to See in Paris ...](https://travel.allwomenstalk.com/things-to-see-in-paris/)
 - [8 Places to Visit in Spain ...](https://travel.allwomenstalk.com/places-to-visit-in-spain/)
 - [pubs in britain](https://travel.allwomenstalk.com/10-famous-british-pubs/)
-- [8 Things to See in Paris ...](https://travel.allwomenstalk.com/things-to-see-in-paris/)
+- [best cities for runners](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
+- [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)
+- [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
 - [7 Massive Monuments in Moscow ...](https://travel.allwomenstalk.com/massive-monuments-in-moscow/)
 - [10 Marvelous Moscow Attractions ...](https://travel.allwomenstalk.com/marvelous-moscow-attractions/)
 

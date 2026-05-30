@@ -3,7 +3,7 @@ title: "7 Rules of Etiquette for the Airplane Bathroom ..."
 description: "Lock the Door; Go at the Right Time; Make It Snappy; Don’t Be an Aisle Seat a-hole; Don’t Go Alone – if You Are Traveling with Kids; More ..."
 url: "https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Rules of Etiquette for the Airplane Bathroom ...
@@ -46,12 +46,12 @@ Cabin crew do their best to try and keep everything clean and tidy, so please do
 - [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
 - [whats not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
 - [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
-- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
 - [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
 - [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
 - [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
 - [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
 - [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
+- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
 - [7 Ways to Deal with Annoying Co-Passengers ...](https://travel.allwomenstalk.com/ways-to-deal-with-annoying-co-passengers/)
 - [7 Necessary Rules of Theatre Etiquette ...](https://movies.allwomenstalk.com/necessary-rules-of-theatre-etiquette/)
 

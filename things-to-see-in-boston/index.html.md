@@ -3,7 +3,7 @@ title: "10 Things to See in Boston ..."
 description: "Faneuil Hall; Boston Common; Fenway Park; Harvard Square; New England Aquarium; More ..."
 url: "https://travel.allwomenstalk.com/things-to-see-in-boston/"
 category: "travel"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 Things to See in Boston ...
@@ -76,16 +76,16 @@ Top Photo Credit: [tlucia](https://www.flickr.com/photos/28658994@N06/3356581518
 
 ## Related Posts
 
-- [7 Sights to See in Germany ...](https://travel.allwomenstalk.com/sights-to-see-in-germany/)
-- [top 10 longest streets in the world](https://travel.allwomenstalk.com/amazingly-interesting-and-unusual-streets-around-the-world/)
-- [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
-- [9 Places You Will Never Visit ...](https://travel.allwomenstalk.com/places-you-will-never-visit/)
-- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
-- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
-- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
-- [smallest bar in the world key west](https://travel.allwomenstalk.com/of-the-smallest-but-most-welcoming-bars-in-the-world/)
-- [8 Wondrous Waterfalls to Be Amazed by ...](https://travel.allwomenstalk.com/wondrous-waterfalls-to-be-amazed-by/)
 - [obscure travel destinations](https://travel.allwomenstalk.com/incredibly-obscure-but-amazing-places/)
+- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
+- [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
+- [7 Sights to See in Germany ...](https://travel.allwomenstalk.com/sights-to-see-in-germany/)
+- [8 Wondrous Waterfalls to Be Amazed by ...](https://travel.allwomenstalk.com/wondrous-waterfalls-to-be-amazed-by/)
+- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
+- [smallest bar in the world key west](https://travel.allwomenstalk.com/of-the-smallest-but-most-welcoming-bars-in-the-world/)
+- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
+- [9 Places You Will Never Visit ...](https://travel.allwomenstalk.com/places-you-will-never-visit/)
+- [top 10 longest streets in the world](https://travel.allwomenstalk.com/amazingly-interesting-and-unusual-streets-around-the-world/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 
