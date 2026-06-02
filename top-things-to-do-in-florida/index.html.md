@@ -3,7 +3,7 @@ title: "10 Top Things to do in Florida ..."
 description: "Keep the Kids Entertained; Go into Space; Love Fort Lauderdale; Bronze on the Beach; See St Augustine; More ..."
 url: "https://travel.allwomenstalk.com/top-things-to-do-in-florida/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Top Things to do in Florida ...
@@ -76,16 +76,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1598778554918491
 
 ## Related Posts
 
-- [4th of july free printables](https://lifestyle.allwomenstalk.com/free-4th-of-july-printables/)
+- [meet new friends in the city](https://lifestyle.allwomenstalk.com/excellent-ways-to-make-new-friends-in-a-city/)
 - [jobs everyone should try](https://money.allwomenstalk.com/jobs-everyone-should-try-at-least-once/)
-- [baby gender reveal party ideas](https://lifestyle.allwomenstalk.com/excellent-gender-reveal-party-ideas/)
-- [community involvement activities](https://lifestyle.allwomenstalk.com/community-service-ideas-to-help-others/)
-- [things to do in party](https://lifestyle.allwomenstalk.com/cool-things-to-do-instead-of-going-to-a-college-party/)
 - [fall activities to do with your friends](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-friends-in-fall/)
 - [what is a sleep under party](https://parenting.allwomenstalk.com/tips-for-great-sleepover-parties/)
-- [meet new friends in the city](https://lifestyle.allwomenstalk.com/excellent-ways-to-make-new-friends-in-a-city/)
+- [baby gender reveal party ideas](https://lifestyle.allwomenstalk.com/excellent-gender-reveal-party-ideas/)
 - [list of geeky hobbies](https://lifestyle.allwomenstalk.com/best-nerdy-but-fun-hobbies-to-try/)
+- [things to do in party](https://lifestyle.allwomenstalk.com/cool-things-to-do-instead-of-going-to-a-college-party/)
+- [4th of july free printables](https://lifestyle.allwomenstalk.com/free-4th-of-july-printables/)
 - [adult classes for couples](https://lifestyle.allwomenstalk.com/fun-evening-classes-to-try/)
+- [community involvement activities](https://lifestyle.allwomenstalk.com/community-service-ideas-to-help-others/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [10 Top Fun Things to do in San Francisco ...](https://travel.allwomenstalk.com/top-fun-things-to-do-in-san-francisco/)
 

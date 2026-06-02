@@ -3,7 +3,7 @@ title: "7 Cost-Next-to-Nothing Activities to do This Summer in NYC ..."
 description: "The Downtown Boathouse's Free Kayaking; Pier 25 Miniature Golf; SummerStage Concerts and More; NYC Park outside Movie Screenings; Stop by a Beach at Night; More ..."
 url: "https://travel.allwomenstalk.com/cost-next-to-nothing-activities-to-do-this-summer-in-nyc/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Cost\-Next\-to\-Nothing Activities to do This Summer in NYC ...
@@ -57,15 +57,15 @@ The best things in life are free, or almost free! So don’t be discouraged abou
 ## Related Posts
 
 - [Incredible Tips for Girls Who Want to Extend Their...](https://beauty.allwomenstalk.com/how-to-make-your-tan-last-as-long-as-it-can/)
-- [10 Shows on Netflix You Should Binge Watch This Su...](https://movies.allwomenstalk.com/shows-on-netflix-you-should-bingewatch-this-summer/)
-- [How to Avoid Getting a Bad Sunburn This Summer ...](https://skincare.allwomenstalk.com/how-to-avoid-getting-a-bad-sunburn-this-summer/)
-- [This is Why Healthy Girls Love Summer so Much ...](https://health.allwomenstalk.com/the-health-benefits-of-summer-you-did-not-know-about/)
-- [7 Outdoor Cinemas Where You Should Spend Your Summ...](https://movies.allwomenstalk.com/outdoor-cinemas-where-you-should-spend-your-summer/)
-- [Super-Fun Things All Girls Should Tick off Their B...](https://lifestyle.allwomenstalk.com/fun-things-to-squeeze-in-before-summer-ends/)
 - [How to Kick It up with Your Besties This Summer Br...](https://lifestyle.allwomenstalk.com/how-to-kick-it-up-with-your-besties-this-summer-break/)
 - [best islands to visit in the summer](https://travel.allwomenstalk.com/the-best-us-islands-to-visit-this-summer/)
-- [7 Ways to Cool Your Skin down in the Summer Heat ....](https://skincare.allwomenstalk.com/ways-to-cool-your-skin-down-in-the-summer-heat/)
+- [This is Why Healthy Girls Love Summer so Much ...](https://health.allwomenstalk.com/the-health-benefits-of-summer-you-did-not-know-about/)
+- [Super-Fun Things All Girls Should Tick off Their B...](https://lifestyle.allwomenstalk.com/fun-things-to-squeeze-in-before-summer-ends/)
 - [You Dont Have to Wait until Fall to Enjoy These 7 ...](https://lifestyle.allwomenstalk.com/you-dont-have-to-wait-until-fall-to-enjoy-these-things/)
+- [How to Avoid Getting a Bad Sunburn This Summer ...](https://skincare.allwomenstalk.com/how-to-avoid-getting-a-bad-sunburn-this-summer/)
+- [7 Outdoor Cinemas Where You Should Spend Your Summ...](https://movies.allwomenstalk.com/outdoor-cinemas-where-you-should-spend-your-summer/)
+- [10 Shows on Netflix You Should Binge Watch This Su...](https://movies.allwomenstalk.com/shows-on-netflix-you-should-bingewatch-this-summer/)
+- [7 Ways to Cool Your Skin down in the Summer Heat ....](https://skincare.allwomenstalk.com/ways-to-cool-your-skin-down-in-the-summer-heat/)
 - [10 Best Summer Activities ...](https://allwomenstalk.com/10-summer-activities/)
 - [10 Great Activities for Summer ...](https://allwomenstalk.com/10-great-activities-for-summer/)
 

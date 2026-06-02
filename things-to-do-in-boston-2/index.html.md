@@ -3,7 +3,7 @@ title: "8 Things to do in Boston ..."
 description: "Go to Fenway; Check out the Museums; Take a Ferry out of the Harbor; Tour the Commons; Visit Harvard; More ..."
 url: "https://travel.allwomenstalk.com/things-to-do-in-boston-2/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Things to do in Boston ...
@@ -64,14 +64,14 @@ Top Photo Credit: [speedbird 402](https://www.flickr.com/photos/24091570@N08/309
 
 ## Related Posts
 
-- [7 Free Days out with the Kids ...](https://parenting.allwomenstalk.com/free-days-out-with-the-kids/)
-- [8 Inexpensive Ideas for Family Together Time ...](https://parenting.allwomenstalk.com/8-inexpensive-ideas-for-family-together-time/)
 - [movies7 harry potter](https://movies.allwomenstalk.com/ways-you-can-keep-enjoying-harry-potter/)
-- [what can you do at 10 years old](https://parenting.allwomenstalk.com/7-fun-experiences-to-give-your-10-year-old/)
 - [10 Things to do with Your Kids when It Rains ...](https://parenting.allwomenstalk.com/10-things-to-do-with-your-kids-when-it-rains/)
+- [best board games for teenager](https://parenting.allwomenstalk.com/top-8-popular-board-games-for-teens/)
 - [things to do for your birthday teenager](https://parenting.allwomenstalk.com/7-ways-to-celebrate-a-teens-birthday/)
 - [coolest things to do in athens](https://travel.allwomenstalk.com/fun-what-to-do-in-athens/)
-- [best board games for teenager](https://parenting.allwomenstalk.com/top-8-popular-board-games-for-teens/)
+- [8 Inexpensive Ideas for Family Together Time ...](https://parenting.allwomenstalk.com/8-inexpensive-ideas-for-family-together-time/)
+- [what can you do at 10 years old](https://parenting.allwomenstalk.com/7-fun-experiences-to-give-your-10-year-old/)
+- [7 Free Days out with the Kids ...](https://parenting.allwomenstalk.com/free-days-out-with-the-kids/)
 - [keep the kids entertained](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [hobbies for retired man](https://parenting.allwomenstalk.com/hobbies-for-retired-parents/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)

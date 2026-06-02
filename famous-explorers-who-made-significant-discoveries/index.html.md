@@ -3,7 +3,7 @@ title: "7 Famous Explorers Who Made Significant Discoveries ..."
 description: "Ferdinand Magellan; Hernan Cortes; Charles Darwin; Marco Polo; Lewis and Clark; More ..."
 url: "https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Famous Explorers Who Made Significant Discoveries ...
@@ -56,16 +56,16 @@ I think I would have like to have been Captain Cook who discovered Australia but
 
 ## Related Posts
 
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
 - [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
 - [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
 - [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
-- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
 - [7 Wonders of Egypt ...](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

@@ -3,7 +3,7 @@ title: "19 Really Scary Places to Visit on Halloween ..."
 description: "Island of the Dolls, Mexico; Aokigahara, Japan; Leap Castle, Ireland; Sedlec Ossuary, Czech Republic; Winchester Mystery House; More ..."
 url: "https://travel.allwomenstalk.com/really-scary-places-to-visit-on-halloween/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 19 Really Scary Places to Visit on Halloween ...
@@ -128,16 +128,16 @@ Are you scared now? I’m not sure I would have the nerve to stomach any of thes
 
 ## Related Posts
 
-- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
 - [halloween house diy](https://diy.allwomenstalk.com/adorable-and-super-easy-diy-halloween-decorations/)
-- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
-- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
 - [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
 - [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
-- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
-- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
-- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
 - [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
+- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
+- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
+- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
+- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
+- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 

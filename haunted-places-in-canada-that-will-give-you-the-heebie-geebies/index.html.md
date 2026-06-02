@@ -3,7 +3,7 @@ title: "7 Haunted Places in Canada That Will Give You the Heebie-geebies ..."
 description: "Fortress of Louisbourg, Cape Breton, Nova Scotia; Plains of Abraham, Quebec City, Quebec; The Keg Mansion, Toronto, Ontario; Fort Garry Hotel, Winnipeg, Manitoba; St. Louis Ghost Train, St. Louis, Saskatchewan; More ..."
 url: "https://travel.allwomenstalk.com/haunted-places-in-canada-that-will-give-you-the-heebie-geebies/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Haunted Places in Canada That Will Give You the Heebie\-geebies ...
@@ -59,16 +59,16 @@ These seven haunted places in Canada are just a small sampling of the many locat
 
 ## Related Posts
 
-- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
-- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
-- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
+- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
 - [my welsh castle](https://travel.allwomenstalk.com/welsh-castles-that-will-take-you-back-in-time/)
 - [most unique golf courses](https://travel.allwomenstalk.com/interesting-and-unique-golf-courses/)
-- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
-- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
-- [great british cities](https://travel.allwomenstalk.com/british-cities-to-visit-when-you-are-in-the-uk/)
-- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
 - [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
+- [famous cities of the world](https://travel.allwomenstalk.com/infamous-and-famous-lost-cities-of-the-world/)
+- [pros and cons of living in the azores](https://travel.allwomenstalk.com/awesome-things-to-do-in-the-azores/)
+- [attractions in kl](https://travel.allwomenstalk.com/attractions-of-kuala-lumpur-for-a-true-taste-of-asia/)
+- [things you can only do in australia](https://travel.allwomenstalk.com/things-to-do-in-australia-before-you-die/)
+- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
+- [irish bars in manchester](https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 - [5 Haunted Places ...](https://twilight.allwomenstalk.com/5-haunted-places/)
 

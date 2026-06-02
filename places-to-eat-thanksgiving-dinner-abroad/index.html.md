@@ -3,7 +3,7 @@ title: "7 Places to Eat Thanksgiving Dinner Abroad ..."
 description: "The Butchers Hall, London; The Starlite Diner, Moscow; Bourbon Street Restaurant, Bangkok; Joe Allen, Paris; Savoy Cabbage, Cape Town; More ..."
 url: "https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Places to Eat Thanksgiving Dinner Abroad ...
@@ -50,16 +50,16 @@ Are you having Thanksgiving at home this year or are you away? We’d love to he
 
 ## Related Posts
 
-- [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
-- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
-- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
+- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
+- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
 - [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
+- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
+- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
+- [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
 - [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
 - [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
-- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
-- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
-- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
-- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
+- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
 - [7 Different Dining Experiences ...](https://allwomenstalk.com/7-different-dining-experiences/)
 - [7 Fabulous Food Festivals ...](https://travel.allwomenstalk.com/fabuolous-food-festivals/)
 

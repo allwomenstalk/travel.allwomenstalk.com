@@ -3,7 +3,7 @@ title: "The Best Places to Drink Beer on St. Patricks Day ..."
 description: "Tir Na Nog, New York City, New York; The Palace Bar, Dublin, Ireland; The Black Rose, Boston, Massachusetts; Durty Nelly’s, Sydney, Australia; The Irish Bank, San Francisco, California; More ..."
 url: "https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Best Places to Drink Beer on St. Patricks Day ...
@@ -43,15 +43,15 @@ Where will you be drinking beer this St. Patrick’s Day?
 ## Related Posts
 
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
-- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
-- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
 - [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
-- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
-- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
-- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
+- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
 - [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
+- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
+- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
+- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
+- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
 - [10 Reasons to Visit Ireland ...](https://travel.allwomenstalk.com/10-reasons-to-visit-ireland/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 

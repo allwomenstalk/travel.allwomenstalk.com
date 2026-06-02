@@ -3,7 +3,7 @@ title: "7 British Foods Named after Places ..."
 description: "Cheddar Cheese; Eccles Cake; Cornish Pasty; Pontefract Cakes; Arbroath Smokie; More ..."
 url: "https://travel.allwomenstalk.com/british-foods-named-after-places/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 British Foods Named after Places ...
@@ -44,16 +44,16 @@ Top Photo Credit: [donutstodelirium.com](https://goo.gl/Fje9go)
 
 ## Related Posts
 
-- [perfect pizzas](https://travel.allwomenstalk.com/places-for-perfect-pizza-in-america/)
-- [praga what to do](https://travel.allwomenstalk.com/brilliant-things-to-do-in-prague/)
-- [swedish sights](https://travel.allwomenstalk.com/sensational-sights-in-sweden/)
-- [experiences berlin](https://travel.allwomenstalk.com/must-do-experiences-in-berlin/)
 - [waterloo antique market](https://travel.allwomenstalk.com/european-antique-markets/)
 - [pictures of cool things](https://travel.allwomenstalk.com/totally-cool-things-to-do-in-south-america/)
-- [why to visit istanbul](https://travel.allwomenstalk.com/inviting-reasons-to-visit-istanbul/)
-- [most popular museums in nyc](https://travel.allwomenstalk.com/top-museums-you-have-to-visit-in-nyc/)
 - [african safari best places to go](https://travel.allwomenstalk.com/stupendous-places-for-an-african-safari/)
+- [swedish sights](https://travel.allwomenstalk.com/sensational-sights-in-sweden/)
+- [experiences berlin](https://travel.allwomenstalk.com/must-do-experiences-in-berlin/)
+- [most popular museums in nyc](https://travel.allwomenstalk.com/top-museums-you-have-to-visit-in-nyc/)
+- [perfect pizzas](https://travel.allwomenstalk.com/places-for-perfect-pizza-in-america/)
 - [the thatchers bures](https://travel.allwomenstalk.com/essentially-english-pubs/)
+- [praga what to do](https://travel.allwomenstalk.com/brilliant-things-to-do-in-prague/)
+- [why to visit istanbul](https://travel.allwomenstalk.com/inviting-reasons-to-visit-istanbul/)
 - [7 Most Exotic Delicacies in the World ...](https://cooking.allwomenstalk.com/7-most-exotic-delicacies-in-the-world/)
 - [7 Top USA Foods ...](https://food.allwomenstalk.com/top-usa-foods/)
 

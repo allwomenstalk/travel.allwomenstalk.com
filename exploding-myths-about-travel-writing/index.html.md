@@ -3,7 +3,7 @@ title: "Exploding 7 Myths about Travel Writing ..."
 description: "Myth: Travel Writers Make a Good Living; Myth: Editors Can't Wait to Get Their Hands on Your Travel Stories; Myth: It's the Destination That Makes the Story; Myth: Readers Want to Hear the Nitty Gritty of Your Travel Experiences; Myth: Editors Love Long Travelogues; More ..."
 url: "https://travel.allwomenstalk.com/exploding-myths-about-travel-writing/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Exploding 7 Myths about Travel Writing ...
@@ -40,16 +40,16 @@ Fat chance! It is very rare to get "all expenses paid" travel gigs for freelance
 
 ## Related Posts
 
-- [Taking a Covid-19 Travel Break Could Help Your Fam...](https://travel.allwomenstalk.com/taking-a-covid-19-travel-break-could-help-your-family/)
 - [Booking Your Next Vacation Online Heres What You N...](https://travel.allwomenstalk.com/booking-your-next-vacation-online-heres-what-you-need-to-know/)
+- [with your family](https://travel.allwomenstalk.com/how-to-keep-your-family-safe-when-traveling-this-holiday-season/)
+- [Taking a Covid-19 Travel Break Could Help Your Fam...](https://travel.allwomenstalk.com/taking-a-covid-19-travel-break-could-help-your-family/)
+- [holiday travel hacks](https://travel.allwomenstalk.com/women-travel-holiday-tips/)
 - [5 Financial Tips for Frequent Travelers ...](https://travel.allwomenstalk.com/financial-tips-for-frequent-travelers/)
 - [How to Make Travel Less Stressful ...](https://travel.allwomenstalk.com/how-to-make-travel-less-stressful-in-2021/)
-- [with your family](https://travel.allwomenstalk.com/how-to-keep-your-family-safe-when-traveling-this-holiday-season/)
-- [A Guide To Planning A Luxurious Vacation ...](https://allwomenstalk.com/guide-to-planning-luxurious-vacation-2022/)
-- [holiday travel hacks](https://travel.allwomenstalk.com/women-travel-holiday-tips/)
-- [tips on relocating to another state](https://allwomenstalk.com/ultimate-guide-state-to-state-movers/)
 - [plan trip to rome](https://allwomenstalk.com/planning-trip-rome/)
 - [why did janni and jon break up](https://wedding.allwomenstalk.com/essential-items-for-him-to-take-on-the-honeymoon/)
+- [A Guide To Planning A Luxurious Vacation ...](https://allwomenstalk.com/guide-to-planning-luxurious-vacation-2022/)
+- [tips on relocating to another state](https://allwomenstalk.com/ultimate-guide-state-to-state-movers/)
 - [7 Reasons to Love Traveling ...](https://allwomenstalk.com/7-reasons-to-love-traveling/)
 - [8 Myths about round the World Travel Debunked ...](https://travel.allwomenstalk.com/myths-about-round-the-world-travel-debunked/)
 

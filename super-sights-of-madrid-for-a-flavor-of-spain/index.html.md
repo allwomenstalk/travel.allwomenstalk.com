@@ -3,7 +3,7 @@ title: "35 Super Sights of Madrid for a Flavor of Spain ..."
 description: "Gran via; Palacio De Cristal in Buen Retiro Park; Kimsooja's Room of Rainbows; The Metropolis; Street Scene; More ..."
 url: "https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 35 Super Sights of Madrid for a Flavor of Spain ...
@@ -277,16 +277,16 @@ So many sights of Madrid, so little time. The Spanish capital is a fabulous week
 
 ## Related Posts
 
-- [central perk cafe from friends](https://travel.allwomenstalk.com/tv-show-cafes-and-restaurants-you-can-actually-visit/)
-- [sights of toronto](https://travel.allwomenstalk.com/umissable-sights-of-toronto/)
 - [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
-- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
-- [sights chicago](https://travel.allwomenstalk.com/sights-of-chicago-that-will-make-you-want-to-visit/)
-- [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
-- [best cities in the world 2023](https://money.allwomenstalk.com/cities-around-the-world-with-the-most-job-opportunities/)
-- [as roma wallpaper 4k iphone](https://travel.allwomenstalk.com/magnificent-and-memorable-sights-of-rome/)
-- [twilight poem 57](https://travel.allwomenstalk.com/sights-of-ireland-that-will-make-you-green-with-envy/)
+- [central perk cafe from friends](https://travel.allwomenstalk.com/tv-show-cafes-and-restaurants-you-can-actually-visit/)
 - [nassau pirate haven](https://travel.allwomenstalk.com/places-to-follow-in-the-footsteps-of-pirates/)
+- [best cities in the world 2023](https://money.allwomenstalk.com/cities-around-the-world-with-the-most-job-opportunities/)
+- [twilight poem 57](https://travel.allwomenstalk.com/sights-of-ireland-that-will-make-you-green-with-envy/)
+- [sights of toronto](https://travel.allwomenstalk.com/umissable-sights-of-toronto/)
+- [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
+- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
+- [as roma wallpaper 4k iphone](https://travel.allwomenstalk.com/magnificent-and-memorable-sights-of-rome/)
+- [sights chicago](https://travel.allwomenstalk.com/sights-of-chicago-that-will-make-you-want-to-visit/)
 - [8 Places to Visit in Spain ...](https://travel.allwomenstalk.com/places-to-visit-in-spain/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 

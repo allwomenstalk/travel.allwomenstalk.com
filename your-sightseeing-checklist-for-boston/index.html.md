@@ -3,7 +3,7 @@ title: "Your Sightseeing Checklist for Boston ..."
 description: "Where Everybody Knows Your Name ... Cheers Bar; Ride the Swan Boat in Boston's Public Gardens; Eat Pizza in Little Italy; Look across the Ocean at Little Brewster Island, Boston Harbor; Capture the Skyline with Your Camera; More ..."
 url: "https://travel.allwomenstalk.com/your-sightseeing-checklist-for-boston/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Your Sightseeing Checklist for Boston ...
@@ -184,16 +184,16 @@ Source: [Boston Tea Party Ship &](https://roadtrippers.com?ref=allwomenstalk.com
 
 ## Related Posts
 
-- [jani gros](https://travel.allwomenstalk.com/places-where-its-easy-to-lose-track-of-time/)
-- [which continent is the largest by land area](https://travel.allwomenstalk.com/bucket-list-ideas-sights-you-should-see-on-each-continent/)
-- [game of thrones throne locations](https://travel.allwomenstalk.com/follow-in-the-footsteps-of-daenerys-targaryen-to-these-game-of-throne-locations/)
-- [bizarre buildings](https://travel.allwomenstalk.com/around-the-states-in-bizarre-buildings/)
-- [awesome roller coasters](https://travel.allwomenstalk.com/hold-on-tight-the-best-roller-coasters-in-the-world/)
-- [tattoo](https://beauty.allwomenstalk.com/of-the-best-travel-tattoos-in-the-entire-world/)
 - [norway frozen movie](https://travel.allwomenstalk.com/magical-places-in-norway-that-inspired-disneys-frozen/)
-- [the most beautiful coffee shop in the world](https://travel.allwomenstalk.com/of-the-most-beautiful-cafes-in-the-world-you-need-to-try-to-visit/)
 - [arendtsville apple festival](https://travel.allwomenstalk.com/dont-miss-these-u-s-festivals-that-will-rock-your-world/)
+- [bizarre buildings](https://travel.allwomenstalk.com/around-the-states-in-bizarre-buildings/)
+- [which continent is the largest by land area](https://travel.allwomenstalk.com/bucket-list-ideas-sights-you-should-see-on-each-continent/)
+- [jani gros](https://travel.allwomenstalk.com/places-where-its-easy-to-lose-track-of-time/)
 - [chinooks waterfront restaurant](https://travel.allwomenstalk.com/food-travels-restaurants-with-the-most-breathtaking-views/)
+- [awesome roller coasters](https://travel.allwomenstalk.com/hold-on-tight-the-best-roller-coasters-in-the-world/)
+- [the most beautiful coffee shop in the world](https://travel.allwomenstalk.com/of-the-most-beautiful-cafes-in-the-world-you-need-to-try-to-visit/)
+- [game of thrones throne locations](https://travel.allwomenstalk.com/follow-in-the-footsteps-of-daenerys-targaryen-to-these-game-of-throne-locations/)
+- [tattoo](https://beauty.allwomenstalk.com/of-the-best-travel-tattoos-in-the-entire-world/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 

@@ -3,7 +3,7 @@ title: "7 US Irish Pubs to Celebrate St Patricks Day ..."
 description: "McSorley’s - New York; McGuire’s Irish Pub – Pensacola; The Druid – Boston; Fadó Irish Pub – Chicago; Kelly’s Irish Times - Washington; More ..."
 url: "https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 US Irish Pubs to Celebrate St Patricks Day ...
@@ -56,16 +56,16 @@ So my little leprechauns! Will you be celebrating St. Patrick’s Day and where 
 
 ## Related Posts
 
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
 - [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
 - [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
-- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
-- [darjeeling chowk bazar](https://travel.allwomenstalk.com/attractions-and-things-to-do-in-darjeeling/)
-- [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
-- [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
+- [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
+- [darjeeling chowk bazar](https://travel.allwomenstalk.com/attractions-and-things-to-do-in-darjeeling/)
 - [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 - [8 Special Places to Celebrate St. Patricks Day ...](https://travel.allwomenstalk.com/special-places-to-celebrate-st-patricks-day/)
 

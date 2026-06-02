@@ -3,7 +3,7 @@ title: "8 Geographical Facts of Indonesia ..."
 description: "Tallest Mountain in Indonesia; Most Populous Island of Indonesia; Largest Lake in Indonesia; Longest River in Indonesia; Lowest Point in Indonesia; More ..."
 url: "https://travel.allwomenstalk.com/geographical-facts-of-indonesia/"
 category: "travel"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Geographical Facts of Indonesia ...
@@ -46,12 +46,12 @@ The geography of Indonesia is as rich and varied as the people who make the isla
 
 ## Related Posts
 
-- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
 - [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
-- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
-- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
 - [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
+- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
+- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
 - [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
 - [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
