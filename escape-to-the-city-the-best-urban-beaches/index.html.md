@@ -1,12 +1,12 @@
 ---
-title: "Escape to the City the Best Urban Beaches ..."
+title: "Escape to the City – the Best Urban Beaches ..."
 description: "Paris Plages, Paris, France; Pop-up Pool, Brooklyn, New York; Camden Beach, London; Smichov Beach, Prague, Czech Republic; Bund Beach, Shanghai, China; More ..."
 url: "https://travel.allwomenstalk.com/escape-to-the-city-the-best-urban-beaches/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Escape to the City  the Best Urban Beaches ...
+# Escape to the City – the Best Urban Beaches ...
 
 It’s hot. The concrete is almost melting. If you live in a city you’re probably longing for days at the beach. But how about I tell you that you don’t have to travel too far to get some sand and sun? Ok, so there’s no sea but two out of three ain’t bad. Here’s where you can hit the beach without leaving the city.
 
@@ -102,18 +102,18 @@ This is where you’ll find Amsterdam’s social set in the summer. Sunbeds, ham
 
 ## Related Posts
 
-- [travel addicts tours](https://travel.allwomenstalk.com/cool-travel-photos-that-all-travel-addicts-need-to-see-right-now/)
-- [travel internships](https://travel.allwomenstalk.com/the-most-exciting-international-internships-for-girls-who-want-to-travel/)
 - [top places to go in your 20s](https://travel.allwomenstalk.com/trips-to-take-in-your-20s/)
+- [travel internships](https://travel.allwomenstalk.com/the-most-exciting-international-internships-for-girls-who-want-to-travel/)
 - [amy winehouse personality type](https://travel.allwomenstalk.com/incredible-travel-photos-that-will-transport-you-to-far-away-lands-this-instant/)
-- [majesty hotel bodrum](https://travel.allwomenstalk.com/romantics-will-adore-these-fabulous-outdoor-hotel-rooms/)
-- [thrill seeking adventures](https://travel.allwomenstalk.com/adrenaline-packed-adventures-for-thrill-seekers/)
 - [eat pray love cast](https://travel.allwomenstalk.com/eat-pray-love-in-these-aww-inspiring-destinations/)
+- [thrill seeking adventures](https://travel.allwomenstalk.com/adrenaline-packed-adventures-for-thrill-seekers/)
+- [majesty hotel bodrum](https://travel.allwomenstalk.com/romantics-will-adore-these-fabulous-outdoor-hotel-rooms/)
+- [travel addicts tours](https://travel.allwomenstalk.com/cool-travel-photos-that-all-travel-addicts-need-to-see-right-now/)
 - [travel jobs for women](https://travel.allwomenstalk.com/the-best-jobs-for-girls-who-love-to-travel-and-how-to-get-them/)
 - [hotel that looks like a castle](https://travel.allwomenstalk.com/real-life-castle-hotels-your-inner-princess-will-love-to-stay-in/)
 - [adventurous dates](https://love.allwomenstalk.com/intense-dates-for-adventurous-women-to-try/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
-- [3 Amazing Cities: a Runners Paradise ...](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
+- [3 Amazing Cities: a Runner's Paradise ...](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
 
 ## Site Information
 

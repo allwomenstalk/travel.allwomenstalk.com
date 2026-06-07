@@ -3,7 +3,7 @@ title: "7 Eco-Friendly Places to Visit on the Mayan Riviera ..."
 description: "Chichen-Itza; Sian Ka’an Biosphere Reserve; Xel Ha; Xcaret Park; Aktun Chen; More ..."
 url: "https://travel.allwomenstalk.com/eco-friendly-places-to-visit-on-the-mayan-riviera/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Eco\-Friendly Places to Visit on the Mayan Riviera ...
@@ -56,16 +56,16 @@ Some of these attractions of the Mayan Riviera feel a world away from the bright
 
 ## Related Posts
 
+- [midwest fall vacations](https://travel.allwomenstalk.com/gorgeous-fall-vacations-to-take-this-year/)
 - [breathtaking lake views](https://travel.allwomenstalk.com/breathtaking-lake-views-to-help-you-plan-your-next-vacation/)
 - [tropical views](https://travel.allwomenstalk.com/views-of-tropical-islands-that-youll-never-forget/)
+- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
+- [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
 - [alaska postcards](https://travel.allwomenstalk.com/postcards-from-alaska-youd-love-to-receive/)
 - [7 Underrated Asian Destinations to Add to Your Lis...](https://travel.allwomenstalk.com/underrated-asian-destinations-to-add-to-your-list/)
-- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
-- [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
-- [midwest fall vacations](https://travel.allwomenstalk.com/gorgeous-fall-vacations-to-take-this-year/)
-- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
-- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
 - [7 Top Road Trip Destinations in America ...](https://travel.allwomenstalk.com/top-road-trip-destinations-in-america/)
+- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
+- [manhattan getaways new york](https://travel.allwomenstalk.com/weekend-getaways-from-nyc/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 

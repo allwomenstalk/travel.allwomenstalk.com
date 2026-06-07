@@ -3,7 +3,7 @@ title: "55 Awesome Waterfalls around the World ..."
 description: "Erawan Waterfall, Thailand; Elves Chasm, USA; Wailua Falls, USA; Shifen Waterfall, Taiwan; Mealt Falls, Scotland; More ..."
 url: "https://travel.allwomenstalk.com/awesome-waterfalls-around-the-world/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 55 Awesome Waterfalls around the World ...
@@ -370,16 +370,16 @@ Big or small, waterfalls are gorgeous. Do you think so too?
 
 ## Related Posts
 
-- [crazy things to do in dubai](https://travel.allwomenstalk.com/sights-of-dubai-not-to-be-missed/)
 - [cambron covered bridge](https://travel.allwomenstalk.com/quaint-and-lovely-covered-bridges-around-the-usa/)
 - [american state fairs](https://travel.allwomenstalk.com/best-us-state-fairs-for-a-rollicking-good-time/)
-- [madagscar characters](https://travel.allwomenstalk.com/sights-of-madagscar-to-wow-you/)
-- [mountain towns colorado](https://travel.allwomenstalk.com/small-and-wonderful-mountain-towns-in-the-western-united-states/)
-- [phoenix top tourist attractions](https://travel.allwomenstalk.com/top-attractions-of-phoenix-that-call-you-to-visit-the-valley/)
 - [disney themed places](https://travel.allwomenstalk.com/best-themed-restaurants-in-disney-world/)
 - [best preserved ruins in the world](https://travel.allwomenstalk.com/ancient-ruins-around-the-world/)
 - [water towns china](https://travel.allwomenstalk.com/ancient-water-towns-near-shanghai/)
+- [crazy things to do in dubai](https://travel.allwomenstalk.com/sights-of-dubai-not-to-be-missed/)
+- [mountain towns colorado](https://travel.allwomenstalk.com/small-and-wonderful-mountain-towns-in-the-western-united-states/)
 - [famouse cave](https://travel.allwomenstalk.com/of-the-worlds-amazing-caves-and-caverns/)
+- [phoenix top tourist attractions](https://travel.allwomenstalk.com/top-attractions-of-phoenix-that-call-you-to-visit-the-valley/)
+- [madagscar characters](https://travel.allwomenstalk.com/sights-of-madagscar-to-wow-you/)
 - [7 Amazing and Lesser Known Waterfalls ...](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

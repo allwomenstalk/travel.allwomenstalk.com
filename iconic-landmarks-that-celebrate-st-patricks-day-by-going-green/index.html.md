@@ -1,12 +1,12 @@
 ---
-title: "35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patricks Day 2019 ..."
+title: "35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patrick's Day 2019 ..."
 description: "Christ the Redeemer Statue, Rio De Janeiro, Brazil; The London Eye, London, United Kingdom; The Welcome Sign, Las Vegas, USA; The Coliseum, Rome, Italy; The I Amsterdam Sign, Amsterdam, the Netherlands; More ..."
 url: "https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patricks Day 2019 ...
+# 35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patrick's Day 2019 ...
 
 **St. Patrick’s Day** is one of the few national holidays that is celebrated internationally. It seems everyone wants to claim even a tiny bit of Irish heritage on March 17th (my paternal grandfather was Irish – born in Belfast) and why not? St. Patrick’s Day celebrations are amazing and all-embracing and welcoming. But it’s not all about drinking green beer, parades, and listening to Irish music. Thanks to Tourism Ireland, there will be 300+ landmarks which include stadiums, statues, museums and towers, around the world will be going green for St. Patrick’s Day in 2019. Here’s some of the lineup in **Global Greening**:
 
@@ -166,16 +166,16 @@ I wonder which will make its mark in 2020?
 
 ## Related Posts
 
+- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
+- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
 - [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
-- [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
-- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
 - [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
-- [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
+- [The Top 5 Places to See within Your Lifetime ⏳ ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
+- [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
 - [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
+- [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
-- [The Top 5 Places to See within Your Lifetime  ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
-- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [9 Amazing Places to Celebrate Easter This Year ...](https://travel.allwomenstalk.com/places-to-celebrate-easter/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Places for the Best Birds Eye View of London ..."
+title: "7 Places for the Best Bird's Eye View of London ..."
 description: "London Eye; O2 Arena; The Shard; Parliament Hill; Greenwich Observatory; More ..."
 url: "https://travel.allwomenstalk.com/places-for-the-best-birds-eye-view-of-london/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Places for the Best Birds Eye View of London ...
+# 7 Places for the Best Bird's Eye View of London ...
 
 I love to visit places to get a bird’s eye view of London. Looking down and across the city you get to see what you can’t appreciate at street level, and that is the diversity of the architecture, plus how packed the city is, yet how much is given over to its green spaces. Want to know the best places for the best bird’s eye view of London … coming right up!
 
@@ -56,16 +56,16 @@ These are the main places to get a bird’s eye view of London and they provide 
 
 ## Related Posts
 
-- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
-- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
-- [seeing the world from a different angle](https://travel.allwomenstalk.com/ways-to-see-the-world-from-a-different-angle/)
-- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
-- [shoes in northampton](https://shoes.allwomenstalk.com/interesting-exhibits-at-the-northampton-shoe-museum/)
-- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
-- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
 - [best place to visit cotswolds](https://travel.allwomenstalk.com/places-to-visit-in-the-cotswolds/)
+- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
+- [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
+- [seeing the world from a different angle](https://travel.allwomenstalk.com/ways-to-see-the-world-from-a-different-angle/)
 - [the xianren bridge is located in guangxi province ...](https://travel.allwomenstalk.com/wondrous-natural-arches-around-the-world/)
+- [shoes in northampton](https://shoes.allwomenstalk.com/interesting-exhibits-at-the-northampton-shoe-museum/)
 - [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
+- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
+- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
+- [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 

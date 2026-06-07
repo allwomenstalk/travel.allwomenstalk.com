@@ -1,12 +1,12 @@
 ---
-title: "7 of the Worlds Creepiest Attractions ..."
+title: "7 of the World's Creepiest Attractions ..."
 description: "Most Morbid Market – Akodessewa Fetish Market (Lome, Togo); Most Chilling Church – Chapel of Bones (Evora, Portugal); Most Unamusing Amusement Park – Chernobyl Amusement Park (Pripyat, Ukraine); The Maddest Museum – Mütter Museum (Philadelphia, PA); The Most Blood-Curdling Book: Bram Stoker’s Dracula Setting (Whitby, England); More ..."
 url: "https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 of the Worlds Creepiest Attractions ...
+# 7 of the World's Creepiest Attractions ...
 
 If you like the hairs on the back of your neck to stand on end, or your skin to have that slightly crawling feeling, you’ll undoubtedly be titillated by the world’s creepiest attractions. These aren’t haunted places, or places of paranormal activity: they are places that for a variety of reasons “creep you out”. They have a distinct, even if it’s intangible, atmosphere that makes you shudder and maybe makes you want to turn around and leave, but a kind of macabre fascination holds you there. If that sounds like the sort of thing that interests you on your travels, here are some of the creepiest attractions around the world to put on your sightseeing list.
 
@@ -56,16 +56,16 @@ Ooh, I feel quite a chill now! Fascinating they might be, but there’s a few mo
 
 ## Related Posts
 
-- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
-- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
-- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
+- [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
 - [8 Gloomiest Tourist Attractions ...](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Alternative Places to Spend Thanksgiving ..."
+title: "7 Alternative Places to Spend Thanksgiving 🦃 ..."
 description: "Turkey; Plymouth, England; Limerick, Ireland; Yam Island, Australia; Frobisher Bay, Canada; More ..."
 url: "https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Alternative Places to Spend Thanksgiving  ...
+# 7 Alternative Places to Spend Thanksgiving 🦃 ...
 
 It’s traditional for families and friends to get together on the fourth Thursday of November, but if you’re hankering after something different, why not try one of these alternative places to spend Thanksgiving. I’ve looked for places that are associated with the festival of Thanksgiving rather than just places in the US. Okay, so there might be some tenuous links but trust me they are there! If you’re looking for some very alternative places to spend Thanksgiving check these out!
 
@@ -56,16 +56,16 @@ Well, was that some food for thought? Will you ever venture forth to these alter
 
 ## Related Posts
 
-- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
-- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
-- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
-- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
 - [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
+- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
+- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
 - [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
-- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
 - [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
 - [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
-- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
+- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
+- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ways to Celebrate Fall ...](https://allwomenstalk.com/7-ways-to-celebrate-fall/)
 

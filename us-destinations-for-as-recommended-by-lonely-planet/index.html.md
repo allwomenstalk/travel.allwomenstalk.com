@@ -3,7 +3,7 @@ title: "7 US Destinations for 2015 as Recommended by Lonely Planet ..."
 description: "New Orleans, Louisiana; Oakland, California; Duluth, Minnesota; Mount Shasta Region, California; Greenville, South Carolina; More ..."
 url: "https://travel.allwomenstalk.com/us-destinations-for-as-recommended-by-lonely-planet/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 US Destinations for 2015 as Recommended by Lonely Planet ...
@@ -56,16 +56,16 @@ I love the mix of destinations on this list but there’s nothing like personal 
 
 ## Related Posts
 
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
-- [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
-- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
 - [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
-- [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
-- [east canada ski resorts](https://travel.allwomenstalk.com/top-eastern-canada-ski-resorts-for/)
+- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
 - [guoliang tunnel accidents](https://travel.allwomenstalk.com/roads-highways-and-byways-that-just-call-to-be-driven/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
 - [modern hotel bathrooms](https://travel.allwomenstalk.com/coolest-hotel-bathrooms-in-the-world/)
+- [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
+- [east canada ski resorts](https://travel.allwomenstalk.com/top-eastern-canada-ski-resorts-for/)
+- [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 

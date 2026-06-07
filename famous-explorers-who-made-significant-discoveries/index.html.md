@@ -3,7 +3,7 @@ title: "7 Famous Explorers Who Made Significant Discoveries ..."
 description: "Ferdinand Magellan; Hernan Cortes; Charles Darwin; Marco Polo; Lewis and Clark; More ..."
 url: "https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Famous Explorers Who Made Significant Discoveries ...
@@ -56,16 +56,16 @@ I think I would have like to have been Captain Cook who discovered Australia but
 
 ## Related Posts
 
-- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
 - [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
-- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
+- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
 - [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
 - [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
+- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
 - [7 Wonders of Egypt ...](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

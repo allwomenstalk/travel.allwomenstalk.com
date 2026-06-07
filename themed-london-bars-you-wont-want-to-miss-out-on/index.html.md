@@ -1,12 +1,12 @@
 ---
-title: "7 Themed London Bars You Wont Want to Miss out on ..."
+title: "7 Themed London Bars You Won't Want to Miss out on ..."
 description: "Evans and Peel Detective Agency, Earl’s Court; Trailer Happiness, Portobello Road; Mahiki, Dover Street; Nordic Bar, Soho; ICEBAR, Heddon Street; More ..."
 url: "https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Themed London Bars You Wont Want to Miss out on ...
+# 7 Themed London Bars You Won't Want to Miss out on ...
 
 If you’re heading to the UK’s capital city for a weekend or a longer break, there are plenty of themed London bars to choose from. It can be difficult separating the must-visit bars from those which you should probably avoid – luckily I’ve created this handy list of themed London bars where you’re practically guaranteed to have a great night.
 
@@ -56,17 +56,17 @@ All this talk of themed bars is making me long for a night out, and I reckon at 
 
 ## Related Posts
 
-- [secret location nyc](https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/)
-- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
-- [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
-- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
-- [what is there to do in perth australia](https://travel.allwomenstalk.com/amazing-things-to-do-in-perth-australia/)
-- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
 - [eyebrow penguins](https://travel.allwomenstalk.com/types-of-penguin-and-where-to-see-them/)
+- [loreal paris riche le smoky vegas](https://lifestyle.allwomenstalk.com/best-shopping-places-in-las-vegas/)
+- [secret location nyc](https://travel.allwomenstalk.com/secret-sights-in-new-york-that-will-leave-you-astonished/)
+- [what is there to do in perth australia](https://travel.allwomenstalk.com/amazing-things-to-do-in-perth-australia/)
 - [american winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-the-us/)
-- [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
 - [winter festivals around the world](https://travel.allwomenstalk.com/wonderful-winter-festivals-not-to-miss/)
-- [9 Delicious Easter Cocktails You Dont Want to Miss...](https://cooking.allwomenstalk.com/7-delicious-easter-cocktails/)
+- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
+- [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
+- [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
+- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
+- [9 Delicious Easter Cocktails You Don't Want to Mis...](https://cooking.allwomenstalk.com/7-delicious-easter-cocktails/)
 - [7 Fun Ideas for a Themed Party ...](https://allwomenstalk.com/fun-ideas-for-a-themed-party/)
 
 ## Site Information

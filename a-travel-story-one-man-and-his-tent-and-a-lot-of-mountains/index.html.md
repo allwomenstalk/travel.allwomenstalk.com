@@ -1,12 +1,12 @@
 ---
-title: "A Travel Story: One Man and His Tent and a Lot of Mountains ..."
+title: "A Travel Story: One Man and His Tent (and a Lot of Mountains) ..."
 description: "Under Matterhorn, 2,600m Valais Alps, Switzerland; Grenzgletscher, 3,950m Valais Alps, Switzerland; Hochbalmen, 2,600m Valais Alps, Switzerland; Buni Jezerces, 1,800m Prokletije, Albania; Fagaras Mountains, 2,200m, Romania; More ..."
 url: "https://travel.allwomenstalk.com/a-travel-story-one-man-and-his-tent-and-a-lot-of-mountains/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# A Travel Story: One Man and His Tent and a Lot of Mountains ...
+# A Travel Story: One Man and His Tent \(and a Lot of Mountains\) ...
 
 Polish photographer Karol Nienartowicz spent 6 years traveling around the mountains of Europe. Naturally he chronicled his trip in photos. What he chose to do to make his stunning pictures different to other stunning pictures of the same locations was that his little tent featured in each one. Let's join him on a journey up a mountain - through his gorgeous photos, of course.
 
@@ -84,16 +84,16 @@ Learn more about Karol Nienartowicz at his [facebook](https://www.facebook.com/u
 
 ## Related Posts
 
-- [panama overwater bungalows all inclusive](https://travel.allwomenstalk.com/you-dont-have-to-go-to-the-south-pacific-or-indian-ocean-to-stay-in-an-over-the-water-bungalow/)
-- [meaning of immersive](https://travel.allwomenstalk.com/looking-for-travel-with-a-deeper-meaning-try-an-immersive-vacation/)
 - [best night club in cancun](https://travel.allwomenstalk.com/dance-the-night-away-in-the-hottest-nightspots-in-cancun/)
+- [panama overwater bungalows all inclusive](https://travel.allwomenstalk.com/you-dont-have-to-go-to-the-south-pacific-or-indian-ocean-to-stay-in-an-over-the-water-bungalow/)
+- [experiences for girls](https://travel.allwomenstalk.com/travel-experiences-for-girls-with-a-sense-of-adventure/)
+- [meaning of immersive](https://travel.allwomenstalk.com/looking-for-travel-with-a-deeper-meaning-try-an-immersive-vacation/)
+- [hobbit house usa](https://travel.allwomenstalk.com/take-a-journey-to-middle-earth-hobbit-houses-you-can-rent-for-vacation/)
 - [mayan and egyptian pyramid alignment](https://travel.allwomenstalk.com/go-all-the-way-to-egypt-to-see-pyramids-no-go-to-mexico/)
-- [bucket list trips you can afford](https://travel.allwomenstalk.com/think-you-cant-afford-a-bucket-list-try-these-fabulous-freebies-around-the-world/)
-- [bargain all inclusive](https://travel.allwomenstalk.com/this-years-best-bargain-caribbean-all-inclusive-resorts/)
 - [reality travel shows](https://travel.allwomenstalk.com/vacation-spots-youve-seen-on-reality-tv-that-you-should-visit-irl/)
 - [live life african safari getaways](https://travel.allwomenstalk.com/why-every-girl-should-include-an-african-safari-on-her-bucket-list/)
-- [experiences for girls](https://travel.allwomenstalk.com/travel-experiences-for-girls-with-a-sense-of-adventure/)
-- [hobbit house usa](https://travel.allwomenstalk.com/take-a-journey-to-middle-earth-hobbit-houses-you-can-rent-for-vacation/)
+- [bargain all inclusive](https://travel.allwomenstalk.com/this-years-best-bargain-caribbean-all-inclusive-resorts/)
+- [bucket list trips you can afford](https://travel.allwomenstalk.com/think-you-cant-afford-a-bucket-list-try-these-fabulous-freebies-around-the-world/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [7 River Trips of a Lifetime ...](https://travel.allwomenstalk.com/river-trips-of-a-lifetime/)
 

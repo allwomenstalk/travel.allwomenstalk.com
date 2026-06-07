@@ -1,12 +1,12 @@
 ---
-title: "7 Cutest Independent Shops in Edinburgh Youll Love ..."
+title: "7 Cutest Independent Shops in Edinburgh You'll Love ..."
 description: "Swish, Cockburn Street; Cookie, Cockburn Street; Joey D, Broughton Street; Armstrongs Edinburgh, the Grassmarket; Fabhatrix, the Grassmarket/Cowgatehead; More ..."
 url: "https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Cutest Independent Shops in Edinburgh Youll Love ...
+# 7 Cutest Independent Shops in Edinburgh You'll Love ...
 
 If you’re heading on holiday to Scotland, then there are some gorgeous independent shops in Edinburgh you simply must check out! When I visited Scotland last month, these independent shops in Edinburgh were filled with all manner of delightful things to buy – the difficulty is trying not to spend all your cash at once!
 
@@ -54,15 +54,15 @@ Edinburgh has some amazing independent shops tucked away off Princes Street, and
 
 ## Related Posts
 
-- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
+- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
 - [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
 - [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
 - [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
-- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
 - [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
-- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
-- [denver breakfast restaurant](https://food.allwomenstalk.com/delicious-breakfast-restaurants-in-denver-that-youve-got-to-try/)
 - [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
+- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
+- [denver breakfast restaurant](https://food.allwomenstalk.com/delicious-breakfast-restaurants-in-denver-that-youve-got-to-try/)
 - [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
 - [8 Best and Wonderfully Pleasant Cities to Shop ...](https://travel.allwomenstalk.com/best-and-wonderfully-pleasant-cities-to-shop/)
 - [8 Fabulous British Shops ...](https://allwomenstalk.com/fabulous-british-shops/)

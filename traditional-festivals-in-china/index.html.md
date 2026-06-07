@@ -3,7 +3,7 @@ title: "7 Traditional Festivals in China ..."
 description: "Spring Festival; Lantern Festival; Tomb Sweeping Day; Dragon Boat Festival; Mid-autumn Festival; More ..."
 url: "https://travel.allwomenstalk.com/traditional-festivals-in-china/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Traditional Festivals in China ...
@@ -45,13 +45,13 @@ Which one of these festivals do you like best?
 - [historical places in peru](https://travel.allwomenstalk.com/sites-of-ancient-ruins-in-peru-other-than-machu-picchu/)
 - [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
 - [amazon rainforest things to do](https://travel.allwomenstalk.com/sights-of-the-amazon-rainforest-to-make-you-go-ooh/)
-- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
 - [cyprus attractions](https://travel.allwomenstalk.com/top-attractions-of-cyprus/)
-- [things to see in santorini greece](https://travel.allwomenstalk.com/things-to-see-and-do-in-santorini-greece/)
-- [best gelato in cassis french riviera cote dazur](https://travel.allwomenstalk.com/provence-bucket-list/)
 - [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
 - [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
+- [best gelato in cassis french riviera cote d'azur](https://travel.allwomenstalk.com/provence-bucket-list/)
 - [natural beauty switzerland](https://travel.allwomenstalk.com/stunning-natural-sights-of-switzerland/)
+- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
+- [things to see in santorini greece](https://travel.allwomenstalk.com/things-to-see-and-do-in-santorini-greece/)
 - [7 Most Fun Summer Activities ...](https://allwomenstalk.com/7-most-fun-summer-activities/)
 - [7 Fun Activities for Children ...](https://allwomenstalk.com/7-fun-activities-for-children/)
 

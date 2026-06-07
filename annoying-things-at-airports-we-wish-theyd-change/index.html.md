@@ -1,12 +1,12 @@
 ---
-title: "9 Annoying Things at Airports We Wish Theyd Change ..."
+title: "9 Annoying Things at Airports We Wish They'd Change ..."
 description: "Getting Searched; Showing Your Boarding Card for Every Purchase; NOt Enough Seating; Flight Delays; NOT Enough Power Sockets; More ..."
 url: "https://travel.allwomenstalk.com/annoying-things-at-airports-we-wish-theyd-change/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Annoying Things at Airports We Wish Theyd Change ...
+# 9 Annoying Things at Airports We Wish They'd Change ...
 
 As much as I love traveling, there are some annoying things at airports that are such a bind. Yes, things like booking online and online check-in have made things easier, but I just wish that they could find some ways of removing some of the hassle factor of flying these days. Although, I will concede that some of the annoying things at airports are in our best interests.
 
@@ -50,16 +50,16 @@ Some of these issues are minor irritations, although they have the capacity to s
 
 ## Related Posts
 
-- [7 Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/ways-to-travel-on-a-budget/)
-- [7 Must-Have Items on International Business Trips ...](https://travel.allwomenstalk.com/must-have-items-on-international-business-trips/)
 - [7 Tips on How to Have the Best Vacation of Your Li...](https://travel.allwomenstalk.com/tips-on-how-to-have-the-best-vacation-of-your-life/)
-- [7 Top Tips for Traveling with Teens ...](https://travel.allwomenstalk.com/top-tips-for-traveling-with-teens/)
-- [7 THINGS YOU MUST CARRY with YOU on a SAFARI TRIP ...](https://travel.allwomenstalk.com/things-you-must-carry-with-you-on-a-safari-trip/)
+- [7 Must-Have Items on International Business Trips ...](https://travel.allwomenstalk.com/must-have-items-on-international-business-trips/)
 - [7 Lies You Tell Yourself While Traveling ...](https://travel.allwomenstalk.com/lies-you-tell-yourself-while-traveling/)
+- [7 Top Tips for Traveling with Teens ...](https://travel.allwomenstalk.com/top-tips-for-traveling-with-teens/)
+- [7 Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/ways-to-travel-on-a-budget/)
 - [7 Reasons to Throw out Your Travel Itinerary ...](https://travel.allwomenstalk.com/reasons-to-throw-out-your-travel-itinerary/)
+- [metro survive](https://travel.allwomenstalk.com/ways-to-survive-commuting-by-tube-or-metro/)
+- [7 THINGS YOU MUST CARRY with YOU on a SAFARI TRIP ...](https://travel.allwomenstalk.com/things-you-must-carry-with-you-on-a-safari-trip/)
 - [how to survive in the wild](https://travel.allwomenstalk.com/things-to-do-to-survive-in-the-wild/)
 - [7 Tips on How to Write a Travel Journal That Rocks...](https://travel.allwomenstalk.com/tips-on-how-to-write-a-travel-journal-that-rocks/)
-- [metro survive](https://travel.allwomenstalk.com/ways-to-survive-commuting-by-tube-or-metro/)
 - [9 Ways to Stay Comfortable on a Long Flight ...](https://travel.allwomenstalk.com/9-ways-to-stay-comfortable-on-a-long-flight/)
 - [10 Most Annoying Things about Airports ...](https://allwomenstalk.com/10-most-annoying-things-about-airports/)
 

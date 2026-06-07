@@ -3,7 +3,7 @@ title: "7 Wonderful Walled Cities around the World ..."
 description: "Carcassonne, France; Timbuktu, Mali; Dubrovnik, Croatia; Xi-an, China; Toledo, Spain; More ..."
 url: "https://travel.allwomenstalk.com/wonderful-walled-cities-around-the-world/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Wonderful Walled Cities around the World ...
@@ -57,15 +57,15 @@ Are you as fascinated with walled towns and cities as I am? Have you visited any
 ## Related Posts
 
 - [date ideas williamsburg brooklyn](https://travel.allwomenstalk.com/swanky-date-spots-in-brooklyn-that-you-wont-regret-visiting/)
-- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
-- [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
-- [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
-- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
-- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
 - [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
+- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
 - [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
 - [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
-- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
+- [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
+- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
 - [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 

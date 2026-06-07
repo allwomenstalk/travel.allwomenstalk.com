@@ -3,7 +3,7 @@ title: "8 Coastal Holiday Destinations ..."
 description: "Koh Samui; Bondi Beach; Bali; The French Riviera; Barbados; More ..."
 url: "https://travel.allwomenstalk.com/coastal-holiday-destinations/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 8 Coastal Holiday Destinations ...
@@ -48,16 +48,16 @@ Top Photo Credit: [jonrawlinson](https://www.flickr.com/photos/london/43517157/)
 
 ## Related Posts
 
-- [flaine nightlife](https://travel.allwomenstalk.com/top-ski-resorts/)
-- [best places to visit for vegetarians](https://travel.allwomenstalk.com/great-destinations-for-vegetarians/)
-- [top surf spots in the world](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
-- [10 Unlikely Honeymoon Destinations That You Might ...](https://travel.allwomenstalk.com/unlikely-honeymoon-destinations-that-you-might-just-enjoy/)
 - [best green hotels](https://travel.allwomenstalk.com/best-green-hotels-for-holidays/)
-- [poverty flats camping](https://travel.allwomenstalk.com/best-places-to-camp-this-fall/)
-- [10 Best Destinations for 2012 ...](https://travel.allwomenstalk.com/best-destinations-for/)
+- [flaine nightlife](https://travel.allwomenstalk.com/top-ski-resorts/)
+- [10 Unlikely Honeymoon Destinations That You Might ...](https://travel.allwomenstalk.com/unlikely-honeymoon-destinations-that-you-might-just-enjoy/)
 - [7 Adventure Holiday Ideas ...](https://travel.allwomenstalk.com/7-adventure-holiday-ideas/)
-- [new zealand romantic getaway](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [gourmet cooking vacations](https://travel.allwomenstalk.com/8-culinary-vacations-for-all-tastes/)
+- [10 Best Destinations for 2012 ...](https://travel.allwomenstalk.com/best-destinations-for/)
+- [poverty flats camping](https://travel.allwomenstalk.com/best-places-to-camp-this-fall/)
+- [top surf spots in the world](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
+- [best places to visit for vegetarians](https://travel.allwomenstalk.com/great-destinations-for-vegetarians/)
+- [new zealand romantic getaway](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [9 Exciting Spring Break Destinations ...](https://travel.allwomenstalk.com/9-exciting-spring-break-destinations/)
 - [8 Great Road Trip Destinations ...](https://travel.allwomenstalk.com/8-great-road-trip-destinations/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 US Irish Pubs to Celebrate St Patricks Day ..."
+title: "7 US Irish Pubs to Celebrate St Patrick's Day ..."
 description: "McSorley’s - New York; McGuire’s Irish Pub – Pensacola; The Druid – Boston; Fadó Irish Pub – Chicago; Kelly’s Irish Times - Washington; More ..."
 url: "https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 US Irish Pubs to Celebrate St Patricks Day ...
+# 7 US Irish Pubs to Celebrate St Patrick's Day ...
 
 You’re always guaranteed a typical warm welcome in US Irish pubs – or Irish pubs anywhere in the world for that matter, but come March 17th every year, the craic is notched up more than a crank or two as Irish everywhere celebrate St. Patrick’s Day. I don’t think any other country celebrates a patron saint’s Day like the Irish! If you’re in a city that goes all out to celebrate its Irishness that’s great, but if there are no planned grand parades or events, check out some US Irish pubs. They’re all over the country. Here’s some of the big city venues.
 
@@ -56,18 +56,18 @@ So my little leprechauns! Will you be celebrating St. Patrick’s Day and where 
 
 ## Related Posts
 
+- [🤔 which city is considered the country music capi...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
 - [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
-- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
-- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
-- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
 - [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
 - [darjeeling chowk bazar](https://travel.allwomenstalk.com/attractions-and-things-to-do-in-darjeeling/)
-- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
+- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
 - [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
-- [which city is considered the country music capital...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
+- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
+- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
+- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
-- [8 Special Places to Celebrate St. Patricks Day ...](https://travel.allwomenstalk.com/special-places-to-celebrate-st-patricks-day/)
+- [8 Special Places to Celebrate St. Patrick's Day .....](https://travel.allwomenstalk.com/special-places-to-celebrate-st-patricks-day/)
 
 ## Site Information
 

@@ -3,7 +3,7 @@ title: "Top 10 Dessert Places in NYC ..."
 description: "Cafe Lalo; Payard Patisserie and Bistro; Once upon a Tart; ChikaLicious; Max Brenner; More ..."
 url: "https://travel.allwomenstalk.com/top-dessert-places-in-nyc/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Top 10 Dessert Places in NYC ...
@@ -107,7 +107,7 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/12091291)
 - [9 Top Places for Ice Cream in America ...](https://travel.allwomenstalk.com/top-places-for-ice-cream-in-america/)
 - [10 Incredibly Interesting Restaurants ...](https://eatial.com/incredibly-interesting-restaurants/)
 - [9 Amazing Things I Love about New York City ...](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
-- [7 Delectable Cafs in New York to Keep Warm in This...](https://food.allwomenstalk.com/delectable-cafes-in-new-york-to-keep-warm-in-this-winter/)
+- [7 Delectable Cafés in New York to Keep Warm in Thi...](https://food.allwomenstalk.com/delectable-cafes-in-new-york-to-keep-warm-in-this-winter/)
 
 ## Site Information
 

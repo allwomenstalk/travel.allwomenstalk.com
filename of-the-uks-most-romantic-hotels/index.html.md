@@ -1,12 +1,12 @@
 ---
-title: "7 of the UKs Most Romantic Hotels ..."
+title: "7 of the UK's Most Romantic Hotels ..."
 description: "The Witchery by the Castle, Edinburgh; The Savoy, London; Amberley Castle, Sussex; Portobello Hotel, London; Hambleton Hall, Rutland Water; More ..."
 url: "https://travel.allwomenstalk.com/of-the-uks-most-romantic-hotels/"
 category: "travel"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 of the UKs Most Romantic Hotels ...
+# 7 of the UK's Most Romantic Hotels ...
 
 If you're looking for the perfect bolthole to escape to with your sweetheart, you need to check out some of the UK's most romantic hotels. There are plenty to choose from whether you're heading to Scotland for the week or enjoying a longer stay in England. Here are 7 of the UK's most romantic hotels - starting with my very favorite!
 
@@ -56,16 +56,16 @@ There you have it - 7 of the UK's most romantic hotels to check out this year. T
 
 ## Related Posts
 
-- [cat house on the kings](https://travel.allwomenstalk.com/fancy-feline-destinations-for-cat-lovers/)
 - [hawaiian apple banana tree](https://food.allwomenstalk.com/varieties-of-bananas-you-should-try-on-your-next-hawaiian-vacation/)
 - [cayman island things to do](https://travel.allwomenstalk.com/captivating-things-to-do-in-the-cayman-islands/)
-- [escape the crowds](https://travel.allwomenstalk.com/places-to-escape-the-tourist-crowds/)
-- [things to talk about on your honeymoon](https://travel.allwomenstalk.com/intriguing-ways-to-spend-your-honeymoon/)
-- [most uncommon country](https://travel.allwomenstalk.com/uncommon-countries-to-visit-on-your-next-trip/)
-- [best po ship for families](https://travel.allwomenstalk.com/best-cruises-for-family-vacations/)
 - [great destinations](https://travel.allwomenstalk.com/great-destinations-for-science-geeks/)
 - [mediterranean tours for couples](https://travel.allwomenstalk.com/romantic-mediterranean-getaway-ideas/)
+- [things to talk about on your honeymoon](https://travel.allwomenstalk.com/intriguing-ways-to-spend-your-honeymoon/)
+- [best p&o ship for families](https://travel.allwomenstalk.com/best-cruises-for-family-vacations/)
 - [vintage travel ads](https://travel.allwomenstalk.com/vintage-travel-ads-to-inspire-your-bucket-list/)
+- [escape the crowds](https://travel.allwomenstalk.com/places-to-escape-the-tourist-crowds/)
+- [cat house on the kings](https://travel.allwomenstalk.com/fancy-feline-destinations-for-cat-lovers/)
+- [most uncommon country](https://travel.allwomenstalk.com/uncommon-countries-to-visit-on-your-next-trip/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [7 Top Honeymoon Destinations ...](https://wedding.allwomenstalk.com/7-top-honeymoon-destinations/)
 
