@@ -3,7 +3,7 @@ title: "7 Amazing Things to do in Perth, Australia ..."
 description: "Rottnest Island; Kings Park; Penguin Island; Fremantle; Zig Zag Scenic Drive; More ..."
 url: "https://travel.allwomenstalk.com/amazing-things-to-do-in-perth-australia/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Amazing Things to do in Perth, Australia ...
@@ -56,14 +56,14 @@ I love Perth and I really hope that this list has given you some ideas of things
 
 ## Related Posts
 
-- [american winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-the-us/)
-- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
-- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
-- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
-- [how many walled cities are there in the world](https://travel.allwomenstalk.com/wonderful-walled-cities-around-the-world/)
 - [date ideas williamsburg brooklyn](https://travel.allwomenstalk.com/swanky-date-spots-in-brooklyn-that-you-wont-regret-visiting/)
+- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
+- [things to do in hamburg new york](https://travel.allwomenstalk.com/top-things-to-do-in-hamburg/)
+- [how many walled cities are there in the world](https://travel.allwomenstalk.com/wonderful-walled-cities-around-the-world/)
 - [do australians celebrate thanksgiving](https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/)
+- [american winter sports](https://travel.allwomenstalk.com/top-winter-sports-locations-in-the-us/)
 - [must see places in michigan](https://travel.allwomenstalk.com/lovely-must-see-places-in-michigan-to-add-to-your-list/)
+- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
 - [why we love malaysia](https://travel.allwomenstalk.com/incredible-things-to-love-about-malaysia/)
 - [savoy cabbage cape town](https://travel.allwomenstalk.com/places-to-eat-thanksgiving-dinner-abroad/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)

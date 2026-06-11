@@ -3,7 +3,7 @@ title: "7 Famous Explorers Who Made Significant Discoveries ..."
 description: "Ferdinand Magellan; Hernan Cortes; Charles Darwin; Marco Polo; Lewis and Clark; More ..."
 url: "https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Famous Explorers Who Made Significant Discoveries ...
@@ -56,16 +56,16 @@ I think I would have like to have been Captain Cook who discovered Australia but
 
 ## Related Posts
 
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
-- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
-- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
 - [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
+- [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
 - [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
-- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
 - [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
+- [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
+- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
 - [7 Wonders of Egypt ...](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

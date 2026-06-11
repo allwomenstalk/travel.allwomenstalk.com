@@ -3,7 +3,7 @@ title: "10 Famous British Pubs ..."
 description: "Ye Olde Trip to Jerusalem, Nottingham; Spaniards Inn, Hampstead, London; The Eagle, Cambridge; The Skirrid Mountain Inn, Llanfihangel Crucorney, Wales; The Oxford Bar, Edinburgh; More ..."
 url: "https://travel.allwomenstalk.com/10-famous-british-pubs/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Famous British Pubs ...
@@ -57,15 +57,15 @@ I hope you all get to experience a glass of traditional ale by a traditional hea
 ## Related Posts
 
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
-- [theme parks in cape town](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 - [8 Places to Visit in Spain ...](https://travel.allwomenstalk.com/places-to-visit-in-spain/)
 - [8 over-rated Tourist Places ...](https://travel.allwomenstalk.com/over-rated-tourist-places/)
+- [8 Things to See in Paris ...](https://travel.allwomenstalk.com/things-to-see-in-paris/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 - [top 10 skylines in the us](https://travel.allwomenstalk.com/best-city-skylines-in-the-world/)
-- [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)
+- [theme parks in cape town](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)
 - [best cities for runners](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
-- [8 Things to See in Paris ...](https://travel.allwomenstalk.com/things-to-see-in-paris/)
 - [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
+- [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [8 Essentially English Pubs ...](https://travel.allwomenstalk.com/essentially-english-pubs/)
 

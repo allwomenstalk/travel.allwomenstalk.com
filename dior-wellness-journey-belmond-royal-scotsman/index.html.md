@@ -3,7 +3,7 @@ title: "Imagine a Train Ride Where Wellness Takes Center Stage..."
 description: "A Landmark Partnership; The Luxury of the Royal Scotsman; Immersive Outdoor Activities; On-Board Spa & Treatments; Culinary Indulgence; More ..."
 url: "https://travel.allwomenstalk.com/dior-wellness-journey-belmond-royal-scotsman/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Imagine a Train Ride Where Wellness Takes Center Stage...

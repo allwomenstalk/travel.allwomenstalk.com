@@ -3,7 +3,7 @@ title: "7 Hotels Owned by Celebrities ..."
 description: "Blancaneaux Lodge, Belize; 11 Cadogan Gardens, England; The Greenwich Hotel, USA; The Clarence, Ireland; Gwinganna Health Retreat, Australia; More ..."
 url: "https://travel.allwomenstalk.com/hotels-owned-by-celebrities/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Hotels Owned by Celebrities ...
@@ -56,16 +56,16 @@ Would you go out of your way to stay at a hotel owned by a celebrity?
 
 ## Related Posts
 
-- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
-- [Chris Pratt Continues Being Awesome ...](https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/)
-- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
 - [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
 - [7 Iconic Personalities in Asian American Culture ....](https://celebs.allwomenstalk.com/iconic-personalities-in-asian-american-culture/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
+- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
+- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
+- [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
+- [Chris Pratt Continues Being Awesome ...](https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

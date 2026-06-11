@@ -3,7 +3,7 @@ title: "9 Types of Airplane Passengers You'd do Well to Avoid ..."
 description: "The Recliner; The Chatterbox; The Lovers; The Eater; The Snoop; More ..."
 url: "https://travel.allwomenstalk.com/types-of-airplane-passengers-youd-do-well-to-avoid/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Types of Airplane Passengers You'd do Well to Avoid ...
@@ -50,16 +50,16 @@ Have you had any experiences with these types of airplane passengers?
 
 ## Related Posts
 
-- [is it ok to not tell your partner everything](https://love.allwomenstalk.com/things-not-to-tell-your-friends-about-your-relationship/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/communication-mistakes-to-avoid/)
-- [what not to say in an argument](https://love.allwomenstalk.com/things-you-shouldnt-say-in-an-argument/)
-- [romantic killer cat name](https://love.allwomenstalk.com/top-romance-killers-to-avoid-at-all-costs/)
-- [step mom boundaries](https://parenting.allwomenstalk.com/things-a-step-parent-should-never-say/)
 - [reliable ticket websites](https://lifestyle.allwomenstalk.com/things-to-avoid-doing-at-a-standing-concert/)
+- [facebook fights](https://lifestyle.allwomenstalk.com/silly-things-that-cause-ridiculous-facebook-fights/)
+- [step mom boundaries](https://parenting.allwomenstalk.com/things-a-step-parent-should-never-say/)
 - [swearing at partner](https://love.allwomenstalk.com/things-you-should-not-say-when-fighting-with-your-partner/)
 - [what is the worst relationship](https://love.allwomenstalk.com/worst-types-of-relationships-that-are-best-avoided/)
 - [what not to eat on a first date](https://love.allwomenstalk.com/worst-foods-to-eat-on-a-first-date/)
-- [facebook fights](https://lifestyle.allwomenstalk.com/silly-things-that-cause-ridiculous-facebook-fights/)
+- [what not to say in an argument](https://love.allwomenstalk.com/things-you-shouldnt-say-in-an-argument/)
+- [is it ok to not tell your partner everything](https://love.allwomenstalk.com/things-not-to-tell-your-friends-about-your-relationship/)
+- [romantic killer cat name](https://love.allwomenstalk.com/top-romance-killers-to-avoid-at-all-costs/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/communication-mistakes-to-avoid/)
 - [7 Places to Avoid when Traveling with Kids ...](https://allwomenstalk.com/7-places-to-avoid-when-traveling-with-kids/)
 - [8 Types of People You Should Avoid ...](https://allwomenstalk.com/8-types-of-people-you-should-avoid/)
 

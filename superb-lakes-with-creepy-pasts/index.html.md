@@ -3,7 +3,7 @@ title: "7 Superb Lakes with Creepy Pasts ..."
 description: "Lake Nyos – Cameroon; Lake Resia and Its Bell Tower; Coniston Water; Lake Tinnsja’s Sinister WW2 past; Nevada’s Pyramid Lake; More ..."
 url: "https://travel.allwomenstalk.com/superb-lakes-with-creepy-pasts/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Superb Lakes with Creepy Pasts ...
@@ -62,16 +62,16 @@ These are just some of the lakes you may come across in your travels that have d
 
 ## Related Posts
 
+- [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
 - [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
 - [famous prehistoric paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)
-- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
-- [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
-- [in which african country can you find the acacus m...](https://travel.allwomenstalk.com/postcards-from-north-africa-that-say-wish-you-here/)
-- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
-- [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
 - [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
-- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
+- [in which african country can you find the acacus m...](https://travel.allwomenstalk.com/postcards-from-north-africa-that-say-wish-you-here/)
 - [what does disneyland do for new years eve](https://travel.allwomenstalk.com/best-places-to-see-new-years-eve-fireworks/)
+- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
+- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
+- [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
+- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 

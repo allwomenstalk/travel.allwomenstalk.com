@@ -3,7 +3,7 @@ title: "7 Olde World Sweet Shops That You're Going to Love ..."
 description: "Fortnum & Mason, London, England; Schimpff’s Confectionery, Indiana, USA; Big Top Candy Shop, Texas, USA; Oldest Sweet Shop, Harrogate, England; Spice Bazaar, Istanbul, Turkey; More ..."
 url: "https://travel.allwomenstalk.com/olde-world-sweet-shops-that-youre-going-to-love/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Olde World Sweet Shops That You're Going to Love ...
@@ -56,16 +56,16 @@ Since the expansion of supermarkets, it is rare to find olde world sweet shops, 
 
 ## Related Posts
 
-- [what to do with leftover chocolate bunnies](https://food.allwomenstalk.com/mouthwatering-things-to-do-with-your-leftover-easter-chocolate/)
-- [is black chocolate the same as dark chocolate](https://food.allwomenstalk.com/differences-between-raw-chocolate-and-dark-chocolate-everyone-needs-to-know/)
-- [baking tools equipment](https://food.allwomenstalk.com/baking-tools-every-baker-should-have/)
-- [trail mix ingredients list](https://food.allwomenstalk.com/ingredients-for-making-the-ultimate-trail-mix/)
-- [best chocolatiers in usa](https://food.allwomenstalk.com/best-american-chocolatiers/)
-- [jorge cruise cake recipe](https://food.allwomenstalk.com/tasty-mug-treats-you-can-make-in-the-microwave/)
-- [bread bakery los angeles](https://food.allwomenstalk.com/californian-bread-bakeries-to-love/)
 - [easter goodies](https://lifestyle.allwomenstalk.com/items-to-put-easter-goodies-in-other-than-a-basket/)
-- [made in heaven food](https://food.allwomenstalk.com/food-matches-made-in-heaven/)
 - [self service de brigadeiro](https://food.allwomenstalk.com/super-yummy-brazilian-treats-you-need-to-try/)
+- [made in heaven food](https://food.allwomenstalk.com/food-matches-made-in-heaven/)
+- [best chocolatiers in usa](https://food.allwomenstalk.com/best-american-chocolatiers/)
+- [bread bakery los angeles](https://food.allwomenstalk.com/californian-bread-bakeries-to-love/)
+- [trail mix ingredients list](https://food.allwomenstalk.com/ingredients-for-making-the-ultimate-trail-mix/)
+- [baking tools equipment](https://food.allwomenstalk.com/baking-tools-every-baker-should-have/)
+- [is black chocolate the same as dark chocolate](https://food.allwomenstalk.com/differences-between-raw-chocolate-and-dark-chocolate-everyone-needs-to-know/)
+- [jorge cruise cake recipe](https://food.allwomenstalk.com/tasty-mug-treats-you-can-make-in-the-microwave/)
+- [what to do with leftover chocolate bunnies](https://food.allwomenstalk.com/mouthwatering-things-to-do-with-your-leftover-easter-chocolate/)
 - [7 Yummy Candies ...](https://cooking.allwomenstalk.com/yummy-candies/)
 - [7 Types of Cookies That I Love ...](https://cooking.allwomenstalk.com/types-of-cookies-that-i-love/)
 

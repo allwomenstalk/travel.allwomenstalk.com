@@ -3,7 +3,7 @@ title: "10 Best NYC Cheap Eats ..."
 description: "Pommes Frites - East Village; Shake Shack - Various Locations; Dollar Slice at Percy's Pizza - Greenwich Village; Mexicue - Chelsea; Gray's Papaya - Upper West Side & Greenwich Village; More ..."
 url: "https://travel.allwomenstalk.com/best-nyc-cheap-eats/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Best NYC Cheap Eats ...
@@ -54,16 +54,16 @@ A safe bet for finding the best NYC cheap eats in Manhattan is to head down to t
 
 ## Related Posts
 
-- [7 Unusual Things and Places to Find Them ...](https://lifestyle.allwomenstalk.com/unusual-things-and-places-to-find-them-in/)
-- [geographical places](https://travel.allwomenstalk.com/places-of-geographical-fact-in-the-usa/)
-- [11 Places to Visit in Upstate New York ...](https://travel.allwomenstalk.com/places-to-visit-in-upstate-new-york/)
-- [things to visit in central park](https://travel.allwomenstalk.com/attractions-to-visit-in-central-park/)
-- [8 Things to Love about Cambodia ...](https://travel.allwomenstalk.com/things-to-love-about-cambodia/)
-- [washington dc museums list](https://travel.allwomenstalk.com/amazing-washington-dc-museums/)
-- [9 Fabulous Attractions of Amsterdam ...](https://travel.allwomenstalk.com/fabulous-attractions-of-amsterdam/)
-- [best things to do in north carolina](https://travel.allwomenstalk.com/best-things-to-do-in-north-carolina/)
 - [10 Top Cities to Visit in 2013 ...](https://travel.allwomenstalk.com/top-cities-to-visit-in/)
+- [best things to do in north carolina](https://travel.allwomenstalk.com/best-things-to-do-in-north-carolina/)
+- [11 Places to Visit in Upstate New York ...](https://travel.allwomenstalk.com/places-to-visit-in-upstate-new-york/)
+- [8 Things to Love about Cambodia ...](https://travel.allwomenstalk.com/things-to-love-about-cambodia/)
+- [7 Unusual Things and Places to Find Them ...](https://lifestyle.allwomenstalk.com/unusual-things-and-places-to-find-them-in/)
+- [9 Fabulous Attractions of Amsterdam ...](https://travel.allwomenstalk.com/fabulous-attractions-of-amsterdam/)
+- [things to visit in central park](https://travel.allwomenstalk.com/attractions-to-visit-in-central-park/)
 - [mount logan facts](https://travel.allwomenstalk.com/places-of-geographical-fact-in-canada/)
+- [geographical places](https://travel.allwomenstalk.com/places-of-geographical-fact-in-the-usa/)
+- [washington dc museums list](https://travel.allwomenstalk.com/amazing-washington-dc-museums/)
 - [10 Quick & Easy Homemade Dinners ...](https://eatial.com/10-quick-easy-homemade-dinners/)
 - [10 Great Lunch Ideas ...](https://cooking.allwomenstalk.com/great-lunch-ideas/)
 

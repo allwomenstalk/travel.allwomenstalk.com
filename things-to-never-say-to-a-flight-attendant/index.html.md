@@ -3,7 +3,7 @@ title: "7 Things to Never Say to a Flight Attendant ..."
 description: "“Watch My Kids.”; “Can You Help Me with My Bag?”; “This Food is Disgusting.”; “Throw Away My Trash.”; “I’ll Put My Phone on Airplane Mode in One Second.”; More ..."
 url: "https://travel.allwomenstalk.com/things-to-never-say-to-a-flight-attendant/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Things to Never Say to a Flight Attendant ...
@@ -42,16 +42,16 @@ Being polite to flight attendants will pay off during the duration of the flight
 
 ## Related Posts
 
-- [7 Things You Shouldn't Get Annoyed about ...](https://health.allwomenstalk.com/things-you-shouldnt-get-annoyed-about/)
-- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
-- [7 Social Media Don'ts That You're Better off Avoid...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
 - [7 Things You Really Don't Need to Pack for a Holid...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
+- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
+- [7 Things You Shouldn't Get Annoyed about ...](https://health.allwomenstalk.com/things-you-shouldnt-get-annoyed-about/)
+- [7 Social Media Don'ts That You're Better off Avoid...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
 - [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
 - [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
-- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
 - [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
-- [7 Things You Don't Want to Hear on a First Date .....](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
 - [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
+- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
+- [7 Things You Don't Want to Hear on a First Date .....](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 - [Top 7 Things to Never Say to Women ...](https://allwomenstalk.com/top-7-things-to-never-say-to-women/)
 

@@ -3,7 +3,7 @@ title: "7 Items Not Allowed in Hand Luggage and Carry-Ons ..."
 description: "No Lighting up; Chemicals and Arms; Medical Necessities; Sports Equipment; Tools of the Trade; More ..."
 url: "https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/"
 category: "travel"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Items Not Allowed in Hand Luggage and Carry\-Ons ...
@@ -42,16 +42,16 @@ That last piece of advice pretty much applies across the board. If you are unsur
 
 ## Related Posts
 
-- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
-- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
-- [volunteer programs that pay for travel](https://travel.allwomenstalk.com/volunteer-programs-for-budget-travelers/)
-- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
-- [leaving the house](https://lifestyle.allwomenstalk.com/things-to-check-before-leaving-the-house/)
-- [books for interrailing](https://travel.allwomenstalk.com/things-you-should-know-about-interrailing/)
-- [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
-- [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
 - [momentous sleep pack](https://teen.allwomenstalk.com/quick-tips-to-follow-for-your-senior-trip/)
+- [trip with parents](https://travel.allwomenstalk.com/questions-your-parents-will-ask-when-you-tell-them-youre-taking-a-round-the-world-trip/)
+- [volunteer programs that pay for travel](https://travel.allwomenstalk.com/volunteer-programs-for-budget-travelers/)
+- [how do i travel with a group](https://travel.allwomenstalk.com/tips-for-travelling-in-a-group/)
+- [what should we do to visit another country](https://travel.allwomenstalk.com/things-you-must-do-when-visiting-another-country/)
 - [take off one accessory before leaving the house](https://lifestyle.allwomenstalk.com/important-things-to-do-before-you-leave-the-house/)
+- [books for interrailing](https://travel.allwomenstalk.com/things-you-should-know-about-interrailing/)
+- [leaving the house](https://lifestyle.allwomenstalk.com/things-to-check-before-leaving-the-house/)
+- [how to fulfill your wanderlust](https://travel.allwomenstalk.com/ways-to-feed-your-wanderlust/)
+- [what do i do during a layover](https://travel.allwomenstalk.com/fine-ways-to-keep-yourself-busy-during-a-layover/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 
