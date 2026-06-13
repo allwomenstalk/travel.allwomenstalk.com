@@ -3,7 +3,7 @@ title: "8 Wheelchair Friendly Places in New York ..."
 description: "The Statue of Liberty; Central Park; Metropolitan Museum of Art; New York Theaters; Circle Line; More ..."
 url: "https://travel.allwomenstalk.com/wheelchair-friendly-places-in-new-york/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 Wheelchair Friendly Places in New York ...
@@ -66,16 +66,16 @@ Top Image Source: [edinchavez.com](http://edinchavez.com/)
 
 ## Related Posts
 
-- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
-- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
 - [art urban places](https://travel.allwomenstalk.com/best-places-to-see-urban-art/)
-- [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
 - [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
-- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
 - [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
-- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
-- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
+- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
+- [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
 - [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
+- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
+- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
 - [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 

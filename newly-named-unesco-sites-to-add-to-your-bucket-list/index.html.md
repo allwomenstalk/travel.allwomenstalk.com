@@ -3,7 +3,7 @@ title: "Newly Named UNESCO Sites to Add to Your Bucket List ..."
 description: "Singapore Botanic Gardens, Singapore; Al Maghtas, Jordan; Aqueduct of Padre Tembleque, Mexico; Champagne and Burgundy Regions, France; Hail Region Rock Art, Saudi Arabia; More ..."
 url: "https://travel.allwomenstalk.com/newly-named-unesco-sites-to-add-to-your-bucket-list/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Newly Named UNESCO Sites to Add to Your Bucket List ...
@@ -54,16 +54,16 @@ Which are going on your bucket list?
 
 ## Related Posts
 
+- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
+- [21 Famous Landmarks You Should See in Person ...](https://travel.allwomenstalk.com/famous-landmarks-you-should-see-in-person/)
+- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
+- [#PrayForParis: 11 Ways to Show Your Support for Pa...](https://lifestyle.allwomenstalk.com/prayforparis/)
 - [9 of the Best US Christmas Markets ...](https://travel.allwomenstalk.com/of-the-best-us-christmas-markets/)
 - [The Best Places to Drink Beer on St. Patrick's Day...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
-- [#PrayForParis: 11 Ways to Show Your Support for Pa...](https://lifestyle.allwomenstalk.com/prayforparis/)
+- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
 - [The Best Places in the World for Runners to Hit th...](https://running.allwomenstalk.com/the-best-places-in-the-world-to-go-for-a-run/)
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
-- [21 Famous Landmarks You Should See in Person ...](https://travel.allwomenstalk.com/famous-landmarks-you-should-see-in-person/)
-- [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
-- [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
-- [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [10 Places to Visit in the World ...](https://allwomenstalk.com/top-10-places-to-visit-in-the-world/)
 - [10 Historic Sites Everyone Should Visit ...](https://allwomenstalk.com/10-historic-sites-everyone-should-visit/)
 

@@ -3,7 +3,7 @@ title: "8 Places to Visit in the Far East ..."
 description: "Great Wall of China; Tibet; Kyoto, Japan; Tiananmen Square; Bangkok; More ..."
 url: "https://travel.allwomenstalk.com/places-to-visit-in-the-far-east/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 Places to Visit in the Far East ...
@@ -48,16 +48,16 @@ Top Photo Credit: [babykailan](https://www.flickr.com/photos/babykailan/30621676
 
 ## Related Posts
 
+- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
 - [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
+- [8 Best and Wonderfully Pleasant Cities to Shop ...](https://travel.allwomenstalk.com/best-and-wonderfully-pleasant-cities-to-shop/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
-- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 - [american towns with english names](https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
-- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
-- [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 - [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
-- [8 Best and Wonderfully Pleasant Cities to Shop ...](https://travel.allwomenstalk.com/best-and-wonderfully-pleasant-cities-to-shop/)
+- [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
+- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 

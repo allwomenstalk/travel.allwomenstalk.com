@@ -3,7 +3,7 @@ title: "7 Rules of Etiquette for the Airplane Bathroom ..."
 description: "Lock the Door; Go at the Right Time; Make It Snappy; Don’t Be an Aisle Seat a-hole; Don’t Go Alone – if You Are Traveling with Kids; More ..."
 url: "https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Rules of Etiquette for the Airplane Bathroom ...
@@ -43,15 +43,15 @@ Cabin crew do their best to try and keep everything clean and tidy, so please do
 ## Related Posts
 
 - [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
-- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
-- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
 - [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
+- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
+- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
+- [what's not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
+- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
+- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
 - [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
 - [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
-- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
-- [what's not allowed on carry on](https://travel.allwomenstalk.com/items-not-allowed-in-hand-luggage-and-carry-ons/)
-- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
-- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
+- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
 - [7 Ways to Deal with Annoying Co-Passengers ...](https://travel.allwomenstalk.com/ways-to-deal-with-annoying-co-passengers/)
 - [7 Necessary Rules of Theatre Etiquette ...](https://movies.allwomenstalk.com/necessary-rules-of-theatre-etiquette/)
 

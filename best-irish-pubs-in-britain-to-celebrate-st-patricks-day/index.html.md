@@ -3,7 +3,7 @@ title: "7 Best Irish Pubs in Britain to Celebrate St. Patrick's Day ..."
 description: "The Liffey – Liverpool; Fiddlers Elbow – Brighton; The Tipperary – London; Seamus O’Donnells – Bristol; Mulligan’s – Manchester; More ..."
 url: "https://travel.allwomenstalk.com/best-irish-pubs-in-britain-to-celebrate-st-patricks-day/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Best Irish Pubs in Britain to Celebrate St. Patrick's Day ...
@@ -56,16 +56,16 @@ I’d love to hear about some more Irish pubs in Britain. With a Irish Grandfath
 
 ## Related Posts
 
+- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
 - [abandoned places in new orleans](https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/)
-- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
-- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
-- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
 - [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [best city for creatives](https://travel.allwomenstalk.com/cities-for-creatives-to-energize-their-mojo/)
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
 - [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
 - [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
-- [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
-- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [bagdale hall](https://travel.allwomenstalk.com/of-the-worlds-creepiest-attractions/)
+- [ganong chocolate factory tours](https://travel.allwomenstalk.com/delicious-chocolate-museums-around-the-world/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 

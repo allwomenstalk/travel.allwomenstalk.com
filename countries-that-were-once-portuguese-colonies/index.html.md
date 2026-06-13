@@ -3,7 +3,7 @@ title: "7 Countries That Were Once Portuguese Colonies ..."
 description: "Angola; Brazil; Cape Verde; Equatorial Guinea; Mozambique; More ..."
 url: "https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Countries That Were Once Portuguese Colonies ...
@@ -42,16 +42,16 @@ It’s quite surprising that a country as small as Portugal could once have rule
 
 ## Related Posts
 
-- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
 - [natural attractions in europe](https://travel.allwomenstalk.com/magnificent-natural-wonders-of-france/)
-- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
-- [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
-- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
+- [world's best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
 - [traditions of mexican culture](https://travel.allwomenstalk.com/customs-and-traditions-of-mexico/)
 - [most beautiful places in iran](https://travel.allwomenstalk.com/amazing-sights-in-iran/)
-- [mia jewelry aventura mall](https://travel.allwomenstalk.com/amazing-reasons-to-visit-miami/)
-- [world's best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
+- [world famous streets a to z](https://travel.allwomenstalk.com/most-famous-streets-in-the-world/)
+- [why is it rude to put elbows on table](https://travel.allwomenstalk.com/points-of-dining-etiquette-from-around-the-world/)
 - [most beautiful places in bolivia](https://travel.allwomenstalk.com/amazing-landscapes-of-bolivia/)
+- [indian housewarming traditions](https://travel.allwomenstalk.com/customs-of-visiting-a-home-in-india/)
+- [mia jewelry aventura mall](https://travel.allwomenstalk.com/amazing-reasons-to-visit-miami/)
+- [cheap places to christmas shop](https://travel.allwomenstalk.com/fabulous-places-for-christmas-shopping-in-europe/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

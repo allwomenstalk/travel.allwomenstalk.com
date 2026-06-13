@@ -3,7 +3,7 @@ title: "7 Fun Facts about Washington D.C ..."
 description: "Private Subways; Swaying in the Wind; Capitol Competition; Made in China; Work Hard, Play Hard; More ..."
 url: "https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Fun Facts about Washington D.C ...
@@ -44,16 +44,16 @@ D.C. is one of the most historical cities in the United States, so it makes sens
 
 ## Related Posts
 
-- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
-- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
+- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
 - [7 Facts on Florida ...](https://travel.allwomenstalk.com/7-facts-on-florida/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 

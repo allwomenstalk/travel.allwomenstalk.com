@@ -3,7 +3,7 @@ title: "9 Spooky Haunted Places in Louisiana to Explore This Year"
 description: "The Old Ellerbe Road School, Shreveport; The Magnolia Plantation, Natchitoches; Alexandria Zoological Park, Alexandria; Harris Hall at University of Louisiana, Lafayette; Joseph Jefferson Mansion, New Iberia; More ..."
 url: "https://travel.allwomenstalk.com/haunted-places-in-louisiana-to-scare-the-living-daylights-out-of-you/"
 category: "travel"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Spooky Haunted Places in Louisiana to Explore This Year
@@ -96,16 +96,16 @@ History is full of all kinds of stories—good, bad, and terrifying. Have you vi
 
 ## Related Posts
 
-- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
-- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
-- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
 - [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
+- [africa programs volunteer](https://travel.allwomenstalk.com/volunteer-opportunities-in-africa/)
 - [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
-- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
-- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
+- [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
 - [examples of green spaces](https://travel.allwomenstalk.com/top-us-cities-with-green-spaces-for-nature-lovers/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [mountain climbing places](https://travel.allwomenstalk.com/amazing-places-to-go-rock-climbing/)
+- [haunted house scotland](https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/)
+- [sights in san francisco](https://travel.allwomenstalk.com/sights-youve-got-to-see-in-san-francisco/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
 - [5 Haunted Places ...](https://twilight.allwomenstalk.com/5-haunted-places/)
 
