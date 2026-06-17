@@ -3,7 +3,7 @@ title: "10 Really Cool Small Towns in America ..."
 description: "Lexington, Virginia; Cayucos, California; Breaux Bridge, Louisiana; Tubac, Arizona; Wallace, Idaho; More ..."
 url: "https://travel.allwomenstalk.com/really-cool-small-towns-in-america/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Really Cool Small Towns in America ...
@@ -56,16 +56,16 @@ Top Photo Credit: [m@percy](https://www.flickr.com/photos/henstyle/5100914921/)
 
 ## Related Posts
 
-- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
-- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
-- [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
-- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
-- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
-- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
-- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
+- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [10 Top Places for Afternoon Tea in London ...](https://travel.allwomenstalk.com/top-places-for-afternoon-tea-in-london/)
+- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
+- [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
+- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
+- [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 - [athens consignment sale](https://travel.allwomenstalk.com/places-for-shopping-in-athens/)
+- [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [7 Amazing Places to Backpack in America ...](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 

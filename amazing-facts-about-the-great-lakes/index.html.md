@@ -3,7 +3,7 @@ title: "7 Amazing Facts about the Great Lakes ..."
 description: "The Great Lakes Collectively Hold 20% of the World’s Fresh Water; The Lakes Were Discovered in the 17th Century; Only Lake Michigan is Located Solely in the United States; There Are over 30,000 Islands on the Lakes; They Are an Economic Powerhouse; More ..."
 url: "https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Amazing Facts about the Great Lakes ...
@@ -42,16 +42,16 @@ So, how many of these facts about the Great Lakes did you already know?
 
 ## Related Posts
 
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
 - [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
-- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
-- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
-- [why can't you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
 - [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
+- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
+- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
+- [why can't you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

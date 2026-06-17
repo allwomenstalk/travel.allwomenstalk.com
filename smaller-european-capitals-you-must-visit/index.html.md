@@ -3,7 +3,7 @@ title: "7 Smaller European Capitals You Must Visit ..."
 description: "VALLETTA; Tallinn; Reykjavik; Podgorica; Vaduz; More ..."
 url: "https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Smaller European Capitals You Must Visit ...
@@ -53,15 +53,15 @@ So next time you're planning your travels, consider adding some of these smaller
 ## Related Posts
 
 - [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
-- [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
 - [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
-- [marseille attraction](https://travel.allwomenstalk.com/top-attractions-of-marseille/)
-- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
-- [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
-- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
 - [famous prehistoric paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)
+- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
+- [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
+- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
+- [marseille attraction](https://travel.allwomenstalk.com/top-attractions-of-marseille/)
 - [in which african country can you find the acacus m...](https://travel.allwomenstalk.com/postcards-from-north-africa-that-say-wish-you-here/)
 - [what does disneyland do for new years eve](https://travel.allwomenstalk.com/best-places-to-see-new-years-eve-fireworks/)
+- [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
 - [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

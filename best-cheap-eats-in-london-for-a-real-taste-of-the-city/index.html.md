@@ -3,7 +3,7 @@ title: "9 Best Cheap Eats in London for a Real Taste of the City ..."
 description: "Yalla Yalla, Soho; Jai Khrishna, Finsbury Park; Franco Manca, Chiswick; Song Que, Shoreditch; Fryer’s Delight, Kings Cross; More ..."
 url: "https://travel.allwomenstalk.com/best-cheap-eats-in-london-for-a-real-taste-of-the-city/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Best Cheap Eats in London for a Real Taste of the City ...
@@ -68,16 +68,16 @@ This is just a minute selection of cheap places to eat out in London. The variet
 
 ## Related Posts
 
-- [fun things to do in finland](https://travel.allwomenstalk.com/fabulous-things-to-do-in-finland/)
-- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
-- [100 things to do before i die](https://travel.allwomenstalk.com/things-to-do-in-uk-before-you-die/)
-- [british stores in america](https://travel.allwomenstalk.com/british-themed-shops-in-the-usa/)
+- [designer shops in ibiza](https://travel.allwomenstalk.com/unmissable-places-to-go-shopping-in-ibiza/)
 - [top fictional places](https://lifestyle.allwomenstalk.com/amazing-fictional-places-you-wish-were-real/)
 - [places to go before i die](https://travel.allwomenstalk.com/things-to-do-in-europe-before-you-die/)
-- [hi tea places](https://travel.allwomenstalk.com/best-places-for-high-tea-around-the-world/)
-- [designer shops in ibiza](https://travel.allwomenstalk.com/unmissable-places-to-go-shopping-in-ibiza/)
-- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
 - [the strangest houses](https://lifestyle.allwomenstalk.com/strangest-houses-in-the-world/)
+- [fun things to do in finland](https://travel.allwomenstalk.com/fabulous-things-to-do-in-finland/)
+- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
+- [british stores in america](https://travel.allwomenstalk.com/british-themed-shops-in-the-usa/)
+- [hi tea places](https://travel.allwomenstalk.com/best-places-for-high-tea-around-the-world/)
+- [100 things to do before i die](https://travel.allwomenstalk.com/things-to-do-in-uk-before-you-die/)
+- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
 - [10 Free Entry Attractions in London ...](https://travel.allwomenstalk.com/free-entry-attractions-in-london/)
 - [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 

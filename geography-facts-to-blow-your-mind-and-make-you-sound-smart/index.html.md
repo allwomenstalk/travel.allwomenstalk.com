@@ -3,7 +3,7 @@ title: "15 Geography Facts to Blow Your Mind and Make You Sound Smart 🤓 ..."
 description: "12 people have walked on the moon. – Wikipedia; California has more people than all of Canada. – City News; Mt. Thor in the Baffin Islands, Canada, has Earth’s greatest sheer vertical drop. You can take one step off the peak and fall nearly a mile (4,101ft) before you hit anything. – Wikipedia; 90% of Earth’s population live in the Northern Hemisphere. – Business Insider; Only 3 people have been to Challenger Deep, the deepest point in our oceans. – More at Gizmodo; More ..."
 url: "https://travel.allwomenstalk.com/geography-facts-to-blow-your-mind-and-make-you-sound-smart/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Geography Facts to Blow Your Mind and Make You Sound Smart 🤓 ...
@@ -80,16 +80,16 @@ Fun fact: James Cameron(the guy behind Alien, Terminator, Titanic, Avatar and mo
 
 ## Related Posts
 
-- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
-- [facts that make you sound smart](https://lifestyle.allwomenstalk.com/these-amazing-facts-will-make-you-smarter/)
-- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
-- [Did You Know Your Christmas Glitter Kills Fishes? ...](https://lifestyle.allwomenstalk.com/did-you-know-your-christmas-glitter-kills-fishes/)
-- [fun facts about tinder](https://apps.allwomenstalk.com/tinder-facts/)
-- [women's chanel number 5](https://perfumes.allwomenstalk.com/fascinating-facts-about-chanel-no-5-every-woman-should-know/)
-- [chiclephobia pronunciation](https://lifestyle.allwomenstalk.com/craziest-phobias-you-will-not-believe-exist/)
-- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
-- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
 - [caitriona balfe beauty secrets](https://celebs.allwomenstalk.com/facts-about-caitriona-balfe/)
+- [Did You Know Your Christmas Glitter Kills Fishes? ...](https://lifestyle.allwomenstalk.com/did-you-know-your-christmas-glitter-kills-fishes/)
+- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
+- [fun facts about tinder](https://apps.allwomenstalk.com/tinder-facts/)
+- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
+- [chiclephobia pronunciation](https://lifestyle.allwomenstalk.com/craziest-phobias-you-will-not-believe-exist/)
+- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
+- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
+- [women's chanel number 5](https://perfumes.allwomenstalk.com/fascinating-facts-about-chanel-no-5-every-woman-should-know/)
+- [facts that make you sound smart](https://lifestyle.allwomenstalk.com/these-amazing-facts-will-make-you-smarter/)
 - [5 Cool Paranormal Facts ...](https://twilight.allwomenstalk.com/5-cool-paranormal-facts/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 

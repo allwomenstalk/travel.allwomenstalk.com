@@ -3,7 +3,7 @@ title: "7 Alternative Places to Spend Thanksgiving 🦃 ..."
 description: "Turkey; Plymouth, England; Limerick, Ireland; Yam Island, Australia; Frobisher Bay, Canada; More ..."
 url: "https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Alternative Places to Spend Thanksgiving 🦃 ...
@@ -56,16 +56,16 @@ Well, was that some food for thought? Will you ever venture forth to these alter
 
 ## Related Posts
 
-- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
-- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
-- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
-- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
-- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
 - [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
+- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
+- [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
+- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
 - [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
 - [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
-- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
 - [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
+- [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
+- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ways to Celebrate Fall ...](https://allwomenstalk.com/7-ways-to-celebrate-fall/)
 

@@ -3,7 +3,7 @@ title: "35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patr
 description: "Christ the Redeemer Statue, Rio De Janeiro, Brazil; The London Eye, London, United Kingdom; The Welcome Sign, Las Vegas, USA; The Coliseum, Rome, Italy; The I Amsterdam Sign, Amsterdam, the Netherlands; More ..."
 url: "https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 35 Iconic Landmarks Taking Part in Global Greening to Celebrate St. Patrick's Day 2019 ...
@@ -167,14 +167,14 @@ I wonder which will make its mark in 2020?
 ## Related Posts
 
 - [Top 5 Delicious Restaurants for All Occasions of t...](https://food.allwomenstalk.com/restaurants-for-all-occasions/)
-- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
-- [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
+- [The Top 5 Places to See within Your Lifetime ⏳ ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
 - [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
+- [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
 - [Top 11 Best Restaurants at Walt Disney World ...](https://travel.allwomenstalk.com/best-restaurants-at-walt-disney-world/)
 - [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
+- [museums around the world](https://travel.allwomenstalk.com/must-see-museums-around-the-world/)
+- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
 - [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
-- [The Top 5 Places to See within Your Lifetime ⏳ ...](https://travel.allwomenstalk.com/places-you-really-must-visit/)
 - [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [9 Amazing Places to Celebrate Easter This Year ...](https://travel.allwomenstalk.com/places-to-celebrate-easter/)

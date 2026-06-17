@@ -3,7 +3,7 @@ title: "7 Most Haunted Hotels from around the World ..."
 description: "The Queen Mary in Long Beach, California; Stanley Hotel in Estes Park, Colorado; Langham Hilton in London, England; Castle Stuart near Iverness in the Highlands of Scotland; Hotel Del Coronado in San Diego, California; More ..."
 url: "https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Most Haunted Hotels from around the World ...
@@ -44,14 +44,14 @@ Top Photo Credit: [suchitra prints](https://www.flickr.com/photos/chitrasudar/27
 
 ## Related Posts
 
-- [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
-- [what is the most unusual building you have ever se...](https://travel.allwomenstalk.com/8-ugliest-world-buildings/)
+- [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
 - [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
-- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
+- [what is the most unusual building you have ever se...](https://travel.allwomenstalk.com/8-ugliest-world-buildings/)
 - [hipster things to do in paris](https://travel.allwomenstalk.com/things-to-do-in-paris/)
-- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
 - [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
+- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
+- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
 - [sights in greece](https://travel.allwomenstalk.com/places-to-visit-in-greece/)
 - [10 Must-Visit Places in England ...](https://travel.allwomenstalk.com/must-visit-places-in-england/)
 - [7 Best Theme Parks from around the World ...](https://travel.allwomenstalk.com/best-theme-parks-from-around-the-world/)

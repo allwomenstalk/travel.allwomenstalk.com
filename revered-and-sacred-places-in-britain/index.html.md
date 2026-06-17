@@ -3,7 +3,7 @@ title: "7 Revered and Sacred Places in Britain ..."
 description: "Canterbury Cathedral, Kent; Glastonbury Tor, Somerset; West Kennet Longbarrow, Wiltshire; Avebury Stone Circle; Goat's Hole Cave, Paviland, Gower Peninsula, Wales; More ..."
 url: "https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Revered and Sacred Places in Britain ...
@@ -56,16 +56,16 @@ If you want to visit sacred places in Britain there are so many – even if you 
 
 ## Related Posts
 
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
-- [loreal paris riche le stylo plum](https://travel.allwomenstalk.com/geological-formations-that-you-must-see-to-believe/)
-- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
-- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [places i should visit before i die](https://travel.allwomenstalk.com/places-you-must-visit-before-you-die/)
-- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
+- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
+- [driest part of australia](https://travel.allwomenstalk.com/of-the-driest-places-in-the-world/)
 - [places i want to visit](https://travel.allwomenstalk.com/places-you-cant-visit-but-probably-dont-want-to-anyway/)
+- [places i should visit before i die](https://travel.allwomenstalk.com/places-you-must-visit-before-you-die/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
+- [loreal paris riche le stylo plum](https://travel.allwomenstalk.com/geological-formations-that-you-must-see-to-believe/)
+- [surreal places on earth](https://travel.allwomenstalk.com/seriously-surreal-places-to-visit/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
+- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 

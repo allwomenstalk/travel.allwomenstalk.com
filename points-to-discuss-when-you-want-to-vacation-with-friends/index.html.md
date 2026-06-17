@@ -3,7 +3,7 @@ title: "7 Points to Discuss when You Want to Vacation with Friends ..."
 description: "Where to Go; Budget; Who Handles the Booking; Drop out?; Joint Spending; More ..."
 url: "https://travel.allwomenstalk.com/points-to-discuss-when-you-want-to-vacation-with-friends/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Points to Discuss when You Want to Vacation with Friends ...
@@ -42,16 +42,16 @@ Of course, going on vacation with friends can equally work out very well. You ca
 
 ## Related Posts
 
-- [things to do before you go on vacation](https://travel.allwomenstalk.com/fun-things-to-do-before-your-next-vacation/)
 - [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
-- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
-- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
-- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
-- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
-- [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
-- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
-- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
+- [things to do before you go on vacation](https://travel.allwomenstalk.com/fun-things-to-do-before-your-next-vacation/)
 - [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
+- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
+- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
+- [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
+- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
+- [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
+- [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
+- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
 - [7 Packing Tips when Planning a Warm Vacation ...](https://travel.allwomenstalk.com/7-packing-tips-when-planning-a-warm-vacation/)
 - [7 Tips for Choosing a Travel Buddy ...](https://travel.allwomenstalk.com/tips-for-choosing-a-travel-buddy/)
 

@@ -3,7 +3,7 @@ title: "Alternative Places to Spend Christmas ..."
 description: "Budapest, Hungary; San Cristobal De Las Casas, Mexico; Gramado, Brazil; Dubai, United Arab Emirates; Livingstone, Zambia; More ..."
 url: "https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Alternative Places to Spend Christmas ...
@@ -116,16 +116,16 @@ Are you treating yourself to a trip this holiday?
 
 ## Related Posts
 
-- [new year's ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
+- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
+- [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
 - [cheapest skiing in europe](https://travel.allwomenstalk.com/best-budget-ski-destinations-in-europe/)
 - [nashville lonely planet](https://travel.allwomenstalk.com/which-cities-does-lonely-planet-say-to-visit-in/)
-- [national geographic trips](https://travel.allwomenstalk.com/national-geographics-recommended-trips-for/)
-- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
-- [things to do on january 1](https://travel.allwomenstalk.com/fabulous-places-to-spend-january-1st/)
 - [eben ice caves photos](https://travel.allwomenstalk.com/pictures-of-paradise-that-will-give-you-travel-envy/)
-- [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
-- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
 - [spring break trips](https://travel.allwomenstalk.com/spring-break-trips-for-fun-loving-girls/)
+- [new year's ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
+- [national geographic trips](https://travel.allwomenstalk.com/national-geographics-recommended-trips-for/)
+- [things to do on january 1](https://travel.allwomenstalk.com/fabulous-places-to-spend-january-1st/)
+- [oldest cities in germany](https://travel.allwomenstalk.com/secret-destinations-youll-really-want-to-visit/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 - [10 Places to Escape to This Weekend ...](https://allwomenstalk.com/ten-places-to-escape-to-this-weekend/)
 

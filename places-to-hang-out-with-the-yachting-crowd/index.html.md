@@ -3,7 +3,7 @@ title: "7 Places to Hang out with the Yachting Crowd ..."
 description: "Look out for Special Events at Foxy's, Jost Van Dyke, British Virgin Islands; Showing off at the Pink Pony Patio Bar & Grill, Mackinac Island, Michigan; Feasting Fish-free at the Harbor Pub, Honolulu, Hawaii; Top Billing for Boatyard Bar & Grill, Annapolis, Maryland; Enter Sailor's Heaven at Fiddler's Green, San Diego, California; More ..."
 url: "https://travel.allwomenstalk.com/places-to-hang-out-with-the-yachting-crowd/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Places to Hang out with the Yachting Crowd ...
@@ -42,16 +42,16 @@ Do you see yourself donning your best nautical stripes and heading to any of the
 
 ## Related Posts
 
-- [secret travel](https://travel.allwomenstalk.com/these-secret-travel-places-will-blow-you-away/)
-- [Think You Can't Afford Europe This Year? These Cit...](https://travel.allwomenstalk.com/think-you-cant-afford-europe-this-year-these-cities-make-it-possible/)
-- [Top Holiday Islands around the World According to ...](https://travel.allwomenstalk.com/top-holiday-islands-around-the-world-according-to-the-trip-advisor-travelers-choices/)
-- [Get behind the Wheel for the Most Budget Friendly ...](https://travel.allwomenstalk.com/get-behind-the-wheel-for-the-most-budget-friendly-road-trips/)
-- [2015's Top Green Destinations for Eco-Friendly Gal...](https://travel.allwomenstalk.com/2015s-top-green-destinations-for-eco-friendly-gals/)
+- [trip advisor dublin](https://travel.allwomenstalk.com/get-some-sun-on-trip-advisors-travelers-choices-of-best-beaches-in-the-uk-and-ireland/)
+- [genghis khan statue london](https://travel.allwomenstalk.com/worldwide-adventures-a-bucket-list-of-unpredictable-and-non-cliche-destinations/)
 - [beaches in the northwest](https://travel.allwomenstalk.com/head-to-the-beaches-of-the-pacific-north-west-for-a-summer-to-remember/)
+- [secret travel](https://travel.allwomenstalk.com/these-secret-travel-places-will-blow-you-away/)
+- [2015's Top Green Destinations for Eco-Friendly Gal...](https://travel.allwomenstalk.com/2015s-top-green-destinations-for-eco-friendly-gals/)
+- [Get behind the Wheel for the Most Budget Friendly ...](https://travel.allwomenstalk.com/get-behind-the-wheel-for-the-most-budget-friendly-road-trips/)
 - [Want to See Which Were Voted the 25 Top US Beaches...](https://travel.allwomenstalk.com/want-to-see-which-were-voted-the-top-us-beaches-in-the-trip-advisor-travelers-choice-awards/)
 - [These Are the Top Beaches in Africa According to 2...](https://travel.allwomenstalk.com/these-are-the-top-beaches-in-africa-according-to-trip-advisor-travelers-choices/)
-- [genghis khan statue london](https://travel.allwomenstalk.com/worldwide-adventures-a-bucket-list-of-unpredictable-and-non-cliche-destinations/)
-- [trip advisor dublin](https://travel.allwomenstalk.com/get-some-sun-on-trip-advisors-travelers-choices-of-best-beaches-in-the-uk-and-ireland/)
+- [Think You Can't Afford Europe This Year? These Cit...](https://travel.allwomenstalk.com/think-you-cant-afford-europe-this-year-these-cities-make-it-possible/)
+- [Top Holiday Islands around the World According to ...](https://travel.allwomenstalk.com/top-holiday-islands-around-the-world-according-to-the-trip-advisor-travelers-choices/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

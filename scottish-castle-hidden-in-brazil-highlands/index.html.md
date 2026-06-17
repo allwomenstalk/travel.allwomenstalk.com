@@ -3,7 +3,7 @@ title: "A Scottish Castle in Brazil's Highlands, and You Won't Believe..."
 description: "Unveiling a European Fantasy; Indulge in Exquisite Luxury; A Retreat for the Soul; Crafting Unforgettable Memories; The Mystery and Magic of Discovery; More ..."
 url: "https://travel.allwomenstalk.com/scottish-castle-hidden-in-brazil-highlands/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # A Scottish Castle in Brazil's Highlands, and You Won't Believe...

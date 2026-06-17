@@ -3,7 +3,7 @@ title: "35 Super Sights of Madrid for a Flavor of Spain ..."
 description: "Gran via; Palacio De Cristal in Buen Retiro Park; Kimsooja's Room of Rainbows; The Metropolis; Street Scene; More ..."
 url: "https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 35 Super Sights of Madrid for a Flavor of Spain ...
@@ -277,16 +277,16 @@ So many sights of Madrid, so little time. The Spanish capital is a fabulous week
 
 ## Related Posts
 
-- [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
 - [central perk cafe from friends](https://travel.allwomenstalk.com/tv-show-cafes-and-restaurants-you-can-actually-visit/)
 - [sights chicago](https://travel.allwomenstalk.com/sights-of-chicago-that-will-make-you-want-to-visit/)
-- [sights of toronto](https://travel.allwomenstalk.com/umissable-sights-of-toronto/)
-- [as roma wallpaper 4k iphone](https://travel.allwomenstalk.com/magnificent-and-memorable-sights-of-rome/)
-- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
+- [nassau pirate haven](https://travel.allwomenstalk.com/places-to-follow-in-the-footsteps-of-pirates/)
 - [best cities in the world 2023](https://money.allwomenstalk.com/cities-around-the-world-with-the-most-job-opportunities/)
 - [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
+- [as roma wallpaper 4k iphone](https://travel.allwomenstalk.com/magnificent-and-memorable-sights-of-rome/)
+- [sights of toronto](https://travel.allwomenstalk.com/umissable-sights-of-toronto/)
+- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
 - [twilight poem 57](https://travel.allwomenstalk.com/sights-of-ireland-that-will-make-you-green-with-envy/)
-- [nassau pirate haven](https://travel.allwomenstalk.com/places-to-follow-in-the-footsteps-of-pirates/)
+- [sights in paris](https://travel.allwomenstalk.com/sights-of-paris-to-remind-you-of-its-beauty/)
 - [8 Places to Visit in Spain ...](https://travel.allwomenstalk.com/places-to-visit-in-spain/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 

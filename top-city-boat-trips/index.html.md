@@ -3,7 +3,7 @@ title: "8 Top City Boat Trips ..."
 description: "Vancouver Ferries, Canada; Staten Island Ferry, New York City; San Francisco to Sausalito Ferry, California; New Orleans to Algiers Ferry, Louisiana; Star Ferry, Hong Kong, China; More ..."
 url: "https://travel.allwomenstalk.com/top-city-boat-trips/"
 category: "travel"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 8 Top City Boat Trips ...
@@ -48,16 +48,16 @@ Top Image Source: [tumblr.com](https://urbanoutfitters.tumblr.com/post/108584221
 
 ## Related Posts
 
-- [holiday destinations france](https://travel.allwomenstalk.com/best-holiday-destinations-in-france/)
-- [8 so Cheap but so Chic Hotels in the UK ...](https://travel.allwomenstalk.com/so-cheap-but-so-chic-hotels-in-the-uk/)
-- [west africa vacation](https://travel.allwomenstalk.com/luscious-holiday-destinations-in-west-africa/)
-- [best whale watching destinations](https://travel.allwomenstalk.com/top-destinations-to-go-whale-watching/)
-- [10 Stunning Locations for Vacations in Ireland ...](https://travel.allwomenstalk.com/stunning-locations-for-vacations-in-ireland/)
-- [best place to visit during labor day weekend](https://travel.allwomenstalk.com/top-places-for-labor-day-weekend/)
-- [world adventure holidays](https://travel.allwomenstalk.com/of-the-worlds-best-adventure-holidays/)
 - [8 Myths about round the World Travel Debunked ...](https://travel.allwomenstalk.com/myths-about-round-the-world-travel-debunked/)
+- [world adventure holidays](https://travel.allwomenstalk.com/of-the-worlds-best-adventure-holidays/)
+- [holiday destinations france](https://travel.allwomenstalk.com/best-holiday-destinations-in-france/)
+- [best whale watching destinations](https://travel.allwomenstalk.com/top-destinations-to-go-whale-watching/)
+- [west africa vacation](https://travel.allwomenstalk.com/luscious-holiday-destinations-in-west-africa/)
 - [Top 8 Adventure Trips in the Caribbean ...](https://travel.allwomenstalk.com/top-adventure-trips-in-the-caribbean/)
+- [best place to visit during labor day weekend](https://travel.allwomenstalk.com/top-places-for-labor-day-weekend/)
 - [8 Best Girlfriend Getaways in the US ...](https://travel.allwomenstalk.com/best-girlfriend-getaways-in-the-us/)
+- [10 Stunning Locations for Vacations in Ireland ...](https://travel.allwomenstalk.com/stunning-locations-for-vacations-in-ireland/)
+- [8 so Cheap but so Chic Hotels in the UK ...](https://travel.allwomenstalk.com/so-cheap-but-so-chic-hotels-in-the-uk/)
 - [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 
