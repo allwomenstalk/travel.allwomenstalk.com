@@ -3,7 +3,7 @@ title: "7 Sites of Ancient Ruins in Peru Other than Machu Picchu ..."
 description: "Sacsahuaman in Cusco; Pisac near Cusco; The Palace Complex of Vitcos-Yurak Rumi; Scaling the Walled Fortifications of Ollantaytambo; Visiting the Center of the World at Cusco and the Koricancha; More ..."
 url: "https://travel.allwomenstalk.com/sites-of-ancient-ruins-in-peru-other-than-machu-picchu/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 7 Sites of Ancient Ruins in Peru Other than Machu Picchu ...
@@ -56,16 +56,16 @@ Peru is an incredible country and its Incan history is amazing. For travelers wh
 
 ## Related Posts
 
-- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
-- [things to see in santorini greece](https://travel.allwomenstalk.com/things-to-see-and-do-in-santorini-greece/)
-- [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
-- [natural beauty switzerland](https://travel.allwomenstalk.com/stunning-natural-sights-of-switzerland/)
-- [world heritage sites florida](https://travel.allwomenstalk.com/natural-unesco-world-heritage-sites-in-the-usa/)
 - [type of dance in india](https://travel.allwomenstalk.com/traditional-dance-forms-unique-to-india/)
-- [places to visit near milwaukee](https://travel.allwomenstalk.com/places-to-go-and-things-to-see-in-milwaukee/)
 - [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
+- [natural beauty switzerland](https://travel.allwomenstalk.com/stunning-natural-sights-of-switzerland/)
 - [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
+- [things to see in santorini greece](https://travel.allwomenstalk.com/things-to-see-and-do-in-santorini-greece/)
+- [world heritage sites florida](https://travel.allwomenstalk.com/natural-unesco-world-heritage-sites-in-the-usa/)
+- [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
+- [places to visit near milwaukee](https://travel.allwomenstalk.com/places-to-go-and-things-to-see-in-milwaukee/)
 - [cat cuddle cafe](https://travel.allwomenstalk.com/unusual-cafes-around-the-world/)
+- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 

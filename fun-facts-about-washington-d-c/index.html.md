@@ -3,7 +3,7 @@ title: "7 Fun Facts about Washington D.C ..."
 description: "Private Subways; Swaying in the Wind; Capitol Competition; Made in China; Work Hard, Play Hard; More ..."
 url: "https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 7 Fun Facts about Washington D.C ...
@@ -44,16 +44,16 @@ D.C. is one of the most historical cities in the United States, so it makes sens
 
 ## Related Posts
 
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
+- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
+- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
 - [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
 - [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
-- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
-- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
 - [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
-- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
 - [7 Facts on Florida ...](https://travel.allwomenstalk.com/7-facts-on-florida/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 

@@ -3,7 +3,7 @@ title: "Where Time Stands Still at Le Mas d’Anez"
 description: "A Stroll Through History; Embracing Spectacular Scenery; Reflections of Nature and Comfort; Gathering Spaces That Speak; Dining in Elegance; More ..."
 url: "https://travel.allwomenstalk.com/discover-the-timeless-charm-of-le-mas-d’anez-in-provence.../"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # Where Time Stands Still at Le Mas d’Anez

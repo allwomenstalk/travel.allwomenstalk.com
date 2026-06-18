@@ -3,7 +3,7 @@ title: "7 Attractions of Nottingham, the City of Robin Hood ..."
 description: "Nottingham Castle; Nottingham Castle Caves; The Lace Market; The Oldest Pub in England; The Arboretum; More ..."
 url: "https://travel.allwomenstalk.com/attractions-of-nottingham-the-city-of-robin-hood/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 7 Attractions of Nottingham, the City of Robin Hood ...
@@ -56,16 +56,16 @@ I love to go to Nottingham for shopping as it is only just over an hour’s driv
 
 ## Related Posts
 
-- [sights of india](https://travel.allwomenstalk.com/wonderful-sights-of-india/)
-- [tallest building in panama city](https://lifestyle.allwomenstalk.com/interesting-skyscrapers-and-tall-builidngs/)
-- [best body part for tattoo man](https://love.allwomenstalk.com/hottest-places-for-male-tattoos-that-we-love/)
-- [estes park fall colors](https://travel.allwomenstalk.com/jaw-dropping-places-in-colorado-to-see-fall-leaves/)
-- [best expat cities in the world](https://travel.allwomenstalk.com/fun-cities-with-large-expat-communities/)
-- [ohio sightseeing](https://travel.allwomenstalk.com/must-see-ohio-attractions-that-you-will-love/)
 - [countries near luxembourg by train](https://travel.allwomenstalk.com/fabulous-countries-for-train-travel/)
+- [sights of india](https://travel.allwomenstalk.com/wonderful-sights-of-india/)
 - [magicians in new york](https://travel.allwomenstalk.com/things-that-sum-up-the-magic-of-new-york/)
-- [natural world wonders](https://travel.allwomenstalk.com/pink-natural-wonders-of-the-world/)
+- [ohio sightseeing](https://travel.allwomenstalk.com/must-see-ohio-attractions-that-you-will-love/)
+- [estes park fall colors](https://travel.allwomenstalk.com/jaw-dropping-places-in-colorado-to-see-fall-leaves/)
+- [tallest building in panama city](https://lifestyle.allwomenstalk.com/interesting-skyscrapers-and-tall-builidngs/)
+- [best expat cities in the world](https://travel.allwomenstalk.com/fun-cities-with-large-expat-communities/)
 - [the sights of london](https://travel.allwomenstalk.com/iconic-sights-of-london-for-a-visitors-itinerary/)
+- [best body part for tattoo man](https://love.allwomenstalk.com/hottest-places-for-male-tattoos-that-we-love/)
+- [natural world wonders](https://travel.allwomenstalk.com/pink-natural-wonders-of-the-world/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 

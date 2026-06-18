@@ -3,7 +3,7 @@ title: "7 Things to See and do in Houston ..."
 description: "The Houston Space Center; Shop the Galleria; Gerald D. Hines Waterfall Park; The Houston Museum District; Go Rodeo!; More ..."
 url: "https://travel.allwomenstalk.com/things-to-see-and-do-in-houston/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 7 Things to See and do in Houston ...
@@ -54,16 +54,16 @@ Houston’s calling! Are you ready to answer?
 
 ## Related Posts
 
+- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
 - [important festivals of china](https://travel.allwomenstalk.com/traditional-festivals-in-china/)
-- [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
-- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
 - [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
-- [amazon rainforest things to do](https://travel.allwomenstalk.com/sights-of-the-amazon-rainforest-to-make-you-go-ooh/)
-- [cyprus attractions](https://travel.allwomenstalk.com/top-attractions-of-cyprus/)
 - [natural beauty switzerland](https://travel.allwomenstalk.com/stunning-natural-sights-of-switzerland/)
+- [amazon rainforest things to do](https://travel.allwomenstalk.com/sights-of-the-amazon-rainforest-to-make-you-go-ooh/)
+- [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
+- [cyprus attractions](https://travel.allwomenstalk.com/top-attractions-of-cyprus/)
+- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
 - [best gelato in cassis french riviera cote d'azur](https://travel.allwomenstalk.com/provence-bucket-list/)
 - [historical places in peru](https://travel.allwomenstalk.com/sites-of-ancient-ruins-in-peru-other-than-machu-picchu/)
-- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 

@@ -3,7 +3,7 @@ title: "9 Tips for Your First Vacation as a Couple ..."
 description: "Try a Mini-Vacation First; Keep the Schedule Simple; Flexibility and Compromise; Pick a Destination You Will Both Enjoy; Talk Money with Your Honey; More ..."
 url: "https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 9 Tips for Your First Vacation as a Couple ...
@@ -50,16 +50,16 @@ Your first vacation as a couple is a very special occasion. I hope you enjoy it 
 
 ## Related Posts
 
-- [idyllic holidays](https://travel.allwomenstalk.com/ways-to-bring-paradise-home-after-an-idyllic-vacation/)
-- [best travel foods to pack](https://food.allwomenstalk.com/heres-what-to-pack-so-you-can-eat-well-on-your-road-trip/)
-- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
-- [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
-- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
-- [inspire staycation card](https://travel.allwomenstalk.com/cant-afford-a-vacation-then-take-a-special-staycation-with-these-trusted-tips/)
 - [beach vacation hacks](https://travel.allwomenstalk.com/vacation-hacks-for-better-beach-days/)
-- [low budget high rollers](https://travel.allwomenstalk.com/how-to-fly-high-in-vegas-on-a-low-rollers-budget/)
-- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
+- [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
 - [vaycay hat](https://travel.allwomenstalk.com/taking-a-vaycay-beach-essentials-to-pack-in-your-bag/)
+- [low budget high rollers](https://travel.allwomenstalk.com/how-to-fly-high-in-vegas-on-a-low-rollers-budget/)
+- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
+- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
+- [inspire staycation card](https://travel.allwomenstalk.com/cant-afford-a-vacation-then-take-a-special-staycation-with-these-trusted-tips/)
+- [idyllic holidays](https://travel.allwomenstalk.com/ways-to-bring-paradise-home-after-an-idyllic-vacation/)
+- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
+- [best travel foods to pack](https://food.allwomenstalk.com/heres-what-to-pack-so-you-can-eat-well-on-your-road-trip/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Ways to Survive the Holiday Stress as a Couple ....](https://love.allwomenstalk.com/ways-to-survive-the-holiday-stress-as-a-couple/)
 

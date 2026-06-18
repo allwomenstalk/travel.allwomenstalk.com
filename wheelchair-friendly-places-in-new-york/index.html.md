@@ -3,7 +3,7 @@ title: "8 Wheelchair Friendly Places in New York ..."
 description: "The Statue of Liberty; Central Park; Metropolitan Museum of Art; New York Theaters; Circle Line; More ..."
 url: "https://travel.allwomenstalk.com/wheelchair-friendly-places-in-new-york/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 8 Wheelchair Friendly Places in New York ...
@@ -66,15 +66,15 @@ Top Image Source: [edinchavez.com](http://edinchavez.com/)
 
 ## Related Posts
 
-- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
-- [art urban places](https://travel.allwomenstalk.com/best-places-to-see-urban-art/)
-- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
-- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
-- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
 - [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
+- [most famous churches in europe](https://travel.allwomenstalk.com/stunning-churches-of-europe/)
+- [art urban places](https://travel.allwomenstalk.com/best-places-to-see-urban-art/)
 - [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
-- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
 - [things to do in new york off the beaten path](https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/)
+- [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
+- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
+- [mexico mountain towns](https://travel.allwomenstalk.com/marvelous-mountain-towns/)
 - [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
 - [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)

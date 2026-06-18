@@ -3,7 +3,7 @@ title: "9 Essential Things to do in New York at Christmas ..."
 description: "Take the Holiday Lights Tour; Visit the Rockerfeller Plaza; See the Show at Radio City Music Hall; Shop in Bryant Park; Take the Kids to See Santa; More ..."
 url: "https://travel.allwomenstalk.com/essential-things-to-do-in-new-york-at-christmas/"
 category: "travel"
-last_updated: "2026-06-17"
+last_updated: "2026-06-18"
 ---
 
 # 9 Essential Things to do in New York at Christmas ...
@@ -51,14 +51,14 @@ Whether you want the comfort of tradition or the thrill of the modern, the thing
 ## Related Posts
 
 - [frugal date ideas](https://love.allwomenstalk.com/super-fun-and-frugal-date-ideas/)
-- [fun classes for couples](https://love.allwomenstalk.com/fun-classes-couples-should-take-together/)
-- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
-- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
 - [what to do in paris around christmas](https://travel.allwomenstalk.com/essential-things-to-do-in-paris-at-christmas/)
-- [fun things orlando florida](https://travel.allwomenstalk.com/amazing-and-fun-things-to-do-in-orlando/)
-- [what are some fun things to do in london during ch...](https://travel.allwomenstalk.com/essential-things-to-do-in-london-at-christmas/)
-- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
+- [fun classes for couples](https://love.allwomenstalk.com/fun-classes-couples-should-take-together/)
+- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
 - [christmas activities for boys](https://parenting.allwomenstalk.com/fun-christmas-activities-to-do-with-kids/)
+- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
+- [what are some fun things to do in london during ch...](https://travel.allwomenstalk.com/essential-things-to-do-in-london-at-christmas/)
+- [fun things orlando florida](https://travel.allwomenstalk.com/amazing-and-fun-things-to-do-in-orlando/)
+- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
 - [hobbies to find friends](https://lifestyle.allwomenstalk.com/hobbies-for-making-new-friends/)
 - [9 Non-traditional and Fun Ways to Celebrate Christ...](https://lifestyle.allwomenstalk.com/non-traditional-and-fun-ways-to-celebrate-christmas-this-year/)
 - [8 Things to Love about the Holiday Season ...](https://allwomenstalk.com/8-things-to-love-about-the-holiday-season/)
