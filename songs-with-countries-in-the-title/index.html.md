@@ -3,7 +3,7 @@ title: "12 Songs with Countries in the Title ..."
 description: "Cambodia – Kim Wilde; A New England – Kirsty MacColl; Don’t Cry for Me Argentina – Evita Cast; Born in the USA – Bruce Springsteen; Walk like an Egyptian – the Bangles; More ..."
 url: "https://travel.allwomenstalk.com/songs-with-countries-in-the-title/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 12 Songs with Countries in the Title ...
@@ -98,16 +98,16 @@ I was actually surprised that there are fewer songs with countries in the title 
 
 ## Related Posts
 
-- [best song to sleep to](https://music.allwomenstalk.com/songs-for-your-sleeping-playlist/)
-- [music turn on](https://music.allwomenstalk.com/songs-to-get-you-in-the-mood/)
-- [arousing songs](https://music.allwomenstalk.com/songs-to-make-you-feel-sexy/)
-- [feelgood playlist](https://music.allwomenstalk.com/bands-that-play-feel-good-music/)
-- [love song 2013](https://love.allwomenstalk.com/love-songs-to-listen-to-for/)
-- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
-- [best country road trip songs](https://lifestyle.allwomenstalk.com/best-road-trip-songs/)
-- [best edm all time](https://music.allwomenstalk.com/best-edm-songs/)
 - [best songs to wake up in the morning](https://music.allwomenstalk.com/songs-for-your-wake-up-playlist/)
+- [best edm all time](https://music.allwomenstalk.com/best-edm-songs/)
+- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
+- [arousing songs](https://music.allwomenstalk.com/songs-to-make-you-feel-sexy/)
+- [best song to sleep to](https://music.allwomenstalk.com/songs-for-your-sleeping-playlist/)
+- [best country road trip songs](https://lifestyle.allwomenstalk.com/best-road-trip-songs/)
+- [music turn on](https://music.allwomenstalk.com/songs-to-get-you-in-the-mood/)
+- [love song 2013](https://love.allwomenstalk.com/love-songs-to-listen-to-for/)
 - [famous musician couples](https://music.allwomenstalk.com/musical-power-couples/)
+- [feelgood playlist](https://music.allwomenstalk.com/bands-that-play-feel-good-music/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
 

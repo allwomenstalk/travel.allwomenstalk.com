@@ -3,7 +3,7 @@ title: "7 Kick-ass Places in Kerala for a Knockout Time ..."
 description: "Palaruvi Waterfall; Thekkady (Periyar Wildlife Sanctuary); Kodanadu Elephant Training Centre; Agasthyakoodam; Silent Valley National Park; More ..."
 url: "https://travel.allwomenstalk.com/kick-ass-places-in-kerala-for-a-knockout-time/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 7 Kick\-ass Places in Kerala for a Knockout Time ...
@@ -56,16 +56,16 @@ This little list of kick-ass places in Kerala really is just a mini selection of
 
 ## Related Posts
 
-- [date trips](https://love.allwomenstalk.com/wonderful-day-trips-to-take-with-your-date/)
-- [veterans san diego zoo](https://lifestyle.allwomenstalk.com/fantastic-ways-to-vacation-in-san-diego/)
-- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
-- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
-- [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
-- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
-- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
-- [scandinavian honeymoon](https://travel.allwomenstalk.com/superlicious-scandinavian-beaches-that-stir-the-soul/)
 - [beaches in french](https://travel.allwomenstalk.com/fantabulous-french-beaches-that-will-make-you-say-oh-la-la/)
+- [green coast portugal](https://travel.allwomenstalk.com/pristine-beaches-in-portugal-for-perfect-days-in-the-sun/)
+- [car themed phone cases](https://lifestyle.allwomenstalk.com/gorgeous-travel-themed-iphone-cases-for-those-always-gripped-by-wanderlust/)
+- [veterans san diego zoo](https://lifestyle.allwomenstalk.com/fantastic-ways-to-vacation-in-san-diego/)
 - [the world is a book and those who do not travel re...](https://travel.allwomenstalk.com/stimulating-travel-quotes-full-of-meaning/)
+- [date trips](https://love.allwomenstalk.com/wonderful-day-trips-to-take-with-your-date/)
+- [scandinavian honeymoon](https://travel.allwomenstalk.com/superlicious-scandinavian-beaches-that-stir-the-soul/)
+- [retreats to find yourself](https://travel.allwomenstalk.com/exotic-retreats-in-india-where-you-can-find-yourself/)
+- [malthives](https://travel.allwomenstalk.com/best-city-beaches-to-escape-the-dusty-streets/)
+- [bookingbuddy.com cheap flights](https://travel.allwomenstalk.com/great-websites-for-cheap-air-tickets/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

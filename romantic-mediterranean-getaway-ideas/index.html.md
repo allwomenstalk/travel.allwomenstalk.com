@@ -3,7 +3,7 @@ title: "7 Romantic Mediterranean Getaway Ideas ..."
 description: "Enter the Surreal World of Barcelona, Spain; Then Travel South to Valencia, Spain; Get Lost along the Waters of Venice, Italy; Step into the Old Town of Dubrovnik, Croatia; Enjoy the Beach and Mountains of Budva, Montenegro; More ..."
 url: "https://travel.allwomenstalk.com/romantic-mediterranean-getaway-ideas/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 7 Romantic Mediterranean Getaway Ideas ...
@@ -66,16 +66,16 @@ Whether you're a newlywed couple, just started dating, or have been married for 
 
 ## Related Posts
 
-- [most uncommon country](https://travel.allwomenstalk.com/uncommon-countries-to-visit-on-your-next-trip/)
-- [camping near warwick castle](https://travel.allwomenstalk.com/gorgeous-places-to-go-glamping/)
-- [2nd honeymoon ideas](https://travel.allwomenstalk.com/destinations-for-your-second-honeymoon/)
 - [vintage travel ads](https://travel.allwomenstalk.com/vintage-travel-ads-to-inspire-your-bucket-list/)
+- [when is the summer in the philippines](https://travel.allwomenstalk.com/best-summer-destinations-in-the-philippines/)
+- [most uncommon country](https://travel.allwomenstalk.com/uncommon-countries-to-visit-on-your-next-trip/)
 - [black sand spain](https://travel.allwomenstalk.com/spectacular-black-sand-beaches-around-the-world/)
 - [best p&o ship for families](https://travel.allwomenstalk.com/best-cruises-for-family-vacations/)
-- [can you tan when it's windy](https://travel.allwomenstalk.com/places-you-are-most-likely-to-get-sunburn-around-the-world/)
-- [cayman island things to do](https://travel.allwomenstalk.com/captivating-things-to-do-in-the-cayman-islands/)
-- [when is the summer in the philippines](https://travel.allwomenstalk.com/best-summer-destinations-in-the-philippines/)
 - [great orme lighthouse](https://travel.allwomenstalk.com/lighthouses-you-can-sleep-in/)
+- [cayman island things to do](https://travel.allwomenstalk.com/captivating-things-to-do-in-the-cayman-islands/)
+- [can you tan when it's windy](https://travel.allwomenstalk.com/places-you-are-most-likely-to-get-sunburn-around-the-world/)
+- [2nd honeymoon ideas](https://travel.allwomenstalk.com/destinations-for-your-second-honeymoon/)
+- [camping near warwick castle](https://travel.allwomenstalk.com/gorgeous-places-to-go-glamping/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Adventure Holiday Ideas ...](https://travel.allwomenstalk.com/7-adventure-holiday-ideas/)
 

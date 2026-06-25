@@ -3,7 +3,7 @@ title: "9 Fabulous Places to Visit in New Mexico ..."
 description: "Very Large Array National Radio Astronomy Observatory; White Sands National Monument; Bandelier National Monument; Chaco Canyon National Historic Park; Carlsbad Caverns; More ..."
 url: "https://travel.allwomenstalk.com/fabulous-places-to-visit-in-new-mexico/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 9 Fabulous Places to Visit in New Mexico ...
@@ -68,16 +68,16 @@ One of the special features of New Mexico is its amazing light so it’s definit
 
 ## Related Posts
 
-- [little italy providence](https://travel.allwomenstalk.com/places-to-visit-little-italy-in-the-usa/)
-- [pinspiration grand junction](https://travel.allwomenstalk.com/unforgettable-sights-of-croatia/)
-- [old time spring shops](https://travel.allwomenstalk.com/things-to-see-and-do-in-houston/)
 - [norway images](https://travel.allwomenstalk.com/pictures-that-prove-norway-really-is-nirvana/)
+- [best art galleries in the world](https://travel.allwomenstalk.com/must-see-art-galleries-around-the-world/)
+- [little italy providence](https://travel.allwomenstalk.com/places-to-visit-little-italy-in-the-usa/)
+- [columbus ohio things to see](https://travel.allwomenstalk.com/things-to-see-and-do-in-columbus/)
+- [taurid meteor shower](https://travel.allwomenstalk.com/stargazing-events-happening-in/)
+- [fashion city in the world](https://fashion.allwomenstalk.com/most-fashionable-cities-in-the-world/)
 - [weirdest thing in the world](https://travel.allwomenstalk.com/weirdest-things-exhibited-in-museums/)
 - [unexplored land](https://travel.allwomenstalk.com/least-explored-places-on-earth/)
-- [taurid meteor shower](https://travel.allwomenstalk.com/stargazing-events-happening-in/)
-- [columbus ohio things to see](https://travel.allwomenstalk.com/things-to-see-and-do-in-columbus/)
-- [fashion city in the world](https://fashion.allwomenstalk.com/most-fashionable-cities-in-the-world/)
-- [best art galleries in the world](https://travel.allwomenstalk.com/must-see-art-galleries-around-the-world/)
+- [old time spring shops](https://travel.allwomenstalk.com/things-to-see-and-do-in-houston/)
+- [pinspiration grand junction](https://travel.allwomenstalk.com/unforgettable-sights-of-croatia/)
 - [10 Retro Places to Visit ...](https://travel.allwomenstalk.com/retro-places-to-visit/)
 - [9 Exotic Destinations to Hit ...](https://travel.allwomenstalk.com/exotic-destinations-to-hit/)
 

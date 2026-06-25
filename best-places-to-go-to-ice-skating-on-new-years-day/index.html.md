@@ -3,7 +3,7 @@ title: "7 Best Places to Go to Ice Skating on New Year's Day ..."
 description: "Rockefeller Center, New York, USA; Somerset House, London, UK; Yosemite National Park, California, USA; Rideau Canal Skateway, Ottawa, Canada; Rathausplatz, Vienna, Austria; More ..."
 url: "https://travel.allwomenstalk.com/best-places-to-go-to-ice-skating-on-new-years-day/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 7 Best Places to Go to Ice Skating on New Year's Day ...
@@ -76,15 +76,15 @@ If you don’t do much on New Year’s Day – except maybe nurse a hangover –
 
 ## Related Posts
 
-- [famous prehistoric paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)
-- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
-- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
-- [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
-- [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
-- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
 - [creepypasts](https://travel.allwomenstalk.com/superb-lakes-with-creepy-pasts/)
+- [most beautiful capitals in europe](https://travel.allwomenstalk.com/smaller-european-capitals-you-must-visit/)
+- [funny uk town names](https://funny.allwomenstalk.com/fabulously-funny-place-names-in-the-uk/)
+- [famous prehistoric paintings](https://travel.allwomenstalk.com/places-to-see-prehistoric-cave-paintings/)
+- [places in baltimore to visit](https://travel.allwomenstalk.com/places-to-visit-in-baltimore/)
+- [famous arches around the world](https://travel.allwomenstalk.com/places-to-see-monumental-triumphal-arches/)
 - [a christmas scene](https://travel.allwomenstalk.com/christmas-scenes-around-the-world/)
 - [missouri town 1855 photos](https://travel.allwomenstalk.com/attractions-of-kansas-city-you-should-visit/)
+- [mykonos things to do](https://travel.allwomenstalk.com/best-things-to-do-in-mykonos/)
 - [what does disneyland do for new years eve](https://travel.allwomenstalk.com/best-places-to-see-new-years-eve-fireworks/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Wonderfully Awesome and Fabulous Destinations fo...](https://travel.allwomenstalk.com/wonderfully-awesome-and-fabulous-destinations-for-the-winter-holidays/)

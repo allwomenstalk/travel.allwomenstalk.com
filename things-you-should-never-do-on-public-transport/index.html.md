@@ -3,7 +3,7 @@ title: "21 Things You Should Never do on Public Transport ..."
 description: "Fail to Wash; Have Your Music Really Loud; Consistently Tap; Dance or Schmooze to Your Music; Hem People in; More ..."
 url: "https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 21 Things You Should Never do on Public Transport ...
@@ -98,16 +98,16 @@ I'm not sure how many of those things are uniquely British. Our reactions certai
 
 ## Related Posts
 
-- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
-- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
-- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
-- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
-- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
-- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
-- [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
 - [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
+- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
+- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
+- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
+- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
 - [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
+- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
 - [8 Cars a Man Should Never, Ever Drive ...](https://lifestyle.allwomenstalk.com/cars-a-man-should-never-ever-drive/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 

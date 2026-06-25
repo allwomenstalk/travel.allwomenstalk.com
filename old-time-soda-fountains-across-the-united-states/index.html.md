@@ -3,7 +3,7 @@ title: "7 Old Time Soda Fountains across the United States ..."
 description: "Lyons Soda Fountain, Lyons, Colorado; Green’s Ole Tyme BBQ and Soda Fountain, Lillian, Alabama; Borroum’s Drug Store, Corinth, Mississippi; Springfield Drug, Springfield, Nebraska; Dr. Jazz Soda Fountain and Grille, Lebanon, Illinois; More ..."
 url: "https://travel.allwomenstalk.com/old-time-soda-fountains-across-the-united-states/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 7 Old Time Soda Fountains across the United States ...
@@ -56,16 +56,16 @@ Have you ever been to a true soda fountain? What was it like? Do you have any ot
 
 ## Related Posts
 
-- [mixology tv series](https://movies.allwomenstalk.com/reasons-why-mixology-shouldnt-have-been-canceled/)
+- [a nice warm drink](https://food.allwomenstalk.com/drinks-to-warm-you-up-this-fall/)
 - [goat milk contains](https://food.allwomenstalk.com/healthy-alternatives-to-drinking-cows-milk/)
+- [mixology tv series](https://movies.allwomenstalk.com/reasons-why-mixology-shouldnt-have-been-canceled/)
+- [smoothie sweetener](https://food.allwomenstalk.com/sugar-free-ways-to-improve-the-flavor-of-green-smoothies/)
+- [how to make green smoothies taste good without fru...](https://food.allwomenstalk.com/ways-to-make-your-green-smoothie-taste-less-green/)
+- [starbucks fall drinks](https://food.allwomenstalk.com/cozy-starbucks-drinks-to-try-this-fall-that-arent-the-pumpkin-spice-latte/)
+- [green tea variety](https://food.allwomenstalk.com/different-varieties-of-green-tea-you-should-try/)
 - [how to make dunkin hot chocolate](https://food.allwomenstalk.com/ways-to-make-hot-chocolate-look-and-taste-like-it-came-from-a-coffee-shop/)
 - [coffee additives flavor](https://food.allwomenstalk.com/tasty-things-to-add-to-your-coffee-grounds-to-improve-the-flavor/)
-- [starbucks fall drinks](https://food.allwomenstalk.com/cozy-starbucks-drinks-to-try-this-fall-that-arent-the-pumpkin-spice-latte/)
 - [keurig pod organizer](https://diy.allwomenstalk.com/really-cool-k-cup-things-you-can-make/)
-- [a nice warm drink](https://food.allwomenstalk.com/drinks-to-warm-you-up-this-fall/)
-- [how to make green smoothies taste good without fru...](https://food.allwomenstalk.com/ways-to-make-your-green-smoothie-taste-less-green/)
-- [smoothie sweetener](https://food.allwomenstalk.com/sugar-free-ways-to-improve-the-flavor-of-green-smoothies/)
-- [green tea variety](https://food.allwomenstalk.com/different-varieties-of-green-tea-you-should-try/)
 - [7 Amazing and Lesser Known Waterfalls ...](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [9 Bizarre Beverages ...](https://cooking.allwomenstalk.com/bizarre-beverages/)
 

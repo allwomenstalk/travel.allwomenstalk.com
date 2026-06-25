@@ -3,7 +3,7 @@ title: "8 Things I Want to See in Paris …"
 description: "The Eiffel Tower; The Louvre; Montmartre; Cathedrale Notre-Dame; La Rive Gauche; More ..."
 url: "https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 8 Things I Want to See in Paris …
@@ -48,15 +48,15 @@ Top Photo Credit: [rbpdesigner](https://www.flickr.com/photos/rbpdesigner/409396
 
 ## Related Posts
 
-- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
-- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
-- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
-- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
-- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
-- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
+- [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
+- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
+- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
+- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
+- [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
 - [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 - [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)

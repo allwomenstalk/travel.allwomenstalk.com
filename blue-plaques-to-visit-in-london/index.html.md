@@ -3,7 +3,7 @@ title: "10 Blue Plaques to Visit in London ..."
 description: "Charles Dickens; Lady Nancy Astor; JM Barrie; Emmeline Pankhurst; Benjamin Franklin; More ..."
 url: "https://travel.allwomenstalk.com/blue-plaques-to-visit-in-london/"
 category: "travel"
-last_updated: "2026-06-18"
+last_updated: "2026-06-25"
 ---
 
 # 10 Blue Plaques to Visit in London ...
@@ -74,16 +74,16 @@ All sorts of people have Blue Plaques in London, from politicians, reformers, ar
 
 ## Related Posts
 
-- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
-- [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
-- [barcelona farmers market](https://travel.allwomenstalk.com/top-street-markets-around-the-world/)
-- [european galleries feature mustsee](https://travel.allwomenstalk.com/must-see-art-galleries-in-europe/)
-- [best destination to visit in kenya](https://travel.allwomenstalk.com/top-places-to-visit-in-kenya/)
-- [quirky festivals](https://travel.allwomenstalk.com/bizarre-festivals-in-australia/)
-- [popular things in scotland](https://travel.allwomenstalk.com/top-tourist-attractions-in-scotland/)
-- [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
 - [zepeto beach](https://travel.allwomenstalk.com/stunning-sceneries-of-new-zealand/)
+- [quirky festivals](https://travel.allwomenstalk.com/bizarre-festivals-in-australia/)
 - [independence days in october](https://travel.allwomenstalk.com/national-and-independence-days-around-the-world/)
+- [barcelona farmers market](https://travel.allwomenstalk.com/top-street-markets-around-the-world/)
+- [garden route holiday destinations](https://travel.allwomenstalk.com/places-to-stop-on-south-africas-garden-route/)
+- [traditional festivals around the world](https://travel.allwomenstalk.com/cultural-festivals-from-around-the-world/)
+- [best destination to visit in kenya](https://travel.allwomenstalk.com/top-places-to-visit-in-kenya/)
+- [popular things in scotland](https://travel.allwomenstalk.com/top-tourist-attractions-in-scotland/)
+- [asian wonders](https://travel.allwomenstalk.com/manmade-ancient-wonders-of-asia/)
+- [european galleries feature mustsee](https://travel.allwomenstalk.com/must-see-art-galleries-in-europe/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 
