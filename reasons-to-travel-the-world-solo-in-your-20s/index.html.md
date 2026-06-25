@@ -43,15 +43,15 @@ So there you have it! Are you ready to take on the world yet on your own? It can
 ## Related Posts
 
 - [what is the best thing about being a teenager](https://lifestyle.allwomenstalk.com/reasons-why-being-a-teenager-is-great/)
+- [why we need faith in our life](https://lifestyle.allwomenstalk.com/important-reasons-you-need-faith-in-your-life/)
+- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
+- [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
+- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
+- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
+- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
+- [why the rainforest is important](https://lifestyle.allwomenstalk.com/reasons-the-rainforest-is-important-to-the-world/)
 - [importance of politeness in communication](https://lifestyle.allwomenstalk.com/advantages-of-being-polite-to-strangers/)
 - [visitnewyork](https://travel.allwomenstalk.com/reasons-to-visit-new-york-city-while-youre-young/)
-- [why we need faith in our life](https://lifestyle.allwomenstalk.com/important-reasons-you-need-faith-in-your-life/)
-- [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
-- [why the rainforest is important](https://lifestyle.allwomenstalk.com/reasons-the-rainforest-is-important-to-the-world/)
-- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
-- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
-- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
-- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
 - [8 Benefits of Holidaying Alone ...](https://travel.allwomenstalk.com/8-benefits-of-holidaying-alone/)
 - [7 Reasons to Give up Your Job to Travel the World ...](https://travel.allwomenstalk.com/reasons-to-give-up-your-job-to-travel-the-world/)
 
