@@ -3,7 +3,7 @@ title: "8 Things to do in Barcelona ..."
 description: "Visit the Sagrada Familia; Shop!; Hit the Beach; See Some Art; Go on Day Trips; More ..."
 url: "https://travel.allwomenstalk.com/things-to-do-in-barcelona/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 8 Things to do in Barcelona ...
@@ -80,16 +80,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/10795737/36748
 
 ## Related Posts
 
-- [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
-- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
-- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
-- [8 Best and Wonderfully Pleasant Cities to Shop ...](https://travel.allwomenstalk.com/best-and-wonderfully-pleasant-cities-to-shop/)
-- [american towns with english names](https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/)
-- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
-- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
-- [8 Things I Want to See in Paris …](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [8 Best and Wonderfully Pleasant Cities to Shop ...](https://travel.allwomenstalk.com/best-and-wonderfully-pleasant-cities-to-shop/)
+- [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
+- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
+- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
+- [american towns with english names](https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/)
+- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
+- [8 Things I Want to See in Paris …](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 

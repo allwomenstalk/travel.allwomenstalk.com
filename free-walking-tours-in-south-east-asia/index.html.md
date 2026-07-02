@@ -3,7 +3,7 @@ title: "7 Free Walking Tours in East Asia ..."
 description: "Tokyo, Japan; Bangkok, Thailand; Shanghai, China; Singapore City, Singapore; Hanoi, Vietnam; More ..."
 url: "https://travel.allwomenstalk.com/free-walking-tours-in-south-east-asia/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Free Walking Tours in East Asia ...
@@ -59,16 +59,16 @@ So, not so many free walking tours of East Asia to choose from but those availab
 
 ## Related Posts
 
-- [route 66 length](https://travel.allwomenstalk.com/ghost-towns-to-visit-on-a-route-66-road-trip/)
-- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
-- [food throwing festivals](https://travel.allwomenstalk.com/best-food-fight-festivals-around-the-world/)
-- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
-- [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
-- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
-- [mall of america food court](https://travel.allwomenstalk.com/best-mall-food-courts-in-the-world/)
 - [customs around the world](https://travel.allwomenstalk.com/strange-customs-from-around-the-world/)
+- [most beautiful swimming pool in the world](https://travel.allwomenstalk.com/of-the-worlds-coolest-swimming-pools/)
+- [route 66 length](https://travel.allwomenstalk.com/ghost-towns-to-visit-on-a-route-66-road-trip/)
+- [family chain restaurants](https://parenting.allwomenstalk.com/super-kid-friendly-restaurant-chains-youll-feel-right-at-home-in/)
+- [coffee san diego](https://travel.allwomenstalk.com/of-the-best-coffee-houses-in-san-diego/)
+- [amazing race season 5 winners](https://travel.allwomenstalk.com/amazing-amazing-race-tasks-to-recreate-and-locations-to-visit/)
 - [things in india](https://travel.allwomenstalk.com/things-to-do-in-india-before-you-die/)
 - [indian traditional crafts](https://travel.allwomenstalk.com/traditional-crafts-of-india-to-see-on-your-travels/)
+- [mall of america food court](https://travel.allwomenstalk.com/best-mall-food-courts-in-the-world/)
+- [food throwing festivals](https://travel.allwomenstalk.com/best-food-fight-festivals-around-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [8 Places to Visit in the Far East ...](https://travel.allwomenstalk.com/places-to-visit-in-the-far-east/)
 

@@ -3,7 +3,7 @@ title: "10 Top Places for Afternoon Tea in London ..."
 description: "St. Pancras Grand; The Athenaeum; The Winter Garden; Harvey Nichols Fifth Floor Restaurant; Langtrys; More ..."
 url: "https://travel.allwomenstalk.com/top-places-for-afternoon-tea-in-london/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 10 Top Places for Afternoon Tea in London ...
@@ -60,16 +60,16 @@ Top Photo Credit: [pinterest.com](https://www.pinterest.com/pin/523766197/)
 
 ## Related Posts
 
-- [12 Photos of "Despicable Me" in London ...](https://celebs.allwomenstalk.com/despicable-me-in-london/)
-- [cuba road illinois](https://paranormal.allwomenstalk.com/7-haunted-places-to-visit-in-illinois/)
-- [where did harry potter film](https://travel.allwomenstalk.com/wickedly-wizardly-places-where-harry-potter-was-filmed/)
-- [scenic cable](https://travel.allwomenstalk.com/magnificently-scenic-and-thrilling-cable-car-rides/)
-- [places where they speak french](https://travel.allwomenstalk.com/la-francophonie-countries-where-they-speak-french-as-an-official-language/)
+- [why visit vienna](https://travel.allwomenstalk.com/enthusiastic-and-convincing-reasons-to-visit-vienna/)
 - [10 Absolute Musts to do in Spain ...](https://travel.allwomenstalk.com/amazing-things-to-do-in-spain/)
-- [best oysters in united states](https://food.allwomenstalk.com/outstanding-places-to-eat-oysters-in-america/)
+- [12 Photos of "Despicable Me" in London ...](https://celebs.allwomenstalk.com/despicable-me-in-london/)
 - [popular sports team in world](https://celebs.allwomenstalk.com/8-world-famous-sports-teams/)
 - [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
-- [why visit vienna](https://travel.allwomenstalk.com/enthusiastic-and-convincing-reasons-to-visit-vienna/)
+- [best oysters in united states](https://food.allwomenstalk.com/outstanding-places-to-eat-oysters-in-america/)
+- [where did harry potter film](https://travel.allwomenstalk.com/wickedly-wizardly-places-where-harry-potter-was-filmed/)
+- [cuba road illinois](https://paranormal.allwomenstalk.com/7-haunted-places-to-visit-in-illinois/)
+- [places where they speak french](https://travel.allwomenstalk.com/la-francophonie-countries-where-they-speak-french-as-an-official-language/)
+- [scenic cable](https://travel.allwomenstalk.com/magnificently-scenic-and-thrilling-cable-car-rides/)
 - [10 Famous British Pubs ...](https://travel.allwomenstalk.com/10-famous-british-pubs/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 

@@ -3,7 +3,7 @@ title: "7 Destinations for Horror Movie Fans ..."
 description: "The Isle of Skye and Plockton, Scotland (from the Wicker Man); Bishops Park, England (from the Omen); The Stanley Hotel, USA (from the Shining); Venice, Italy (from Don't Look Now); The North York Moors, England (from an American Werewolf in London); More ..."
 url: "https://travel.allwomenstalk.com/destinations-for-horror-movie-fans/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Destinations for Horror Movie Fans ...
@@ -56,16 +56,16 @@ If these destinations where horror movies were filmed don’t inspire you becaus
 
 ## Related Posts
 
-- [honeymoon in tunisia](https://travel.allwomenstalk.com/relaxing-honeymoon-destinations/)
-- [usa backpacking](https://travel.allwomenstalk.com/best-backpacking-loops-in-the-usa/)
 - [krubera cave](https://travel.allwomenstalk.com/cool-caves-for-cave-divers/)
-- [best luxury destinations](https://travel.allwomenstalk.com/luxury-destinations-when-you-want-to-splurge-on-a-vacation/)
-- [why travelling is overrated](https://travel.allwomenstalk.com/worldwide-destinations-that-are-overrated/)
-- [travel tours for couples](https://travel.allwomenstalk.com/fun-trips-to-take-with-other-couples/)
+- [usa backpacking](https://travel.allwomenstalk.com/best-backpacking-loops-in-the-usa/)
+- [honeymoon in tunisia](https://travel.allwomenstalk.com/relaxing-honeymoon-destinations/)
 - [soelunking](https://travel.allwomenstalk.com/spectacular-spelunking-adventures-to-find-your-inner-cave-girl/)
 - [eco friendly beach](https://travel.allwomenstalk.com/of-the-worlds-best-eco-friendly-beaches/)
-- [why should i visit austria](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-austria-on-your-next-vacation/)
 - [best places to visit after high school graduation](https://teen.allwomenstalk.com/unforgettable-ideas-for-a-senior-trip/)
+- [travel tours for couples](https://travel.allwomenstalk.com/fun-trips-to-take-with-other-couples/)
+- [why should i visit austria](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-austria-on-your-next-vacation/)
+- [best luxury destinations](https://travel.allwomenstalk.com/luxury-destinations-when-you-want-to-splurge-on-a-vacation/)
+- [why travelling is overrated](https://travel.allwomenstalk.com/worldwide-destinations-that-are-overrated/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

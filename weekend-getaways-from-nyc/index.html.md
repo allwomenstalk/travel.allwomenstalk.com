@@ -3,7 +3,7 @@ title: "7 Weekend Getaways from NYC ..."
 description: "New Paltz, NY; Montauk, NY; Sea Bright, NJ; Philadelphia, PA; The Berkshires, MA; More ..."
 url: "https://travel.allwomenstalk.com/weekend-getaways-from-nyc/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Weekend Getaways from NYC ...
@@ -57,15 +57,15 @@ We get that New York’s the city that never sleeps, but sometimes all you want 
 ## Related Posts
 
 - [uk holiday destinations for couples](https://travel.allwomenstalk.com/hidden-holiday-destinations-in-the-uk/)
-- [best ski resorts in iceland](https://travel.allwomenstalk.com/ski-resorts-to-inspire-your-winter-travel-plans/)
 - [well deserved vacations](https://travel.allwomenstalk.com/christmas-destinations-for-a-well-deserved-vacation/)
 - [Are You Brave Enough to Visit the Deadliest Touris...](https://travel.allwomenstalk.com/of-the-deadliest-tourist-destinations-in-the-world/)
+- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
+- [9 Less Traditional Destinations to Explore This Ch...](https://travel.allwomenstalk.com/less-traditional-destinations-to-explore-this-christmas/)
+- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
+- [romantic new year's eve destinations usa](https://travel.allwomenstalk.com/romantic-places-to-see-in-the-new-year/)
+- [best ski resorts in iceland](https://travel.allwomenstalk.com/ski-resorts-to-inspire-your-winter-travel-plans/)
 - [tropical views](https://travel.allwomenstalk.com/views-of-tropical-islands-that-youll-never-forget/)
 - [alaska postcards](https://travel.allwomenstalk.com/postcards-from-alaska-youd-love-to-receive/)
-- [romantic train journeys](https://travel.allwomenstalk.com/beautifully-romantic-train-journeys/)
-- [romantic new year's eve destinations usa](https://travel.allwomenstalk.com/romantic-places-to-see-in-the-new-year/)
-- [mediterranean destinations](https://travel.allwomenstalk.com/mediterranean-destinations-to-consider-for-next-years-vacation/)
-- [9 Less Traditional Destinations to Explore This Ch...](https://travel.allwomenstalk.com/less-traditional-destinations-to-explore-this-christmas/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 

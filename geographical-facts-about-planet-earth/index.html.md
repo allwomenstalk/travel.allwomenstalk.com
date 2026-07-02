@@ -3,7 +3,7 @@ title: "7 Geographical Facts about Planet Earth ..."
 description: "Earth’s Waistline; Moving Fast; Distance from Our Star; Standard Time Zones; Water Matters; More ..."
 url: "https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Geographical Facts about Planet Earth ...
@@ -43,15 +43,15 @@ Here endeth today’s short lesson on the geographical facts about Planet Earth.
 ## Related Posts
 
 - [disney world behind the scenes secrets](https://travel.allwomenstalk.com/behind-the-scenes-things-you-didnt-know-about-disney-world/)
-- [what are gnomes afraid of](https://lifestyle.allwomenstalk.com/strange-fears-that-actually-exist/)
-- [what are some old wives tales](https://lifestyle.allwomenstalk.com/wives-tales-that-are-actually-true/)
-- [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
 - [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
-- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
-- [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
+- [what are gnomes afraid of](https://lifestyle.allwomenstalk.com/strange-fears-that-actually-exist/)
 - [interesting facts about agriculture](https://lifestyle.allwomenstalk.com/interesting-facts-about-us-agriculture/)
-- [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
 - [fun facts about coconuts](https://food.allwomenstalk.com/fabulous-facts-about-coconuts-for-coconut-lovers/)
+- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
+- [what are some old wives tales](https://lifestyle.allwomenstalk.com/wives-tales-that-are-actually-true/)
+- [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
+- [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
+- [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

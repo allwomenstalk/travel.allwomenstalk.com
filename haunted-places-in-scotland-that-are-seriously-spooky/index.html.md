@@ -3,7 +3,7 @@ title: "7 Haunted Places in Scotland That Are Seriously Spooky ..."
 description: "Abbotsford House; Rosslyn Chapel; Borthwick Castle; Edinburgh Castle; Glamis Castle; More ..."
 url: "https://travel.allwomenstalk.com/haunted-places-in-scotland-that-are-seriously-spooky/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Haunted Places in Scotland That Are Seriously Spooky ...
@@ -59,15 +59,15 @@ There are lots of interesting places to visit in Scotland, many of which may be 
 ## Related Posts
 
 - [best places to visit in zimbabwe](https://travel.allwomenstalk.com/top-attractions-of-zimbabwe/)
-- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
-- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
-- [🤔 which city is considered the country music capi...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
-- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
 - [haunted cemeteries in new orleans](https://travel.allwomenstalk.com/creepy-cemeteries-for-epic-ghost-hunting/)
-- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
 - [great rail travel](https://travel.allwomenstalk.com/great-rail-journeys-around-the-world/)
-- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
+- [🤔 which city is considered the country music capi...](https://travel.allwomenstalk.com/music-meccas-around-the-world/)
+- [kellys irish pub austin](https://travel.allwomenstalk.com/us-irish-pubs-to-celebrate-st-patricks-day/)
 - [botswana places to visit](https://travel.allwomenstalk.com/places-to-visit-in-botswana/)
+- [places to visit in belgium](https://travel.allwomenstalk.com/amazing-places-to-visit-in-belgium/)
+- [marilyn monroe height and weight](https://travel.allwomenstalk.com/places-to-pay-homage-to-marilyn-monroe/)
+- [endangered forest species](https://travel.allwomenstalk.com/endangered-forests-around-the-world/)
+- [canadian haunted house](https://travel.allwomenstalk.com/more-haunted-locations-in-canada/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 

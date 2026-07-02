@@ -3,7 +3,7 @@ title: "7 Fun Things to do in Washington DC This Summer ..."
 description: "Visit Smithsonian Museums; Tour the Monuments at Night; Check out the National Zoo; Take a River Cruise; Enjoy a Movie or Show Outdoors; More ..."
 url: "https://travel.allwomenstalk.com/fun-things-to-do-in-washington-dc-this-summer/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Things to do in Washington DC This Summer ...
@@ -56,16 +56,16 @@ Have you recently visited our nation’s capital? What are some of your top reco
 
 ## Related Posts
 
-- [what makes something a fruit?](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
 - [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
-- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
+- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
+- [beach snacks healthy](https://diet.allwomenstalk.com/guilt-free-beach-snacks-to-keep-fit-with-this-summer/)
+- [reconnect with friends](https://lifestyle.allwomenstalk.com/ways-to-reconnect-with-friends-after-the-summer-2/)
+- [what makes something a fruit?](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
 - [projects for summer](https://lifestyle.allwomenstalk.com/super-fun-projects-for-summer-to-pass-time-with/)
 - [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
 - [things to do on vacation](https://travel.allwomenstalk.com/tips-on-how-to-spend-your-summer-vacation-at-home-without-getting-bored/)
-- [beach snacks healthy](https://diet.allwomenstalk.com/guilt-free-beach-snacks-to-keep-fit-with-this-summer/)
+- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
 - [cinnamon stick necklace mosquito repellent](https://diy.allwomenstalk.com/smart-diys-to-get-you-through-the-rest-of-summer/)
-- [reconnect with friends](https://lifestyle.allwomenstalk.com/ways-to-reconnect-with-friends-after-the-summer-2/)
-- [need something to look forward to](https://lifestyle.allwomenstalk.com/wonderful-things-to-look-forward-to-in-fall/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Things to do in NYC ...](https://travel.allwomenstalk.com/things-to-do-in-nyc/)
 

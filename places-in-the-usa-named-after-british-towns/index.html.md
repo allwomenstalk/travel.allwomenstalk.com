@@ -3,7 +3,7 @@ title: "7 Places in the USA Named after British Towns ..."
 description: "Lincoln; Birmingham; Cambridge; Northampton; Boston; More ..."
 url: "https://travel.allwomenstalk.com/places-in-the-usa-named-after-british-towns/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Places in the USA Named after British Towns ...
@@ -44,16 +44,16 @@ Top Photo Credit: [LondonSLR](https://www.flickr.com/photos/londonslr/496682995/
 
 ## Related Posts
 
-- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
-- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
-- [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
-- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
-- [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [8 Things I Want to See in Paris …](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
 - [7 Most Amazing European Capitals ...](https://travel.allwomenstalk.com/most-amazing-european-capitals/)
 - [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
-- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
+- [famous french chateau](https://travel.allwomenstalk.com/7-magnificent-french-chateaux/)
 - [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
-- [8 Things I Want to See in Paris …](https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/)
+- [buddhist temples around the world](https://travel.allwomenstalk.com/amazing-and-revered-buddhist-temples/)
+- [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
+- [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
+- [8 US Cities I'd like to Visit ...](https://travel.allwomenstalk.com/8-us-cities-id-like-to-visit/)
 - [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
 - [10 Things That Have Weird Names in Other Countries...](https://travel.allwomenstalk.com/10-things-that-have-weird-names-in-other-countries/)
 

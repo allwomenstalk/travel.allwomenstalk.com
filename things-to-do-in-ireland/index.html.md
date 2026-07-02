@@ -3,7 +3,7 @@ title: "8 Things to do in Ireland ..."
 description: "The Gathering…; National Heritage Week…; Puck Fair…; Marathons with a Difference…; Visit the Town of Sport…; More ..."
 url: "https://travel.allwomenstalk.com/things-to-do-in-ireland/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 8 Things to do in Ireland ...
@@ -46,16 +46,16 @@ Which of these things to do in Ireland would be top of your list?! I’m definit
 
 ## Related Posts
 
-- [8 Amazing Places to See the Northern Lights ...](https://travel.allwomenstalk.com/amazing-places-to-see-the-northern-lights/)
-- [best cities to visit in canada](https://travel.allwomenstalk.com/best-cities-to-visit-in-canada/)
 - [12 Places to See the Top Sports Events of 2013 ...](https://travel.allwomenstalk.com/places-to-see-the-top-sports-events-of/)
 - [top things to do in commercial drive](https://travel.allwomenstalk.com/top-things-to-do-in-vancouver/)
-- [the royal family vlogs](https://travel.allwomenstalk.com/best-places-to-experience-the-royal-family-in-the-uk/)
-- [7 Wonderful Attractions of Wales to Add to Your Li...](https://travel.allwomenstalk.com/wonderful-attractions-of-wales/)
-- [tempat wisata di melbourne](https://travel.allwomenstalk.com/marvelous-attractions-of-melbourne/)
+- [8 Amazing Places to See the Northern Lights ...](https://travel.allwomenstalk.com/amazing-places-to-see-the-northern-lights/)
 - [8 Must-do Things in Milan ...](https://travel.allwomenstalk.com/must-do-things-in-milan/)
+- [the royal family vlogs](https://travel.allwomenstalk.com/best-places-to-experience-the-royal-family-in-the-uk/)
+- [best cities to visit in canada](https://travel.allwomenstalk.com/best-cities-to-visit-in-canada/)
 - [what to visit in belgrade](https://travel.allwomenstalk.com/great-reasons-to-visit-belgrade/)
+- [7 Wonderful Attractions of Wales to Add to Your Li...](https://travel.allwomenstalk.com/wonderful-attractions-of-wales/)
 - [9 Incredible Places to Visit before They're Gone ....](https://travel.allwomenstalk.com/incredible-places-to-visit-before-theyre-gone/)
+- [tempat wisata di melbourne](https://travel.allwomenstalk.com/marvelous-attractions-of-melbourne/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [8 Things to do in Barcelona ...](https://travel.allwomenstalk.com/things-to-do-in-barcelona/)
 

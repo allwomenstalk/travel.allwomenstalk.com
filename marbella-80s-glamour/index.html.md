@@ -3,7 +3,7 @@ title: "What Made Marbella the Ultimate 80s Hotspot"
 description: "An Oasis of Elegance; The Fashion Statement; Iconic Gatherings and Glorious Days; The Pulse of the Night; Unforgettable Experiences; More ..."
 url: "https://travel.allwomenstalk.com/marbella-80s-glamour/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # What Made Marbella the Ultimate 80s Hotspot

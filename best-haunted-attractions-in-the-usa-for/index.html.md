@@ -3,7 +3,7 @@ title: "4 of the Best Terrifying Haunted Attractions in the USA for 2017 ..."
 description: "The House of Shock; The Ghostly Manor; The Netherworld Haunted House; This is Real NYC; More ..."
 url: "https://travel.allwomenstalk.com/best-haunted-attractions-in-the-usa-for/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 4 of the Best Terrifying Haunted Attractions in the USA for 2017 ...
@@ -46,16 +46,16 @@ Ticket prices are $95 per person Tuesdays-Thursdays and on Sundays, and $110 per
 
 ## Related Posts
 
-- [franklin's fountain philadelphia](https://travel.allwomenstalk.com/reasons-to-visit-franklin-fountain-in-philadelphia/)
-- [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
 - [wicklow to dublin](https://travel.allwomenstalk.com/best-places-to-visit-in-county-wicklow/)
-- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
-- [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
-- [best places to shop online black friday](https://money.allwomenstalk.com/best-places-for-black-friday-bargains/)
+- [franklin's fountain philadelphia](https://travel.allwomenstalk.com/reasons-to-visit-franklin-fountain-in-philadelphia/)
 - [best mountain biking trails in the world](https://travel.allwomenstalk.com/the-best-mountain-bike-trails-in-the-world/)
-- [10 places to visit in germany](https://travel.allwomenstalk.com/top-places-to-visit-in-germany/)
+- [best places to shop online black friday](https://money.allwomenstalk.com/best-places-for-black-friday-bargains/)
+- [st pattys day parade](https://travel.allwomenstalk.com/biggest-st-patricks-day-parades-in-the-usa/)
 - [haunted niagara on the lake hotels](https://travel.allwomenstalk.com/things-to-do-in-niagara-on-the-lake/)
 - [chicago vegetarian restaurant](https://food.allwomenstalk.com/top-rated-vegan-restaurants-around-the-world/)
+- [places to go with dogs](https://travel.allwomenstalk.com/places-to-take-your-dog-in-newcastle/)
+- [prague underground history](https://travel.allwomenstalk.com/underground-attractions-in-prague/)
+- [10 places to visit in germany](https://travel.allwomenstalk.com/top-places-to-visit-in-germany/)
 - [7 Most Haunted Hotels from around the World ...](https://travel.allwomenstalk.com/most-haunted-hotels-from-around-the-world/)
 - [8 Most Haunted Places from around the World ...](https://allwomenstalk.com/8-most-haunted-places-from-around-the-world/)
 

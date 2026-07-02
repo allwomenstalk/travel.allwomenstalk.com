@@ -3,7 +3,7 @@ title: "7 Fun Facts about Borneo ..."
 description: "It is Administered by 3 Countries...; It is the Third Largest Island in the World...; It is Home to Mount Kinabalu; You Can Find a Very Big Flower Here; Brunei Only Occupies 1% of the Island; More ..."
 url: "https://travel.allwomenstalk.com/fun-facts-about-borneo/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Facts about Borneo ...
@@ -42,16 +42,16 @@ I hope these facts have helped you understand Borneo (or at least a person from 
 
 ## Related Posts
 
-- [5 facts about acid rain](https://lifestyle.allwomenstalk.com/most-commonly-accepted-facts-about-acid-rain/)
 - [statistics about cheating](https://love.allwomenstalk.com/cheating-stats-thatll-blow-your-mind/)
-- [10 facts about ariana grande](https://celebs.allwomenstalk.com/fun-facts-about-ariana-grande-that-will-amaze-you/)
-- [dim sum brunch near me](https://food.allwomenstalk.com/food-facts-about-dim-sum-for-the-curious-foodie/)
 - [fun facts electricity](https://lifestyle.allwomenstalk.com/basic-but-interesting-facts-about-electricity/)
-- [what's in the air we breathe](https://lifestyle.allwomenstalk.com/facts-about-the-air-we-breathe/)
+- [10 facts about ariana grande](https://celebs.allwomenstalk.com/fun-facts-about-ariana-grande-that-will-amaze-you/)
 - [interesting facts about the solar system](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-solar-system/)
-- [paris color le stylo smoky shadow sunshine](https://lifestyle.allwomenstalk.com/facts-about-light-that-will-interest-you/)
 - [odd national days](https://lifestyle.allwomenstalk.com/weird-national-days-that-you-might-not-know-about/)
+- [paris color le stylo smoky shadow sunshine](https://lifestyle.allwomenstalk.com/facts-about-light-that-will-interest-you/)
+- [dim sum brunch near me](https://food.allwomenstalk.com/food-facts-about-dim-sum-for-the-curious-foodie/)
 - [evolution interesting facts](https://lifestyle.allwomenstalk.com/interesting-facts-on-the-evolution-of-photography/)
+- [5 facts about acid rain](https://lifestyle.allwomenstalk.com/most-commonly-accepted-facts-about-acid-rain/)
+- [what's in the air we breathe](https://lifestyle.allwomenstalk.com/facts-about-the-air-we-breathe/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [10 Interesting Geography Facts ...](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 

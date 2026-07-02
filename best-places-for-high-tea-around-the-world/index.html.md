@@ -3,7 +3,7 @@ title: "9 Best Places for High Tea around the World ..."
 description: "Tiffin Room, Raffles Hotel, Singapore; Eastern & Oriental, Penang, Malaysia; Mount Nelson, Cape Town, South Africa; Claridges, London, UK; The Strand, Yangon, Myanmar; More ..."
 url: "https://travel.allwomenstalk.com/best-places-for-high-tea-around-the-world/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 9 Best Places for High Tea around the World ...
@@ -68,16 +68,16 @@ Which of these places for afternoon would you choose?
 
 ## Related Posts
 
-- [fun things to do in finland](https://travel.allwomenstalk.com/fabulous-things-to-do-in-finland/)
 - [the strangest houses](https://lifestyle.allwomenstalk.com/strangest-houses-in-the-world/)
-- [places to go before i die](https://travel.allwomenstalk.com/things-to-do-in-europe-before-you-die/)
-- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
 - [best ethnic restaurants nyc](https://travel.allwomenstalk.com/best-ethnic-restaurants-in-new-york/)
 - [british stores in america](https://travel.allwomenstalk.com/british-themed-shops-in-the-usa/)
 - [100 things to do before i die](https://travel.allwomenstalk.com/things-to-do-in-uk-before-you-die/)
-- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
 - [ghost tour eureka springs ar](https://travel.allwomenstalk.com/haunted-us-sites-which-one-will-you-choose/)
+- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
+- [fun things to do in finland](https://travel.allwomenstalk.com/fabulous-things-to-do-in-finland/)
 - [designer shops in ibiza](https://travel.allwomenstalk.com/unmissable-places-to-go-shopping-in-ibiza/)
+- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
+- [places to go before i die](https://travel.allwomenstalk.com/things-to-do-in-europe-before-you-die/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [10 Must-Visit Places in England ...](https://travel.allwomenstalk.com/must-visit-places-in-england/)
 

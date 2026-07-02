@@ -3,7 +3,7 @@ title: "7 Rules of Etiquette for the Airplane Bathroom ..."
 description: "Lock the Door; Go at the Right Time; Make It Snappy; Don’t Be an Aisle Seat a-hole; Don’t Go Alone – if You Are Traveling with Kids; More ..."
 url: "https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/"
 category: "travel"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Rules of Etiquette for the Airplane Bathroom ...
@@ -42,10 +42,10 @@ Cabin crew do their best to try and keep everything clean and tidy, so please do
 
 ## Related Posts
 
-- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
-- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
-- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
 - [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
+- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
+- [things to know before flying](https://travel.allwomenstalk.com/definitive-tips-on-flying-everyone-should-know/)
+- [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
 - [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
 - [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
 - [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
