@@ -3,7 +3,7 @@ title: "Hotels with Only One Room for Those Who Want Intimacy and Seclusion ..."
 description: "Eh'häusl (\"the Wedding House\") in Amberg, Germany; The One Hotel in Angkor, Cambodia; A Room for London, United Kingdom; Central Hotel in Copenhagen, Denmark; Inkaterra Canopy Tree House in Puerto Maldonado, Peru; More ..."
 url: "https://travel.allwomenstalk.com/hotels-with-only-one-room/"
 category: "travel"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # Hotels with Only One Room for Those Who Want Intimacy and Seclusion ...
@@ -56,16 +56,16 @@ Which would you like to stay at the most?
 
 ## Related Posts
 
-- [new year's ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
-- [uncrowded beaches](https://travel.allwomenstalk.com/secluded-beaches-where-you-can-lose-yourself/)
-- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
-- [couples christmas bucket list](https://travel.allwomenstalk.com/travel-bucket-list-for-the-best-ever-christmas/)
-- [nextvacay](https://travel.allwomenstalk.com/the-sexiest-hotels-in-the-world/)
 - [alternative christmas destinations](https://travel.allwomenstalk.com/alternative-places-to-spend-christmas/)
+- [couples christmas bucket list](https://travel.allwomenstalk.com/travel-bucket-list-for-the-best-ever-christmas/)
+- [the most beautiful sunrise in the world](https://travel.allwomenstalk.com/perfect-places-to-watch-the-sunrise-with-your-partner/)
+- [most christmassy places in the world](https://travel.allwomenstalk.com/the-best-places-in-the-world-to-spend-christmas/)
+- [new year's ski resort](https://travel.allwomenstalk.com/the-best-ski-resorts-for-new-year-celebrations/)
 - [safest countries in europe to travel alone](https://travel.allwomenstalk.com/be-safe-in-these-countries-when-solo-traveling/)
 - [frozen church](https://travel.allwomenstalk.com/dreamy-disney-movie-locations-you-can-visit/)
-- [most christmassy places in the world](https://travel.allwomenstalk.com/the-best-places-in-the-world-to-spend-christmas/)
-- [the most beautiful sunrise in the world](https://travel.allwomenstalk.com/perfect-places-to-watch-the-sunrise-with-your-partner/)
+- [sleigh rides jackson nh](https://travel.allwomenstalk.com/best-places-to-hitch-a-ride-in-a-sleigh/)
+- [nextvacay](https://travel.allwomenstalk.com/the-sexiest-hotels-in-the-world/)
+- [uncrowded beaches](https://travel.allwomenstalk.com/secluded-beaches-where-you-can-lose-yourself/)
 - [8 Romantic Cabin Locations ...](https://travel.allwomenstalk.com/8-romantic-cabin-locations/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 

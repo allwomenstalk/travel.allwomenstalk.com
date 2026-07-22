@@ -3,7 +3,7 @@ title: "7 Alternative Places to Spend Thanksgiving 🦃 ..."
 description: "Turkey; Plymouth, England; Limerick, Ireland; Yam Island, Australia; Frobisher Bay, Canada; More ..."
 url: "https://travel.allwomenstalk.com/alternative-places-to-spend-thanksgiving/"
 category: "travel"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Alternative Places to Spend Thanksgiving 🦃 ...
@@ -56,16 +56,16 @@ Well, was that some food for thought? Will you ever venture forth to these alter
 
 ## Related Posts
 
-- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
-- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
-- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
 - [9 Gorgeous Places to See before You Die ...](https://travel.allwomenstalk.com/gorgeous-places-to-see-before-you-die/)
+- [bardstown carriage rides](https://travel.allwomenstalk.com/attractions-in-kentucky-that-you-cant-afford-to-miss/)
+- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
+- [christmas parade australia](https://travel.allwomenstalk.com/best-christmas-parades-around-the-world/)
+- [shakespeare mas](https://travel.allwomenstalk.com/places-to-celebrate-shakespeare-and-his-genius/)
+- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
 - [attractions in bath uk](https://travel.allwomenstalk.com/attractions-of-bath-the-uks-regency-jewel/)
 - [things about new york](https://travel.allwomenstalk.com/amazing-things-i-love-about-new-york-city/)
-- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
-- [must see wyoming](https://travel.allwomenstalk.com/wonderful-attractions-of-wyoming-the-equality-state/)
-- [unusual shopping near me](https://travel.allwomenstalk.com/cutest-independent-shops-in-edinburgh-youll-love/)
 - [hill towns italy](https://travel.allwomenstalk.com/wonderful-hilltop-towns-in-tuscany/)
+- [strangest landscapes on earth](https://travel.allwomenstalk.com/of-the-most-incredible-other-worldly-landscapes-on-earth/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ways to Celebrate Fall ...](https://allwomenstalk.com/7-ways-to-celebrate-fall/)
 

@@ -3,7 +3,7 @@ title: "7 Things to See and do in Houston ..."
 description: "The Houston Space Center; Shop the Galleria; Gerald D. Hines Waterfall Park; The Houston Museum District; Go Rodeo!; More ..."
 url: "https://travel.allwomenstalk.com/things-to-see-and-do-in-houston/"
 category: "travel"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 7 Things to See and do in Houston ...
@@ -54,16 +54,16 @@ Houston’s calling! Are you ready to answer?
 
 ## Related Posts
 
-- [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
-- [historical places in peru](https://travel.allwomenstalk.com/sites-of-ancient-ruins-in-peru-other-than-machu-picchu/)
 - [best gelato in cassis french riviera cote d'azur](https://travel.allwomenstalk.com/provence-bucket-list/)
-- [cyprus attractions](https://travel.allwomenstalk.com/top-attractions-of-cyprus/)
-- [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
-- [amazon rainforest things to do](https://travel.allwomenstalk.com/sights-of-the-amazon-rainforest-to-make-you-go-ooh/)
-- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
 - [natural beauty switzerland](https://travel.allwomenstalk.com/stunning-natural-sights-of-switzerland/)
-- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
+- [cyprus attractions](https://travel.allwomenstalk.com/top-attractions-of-cyprus/)
+- [amazon rainforest things to do](https://travel.allwomenstalk.com/sights-of-the-amazon-rainforest-to-make-you-go-ooh/)
+- [historical places in peru](https://travel.allwomenstalk.com/sites-of-ancient-ruins-in-peru-other-than-machu-picchu/)
+- [las vegas restaurants to try](https://travel.allwomenstalk.com/las-vegas-restaurants-you-must-try/)
 - [important festivals of china](https://travel.allwomenstalk.com/traditional-festivals-in-china/)
+- [tourist attractions near cincinnati ohio](https://travel.allwomenstalk.com/attractions-of-cincinnati/)
+- [berlin trip itinerary](https://travel.allwomenstalk.com/berlin-travel-itinerary/)
+- [angkor wat temple area in acres](https://travel.allwomenstalk.com/reasons-to-visit-angkor-wat/)
 - [8 Things to See in Athens ...](https://travel.allwomenstalk.com/things-to-see-in-athens/)
 - [10 Things to See in NYC ...](https://travel.allwomenstalk.com/things-to-see-in-nyc/)
 
