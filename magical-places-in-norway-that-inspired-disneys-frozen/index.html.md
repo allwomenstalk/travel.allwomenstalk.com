@@ -3,7 +3,7 @@ title: "10 Magical Places in Norway That Inspired Disney's Frozen ..."
 description: "Bryggen; Svalbard; St. Olaf’s Church; Akershus Fortress; Stiftsgården; More ..."
 url: "https://travel.allwomenstalk.com/magical-places-in-norway-that-inspired-disneys-frozen/"
 category: "travel"
-last_updated: "2026-07-22"
+last_updated: "2026-07-23"
 ---
 
 # 10 Magical Places in Norway That Inspired Disney's Frozen ...
@@ -14,13 +14,13 @@ Norway is a magical place. So magical in fact that Disney knew it was exactly wh
 
 ![Bryggen](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/az/ix/zk69dxz555197af979c4d504564086_600x400.jpg)
 
-Bryggen provided the model for the town of Arendelle. The charming timber houses of the old merchant’s quarter and the Hanseatic wharf make up a UNESCO Heritage Listed area of the city of Bergen. Today visitors to the preserved business district can enjoy bustling little shops and restaurants.
+[Bryggen](https://whc.unesco.org/en/list/59/) provided the model for the town of Arendelle. The charming timber houses of the old merchant’s quarter and the Hanseatic wharf make up a UNESCO Heritage Listed area of the city of Bergen. Today visitors to the preserved business district can enjoy bustling little shops and restaurants.
 
 ## 2. Svalbard
 
 ![Svalbard](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ba/yc/lo0x0pw355197af0cd9cd227332115_600x450.jpg)
 
-If you’re up to feeling frozen yourself, head to the Arctic archipelago of Svalbard. This incredibly stark place is when you’ll find Sven’s relatives and the background scenes for Elsa’s flight into the mountains. Travelers who want to experience the region’s glaciers, wildlife, and remote landscapes can explore the archipelago on an [Arctic Circle cruise](https://www.aquaexpeditions.com/destinations/svalbard-arctic-cruise). Don’t get frostbite as you gaze in awe at the wonder of the Northern Lights.
+If you’re up to feeling frozen yourself, head to the Arctic archipelago of Svalbard. This incredibly stark place is when you’ll find Sven’s relatives and the background scenes for Elsa’s flight into the mountains. Travelers who want to experience the region’s glaciers, wildlife, and remote landscapes can explore the archipelago on an [Arctic Circle cruise](https://www.aquaexpeditions.com/destinations/svalbard-arctic-cruise). Don’t get frostbite as you gaze in awe at the wonder of the [Northern Lights](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/).
 
 ## 3. St. Olaf’s Church
 
@@ -44,7 +44,7 @@ So if Akerhus provided the inspiration for the exterior of the princesses’ cas
 
 ![Norsk Folkemuseum](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cl/hz/hqj6ig3s55197aef637fc033848776_450x412.jpg)
 
-It wasn’t the building of the folk museum in Oslo, Norway’s capital, that played a part in the movie Frozen coming together. It was the vintage and folk costumes that were used to design Anna and Elsa’s (and the supporting cast) clothes.
+It wasn’t the building of the [folk museum in Oslo](https://norskfolkemuseum.no/en), Norway’s capital, that played a part in the movie Frozen coming together. It was the vintage and folk costumes that were used to design Anna and Elsa’s (and the supporting cast) clothes.
 
 ## 7. Borgund Stave Church
 
@@ -62,7 +62,7 @@ It’s not a massive part of the movie but it has the honor of being the opening
 
 ![Sognefjord](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/qr/bq/bu34k3t655197af299298642948806_600x400.jpg)
 
-You won’t spot it particularly, but the gorgeous landscapes and countryside of and around Sognefjord is rendered throughout the exterior scenes of the movie. Spot the deep still waters of the fjord, the towering cliffs and dramatic waterfalls.
+You won’t spot it particularly, but the [gorgeous landscapes](https://travel.allwomenstalk.com/pictures-that-prove-norway-really-is-nirvana/) and countryside of and around Sognefjord is rendered throughout the exterior scenes of the movie. Spot the deep still waters of the fjord, the towering cliffs and dramatic waterfalls.
 
 ## 10. Fløibanen
 
