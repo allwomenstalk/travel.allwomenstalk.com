@@ -3,7 +3,7 @@ title: "8 Things I Want to See in Paris …"
 description: "The Eiffel Tower; The Louvre; Montmartre; Cathedrale Notre-Dame; La Rive Gauche; More ..."
 url: "https://travel.allwomenstalk.com/8-things-i-want-to-see-in-paris/"
 category: "travel"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 8 Things I Want to See in Paris …
@@ -48,15 +48,15 @@ Top Photo Credit: [rbpdesigner](https://www.flickr.com/photos/rbpdesigner/409396
 
 ## Related Posts
 
-- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
+- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [7 wonders of egypt](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
-- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [placed in france](https://travel.allwomenstalk.com/places-to-visit-in-france/)
+- [notting hill oktoberfest](https://travel.allwomenstalk.com/8-cool-carnivals-and-street-festivals/)
 - [mystical places to visit](https://travel.allwomenstalk.com/8-mystical-places/)
+- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 - [7 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy-2/)
-- [cool towns in america](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
-- [gloomiest](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
+- [lytle creek waterfalls](https://travel.allwomenstalk.com/amazing-and-lesser-known-waterfalls/)
 - [sightseeing in upstate new york](https://travel.allwomenstalk.com/7-things-i-love-about-upstate-new-york/)
 - [7 Places to Visit in Paris ...](https://travel.allwomenstalk.com/places-to-visit-in-paris/)
 - [7 Amazing Things to See in Rome ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-rome/)

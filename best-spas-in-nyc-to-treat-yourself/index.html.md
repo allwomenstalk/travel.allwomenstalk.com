@@ -3,7 +3,7 @@ title: "7 Best Spas in NYC to Treat Yourself ..."
 description: "Caudalie Spa; Peninsula Hotel Spa; Spa Castle; Bliss Spa; Mandarin Oriental Spa; More ..."
 url: "https://travel.allwomenstalk.com/best-spas-in-nyc-to-treat-yourself/"
 category: "travel"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Best Spas in NYC to Treat Yourself ...
@@ -70,16 +70,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1164603403335366
 
 ## Related Posts
 
-- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
-- [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
-- [weird honeymoon destinations](https://wedding.allwomenstalk.com/offbeat-honeymoon-destinations/)
 - [jamaica demographics race](https://travel.allwomenstalk.com/juicy-reasons-to-visit-jamaica/)
-- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
-- [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
+- [best hotel values in nyc](https://travel.allwomenstalk.com/best-hotels-in-new-york-city-to-splurge-on/)
 - [kid friendly flights](https://travel.allwomenstalk.com/child-friendly-airlines/)
-- [greek white island](https://travel.allwomenstalk.com/greek-islands-in-a-nutshell/)
-- [aqualoop boat](https://travel.allwomenstalk.com/wild-water-rides-around-the-world/)
+- [eloping in the us](https://wedding.allwomenstalk.com/most-romantic-places-to-elope-in-the-us/)
 - [top 10 luxury trains in the world](https://travel.allwomenstalk.com/luxurious-train-trips/)
+- [sea side dpz](https://travel.allwomenstalk.com/views-for-everyones-bucket-list/)
+- [aqualoop boat](https://travel.allwomenstalk.com/wild-water-rides-around-the-world/)
+- [greek white island](https://travel.allwomenstalk.com/greek-islands-in-a-nutshell/)
+- [weird honeymoon destinations](https://wedding.allwomenstalk.com/offbeat-honeymoon-destinations/)
+- [world luxury cruise ship](https://travel.allwomenstalk.com/most-luxurious-cruise-ships-in-the-world/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 
