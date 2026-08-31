@@ -3,7 +3,7 @@ title: "A Scottish Castle in Brazil's Highlands, and You Won't Believe..."
 description: "Unveiling a European Fantasy; Indulge in Exquisite Luxury; A Retreat for the Soul; Crafting Unforgettable Memories; The Mystery and Magic of Discovery; More ..."
 url: "https://travel.allwomenstalk.com/scottish-castle-hidden-in-brazil-highlands/"
 category: "travel"
-last_updated: "2026-08-01"
+last_updated: "2026-08-31"
 ---
 
 # A Scottish Castle in Brazil's Highlands, and You Won't Believe...
@@ -53,8 +53,6 @@ Travel is not merely about the destination; it's about the stories you gather al
 Perhaps it's this blend of magic and mystery that makes Castello Saint Andrews a favorite among discerning travelers. As you close the chapter on your stay, you'll carry with you more than just memories - you'll bring back the allure of discovery, woven into the fabric of your adventure.
 
 Are you ready to embrace the unexpected and embark on a journey that challenges your senses? How does the concept of a European-inspired escape in Brazil captivate your imagination? Share your thoughts below and let's dream together!
-
-slug: castello-saint-andrews-adventure tags: travel, luxury hotels, Brazil, Conde Nast Johansens, castles
 
 ## Site Information
 
