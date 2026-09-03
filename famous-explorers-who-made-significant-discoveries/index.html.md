@@ -3,7 +3,7 @@ title: "7 Famous Explorers Who Made Significant Discoveries ..."
 description: "Ferdinand Magellan; Hernan Cortes; Charles Darwin; Marco Polo; Lewis and Clark; More ..."
 url: "https://travel.allwomenstalk.com/famous-explorers-who-made-significant-discoveries/"
 category: "travel"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Famous Explorers Who Made Significant Discoveries ...
@@ -56,16 +56,16 @@ I think I would have like to have been Captain Cook who discovered Australia but
 
 ## Related Posts
 
-- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
 - [is living in london worth it](https://travel.allwomenstalk.com/places-within-an-hour-of-london-worth-the-trip/)
-- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
-- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
-- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
-- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
-- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
-- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
 - [three forms of transport](https://travel.allwomenstalk.com/cultural-forms-of-transportation/)
+- [people watching book](https://lifestyle.allwomenstalk.com/favorite-places-to-people-watch/)
+- [winter sport destinations in europe](https://travel.allwomenstalk.com/top-winter-sports-locations-in-europe/)
+- [sacred places uk](https://travel.allwomenstalk.com/revered-and-sacred-places-in-britain/)
+- [crater lake satellite view](https://travel.allwomenstalk.com/crater-lakes-of-outstanding-beauty/)
 - [budget eats london](https://food.allwomenstalk.com/of-the-best-cheap-eats-in-london/)
+- [traditional art examples](https://travel.allwomenstalk.com/places-to-see-folk-art-around-the-world/)
+- [where was gondor filmed](https://travel.allwomenstalk.com/lotr-and-hobbit-filming-locations-in-new-zealand/)
+- [69th street transfer bridge](https://travel.allwomenstalk.com/under-appreciated-places-in-new-york-city/)
 - [7 Wonders of Egypt ...](https://travel.allwomenstalk.com/7-wonders-of-egypt/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

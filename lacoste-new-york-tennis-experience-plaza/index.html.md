@@ -3,7 +3,7 @@ title: "What Happens When Tennis Takes Over The Plaza..."
 description: "An Iconic Entrance; A Spectacular Venue; On-Court Experiences; Details in Every Corner; Exclusive Merchandise; More ..."
 url: "https://travel.allwomenstalk.com/lacoste-new-york-tennis-experience-plaza/"
 category: "travel"
-last_updated: "2026-08-28"
+last_updated: "2026-09-03"
 ---
 
 # What Happens When Tennis Takes Over The Plaza...
