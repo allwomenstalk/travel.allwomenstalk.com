@@ -1,9 +1,9 @@
 ---
 title: "8 Places to Visit in Greece ..."
-description: "Santorini; Athens; Crete; Meteora; Olympia; More ..."
+description: "Santorini; Athens; Crete; Meteora; Olympia"
 url: "https://travel.allwomenstalk.com/places-to-visit-in-greece/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 8 Places to Visit in Greece ...
@@ -60,20 +60,18 @@ A truly magnificent, mythical and magical place such is the city of Mycenae is s
 
 Yup these are all great places to visit in Greece although they certainly aren’t the only ones worth mentioning. That’s why I want to ask you this – in case you ever decide to visit Greece, what places would be on your must-see list?
 
-Top Photo Credit: [archer10 (Dennis)](https://www.flickr.com/photos/archer10/2216602404/)
-
 ## Related Posts
 
-- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
-- [hipster things to do in paris](https://travel.allwomenstalk.com/things-to-do-in-paris/)
-- [what is the most unusual building you have ever se...](https://travel.allwomenstalk.com/8-ugliest-world-buildings/)
-- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
-- [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
-- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
-- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
 - [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
-- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
 - [10 Must-Visit Places in England ...](https://travel.allwomenstalk.com/must-visit-places-in-england/)
+- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
+- [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
+- [hipster things to do in paris](https://travel.allwomenstalk.com/things-to-do-in-paris/)
+- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
+- [what is the most unusual building you have ever se...](https://travel.allwomenstalk.com/8-ugliest-world-buildings/)
+- [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
+- [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
+- [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
 - [8 Places to Visit in France ...](https://travel.allwomenstalk.com/places-to-visit-in-france/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 

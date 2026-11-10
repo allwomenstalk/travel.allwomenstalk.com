@@ -1,9 +1,9 @@
 ---
 title: "7 Fun Things to Do Before Your Next Vacation to Feel Your Best"
-description: "Get Your Hair Done; Shellac Your Nails; Decide What to Pack; Go Shopping!; Pick up a New Book or Two; More ..."
+description: "Get Your Hair Done; Shellac Your Nails; Decide What to Pack; Go Shopping!; Pick up a New Book or Two"
 url: "https://travel.allwomenstalk.com/fun-things-to-do-before-your-next-vacation/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 7 Fun Things to Do Before Your Next Vacation to Feel Your Best
@@ -71,14 +71,14 @@ Most of these things I do before any trip and it's always so much fun! We're pla
 
 - [travelling for work tips](https://travel.allwomenstalk.com/very-useful-tips-for-efficient-business-travel/)
 - [sea spot saver vs tsa precheck](https://travel.allwomenstalk.com/rules-of-etiquette-for-the-airplane-bathroom/)
-- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
-- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
-- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
 - [paris riche stylo endless pearl](https://travel.allwomenstalk.com/essentials-of-dressing-for-a-flight/)
-- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
-- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
+- [toiletries when travelling](https://travel.allwomenstalk.com/ways-to-cut-down-on-toiletries-when-traveling/)
 - [eating street food](https://food.allwomenstalk.com/ultimate-tips-for-eating-street-food-safely/)
 - [what to pack for washington dc](https://travel.allwomenstalk.com/essentials-to-pack-when-touring-a-new-city/)
+- [top travel journals](https://travel.allwomenstalk.com/super-travel-journals-to-record-your-own-travelogues/)
+- [merry piglets jackson](https://travel.allwomenstalk.com/ways-to-explore-jackson-hole-like-a-local/)
+- [abu dhabi to melbourne etihad](https://travel.allwomenstalk.com/ways-to-survive-a-flight-in-the-middle-seat/)
+- [scoops ahoy coles](https://travel.allwomenstalk.com/must-haves-for-easy-travel/)
 - [7 Unique Things to do at the Beach ...](https://travel.allwomenstalk.com/7-unique-things-to-do-at-the-beach/)
 - [7 Tips for Traveling ...](https://travel.allwomenstalk.com/7-tips-for-traveling/)
 

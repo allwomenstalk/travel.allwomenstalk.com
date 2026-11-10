@@ -1,9 +1,9 @@
 ---
 title: "19 Rude Place Names around the World ..."
-description: "Poo, India; Shit, Iran; Tit, Algeria; Le Tampon, France; Bum, Sierra Leone; More ..."
+description: "Poo, India; Shit, Iran; Tit, Algeria; Le Tampon, France; Bum, Sierra Leone"
 url: "https://travel.allwomenstalk.com/rude-place-names-around-the-world/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 19 Rude Place Names around the World ...
@@ -128,16 +128,16 @@ Ok, fess up! How many of you thought this was silly and I’m not going to read 
 
 ## Related Posts
 
-- [best ethnic restaurants](https://food.allwomenstalk.com/best-ethnic-restaurants-in-france-that-are-worth-visiting/)
-- [covent garden roadhouse](https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/)
-- [ancient middle east city](https://travel.allwomenstalk.com/ancient-sites-in-the-middle-east-that-will-mesmerize-you/)
-- [tourist attractions liverpool](https://travel.allwomenstalk.com/must-see-attractions-of-liverpool/)
+- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
 - [most beautiful german castles](https://travel.allwomenstalk.com/most-breathtaking-castles-in-germany/)
+- [nut burger montana](https://food.allwomenstalk.com/weirdest-burgers-from-all-over-the-world/)
 - [cute cafes in paris](https://travel.allwomenstalk.com/cute-cafes-in-paris-that-you-simply-cant-afford-to-miss/)
+- [ancient middle east city](https://travel.allwomenstalk.com/ancient-sites-in-the-middle-east-that-will-mesmerize-you/)
+- [best ethnic restaurants](https://food.allwomenstalk.com/best-ethnic-restaurants-in-france-that-are-worth-visiting/)
+- [tourist attractions liverpool](https://travel.allwomenstalk.com/must-see-attractions-of-liverpool/)
 - [japan must go cities](https://travel.allwomenstalk.com/breathtakingly-beautiful-cities-to-visit-in-japan/)
 - [why you should visit brazil](https://travel.allwomenstalk.com/reasons-to-visit-brazil-at-least-once-in-your-lifetime/)
-- [sights of germany](https://travel.allwomenstalk.com/fantastic-sights-in-germany-you-must-see/)
-- [nut burger montana](https://food.allwomenstalk.com/weirdest-burgers-from-all-over-the-world/)
+- [covent garden roadhouse](https://travel.allwomenstalk.com/themed-london-bars-you-wont-want-to-miss-out-on/)
 - [10 Things That Have Weird Names in Other Countries...](https://travel.allwomenstalk.com/10-things-that-have-weird-names-in-other-countries/)
 - [12 Funny London Street Names ...](https://travel.allwomenstalk.com/12-funny-london-street-names/)
 

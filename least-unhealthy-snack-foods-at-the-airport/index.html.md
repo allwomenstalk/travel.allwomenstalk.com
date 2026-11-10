@@ -1,9 +1,9 @@
 ---
 title: "10 Least Unhealthy Snack Foods at the Airport ..."
-description: "Starbucks Perfect Oatmeal; Dunkin Donuts Egg White Flatbread; Turkey Sandwich; Soup; Bagel & Cream Cheese; More ..."
+description: "Starbucks Perfect Oatmeal; Dunkin Donuts Egg White Flatbread; Turkey Sandwich; Soup; Bagel & Cream Cheese"
 url: "https://travel.allwomenstalk.com/least-unhealthy-snack-foods-at-the-airport/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 10 Least Unhealthy Snack Foods at the Airport ...
@@ -56,15 +56,15 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/6054502)
 
 ## Related Posts
 
-- [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
-- [do carbonated drinks affect breast milk](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
-- [spam while pregnant](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
-- [7 Foods with Least Calories ...](https://weightloss.allwomenstalk.com/foods-with-least-calories/)
-- [foods that are less than 100 calories](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
-- [7 Foods to Protect from Sun Damage ...](https://skincare.allwomenstalk.com/foods-to-protect-from-sun-damage/)
-- [8 Great Antioxidant Fruits ...](https://weightloss.allwomenstalk.com/great-antioxidant-fruits/)
 - [8 Protein-Packed Snacks to Support Your Toning Pro...](https://weightloss.allwomenstalk.com/8-protein-packed-snacks-to-support-your-toning-programme/)
+- [spam while pregnant](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
+- [7 Foods to Protect from Sun Damage ...](https://skincare.allwomenstalk.com/foods-to-protect-from-sun-damage/)
+- [foods that are less than 100 calories](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
+- [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 - [weight watcher granola](https://weightloss.allwomenstalk.com/weight-watchers-approved-snacks/)
+- [8 Great Antioxidant Fruits ...](https://weightloss.allwomenstalk.com/great-antioxidant-fruits/)
+- [do carbonated drinks affect breast milk](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
+- [7 Foods with Least Calories ...](https://weightloss.allwomenstalk.com/foods-with-least-calories/)
 - [great finger foods for babies](https://parenting.allwomenstalk.com/best-finger-foods-for-your-baby/)
 - [8 Healthy Vending Machine Snacks ...](https://cooking.allwomenstalk.com/healthy-vending-machine-snacks/)
 - [7 Healthy Snacks That Are Not so Healthy ...](https://diet.allwomenstalk.com/7-healthy-snacks-that-are-not-so-healthy/)

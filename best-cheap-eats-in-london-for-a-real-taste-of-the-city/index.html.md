@@ -1,9 +1,9 @@
 ---
 title: "9 Best Cheap Eats in London: The Ultimate Budget Dining Guide"
-description: "Yalla Yalla, Soho; Jai Khrishna, Finsbury Park; Franco Manca, Chiswick; Song Que, Shoreditch; Fryer’s Delight, Kings Cross; More ..."
+description: "Yalla Yalla, Soho; Jai Khrishna, Finsbury Park; Franco Manca, Chiswick; Song Que, Shoreditch; Fryer’s Delight, Kings Cross"
 url: "https://travel.allwomenstalk.com/best-cheap-eats-in-london-for-a-real-taste-of-the-city/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 9 Best Cheap Eats in London: The Ultimate Budget Dining Guide
@@ -86,16 +86,16 @@ This is just a selection of the best cheap eats in London. The variety across th
 
 ## Related Posts
 
-- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
-- [top fictional places](https://lifestyle.allwomenstalk.com/amazing-fictional-places-you-wish-were-real/)
-- [hi tea places](https://travel.allwomenstalk.com/best-places-for-high-tea-around-the-world/)
+- [100 things to do before i die](https://travel.allwomenstalk.com/things-to-do-in-uk-before-you-die/)
 - [designer shops in ibiza](https://travel.allwomenstalk.com/unmissable-places-to-go-shopping-in-ibiza/)
+- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
+- [places to go before i die](https://travel.allwomenstalk.com/things-to-do-in-europe-before-you-die/)
+- [hi tea places](https://travel.allwomenstalk.com/best-places-for-high-tea-around-the-world/)
+- [mississippi in the winter](https://travel.allwomenstalk.com/places-along-the-mississippi-river-worth-making-a-stop-at/)
 - [fun things to do in finland](https://travel.allwomenstalk.com/fabulous-things-to-do-in-finland/)
+- [top fictional places](https://lifestyle.allwomenstalk.com/amazing-fictional-places-you-wish-were-real/)
 - [british stores in america](https://travel.allwomenstalk.com/british-themed-shops-in-the-usa/)
 - [the strangest houses](https://lifestyle.allwomenstalk.com/strangest-houses-in-the-world/)
-- [places of interest in stockholm](https://travel.allwomenstalk.com/places-to-visit-in-stockholm/)
-- [100 things to do before i die](https://travel.allwomenstalk.com/things-to-do-in-uk-before-you-die/)
-- [places to go before i die](https://travel.allwomenstalk.com/things-to-do-in-europe-before-you-die/)
 - [10 Free Entry Attractions in London ...](https://travel.allwomenstalk.com/free-entry-attractions-in-london/)
 - [7 Things to See in London ...](https://travel.allwomenstalk.com/things-to-see-in-london/)
 

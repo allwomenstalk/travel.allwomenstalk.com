@@ -1,9 +1,9 @@
 ---
 title: "7 Iconic British Foods Named After Places Every Foodie Should Try"
-description: "Cheddar Cheese; Eccles Cake; Cornish Pasty; Pontefract Cakes; Arbroath Smokie; More ..."
+description: "Cheddar Cheese; Eccles Cake; Cornish Pasty; Pontefract Cakes; Arbroath Smokie"
 url: "https://travel.allwomenstalk.com/british-foods-named-after-places/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 7 Iconic British Foods Named After Places Every Foodie Should Try
@@ -58,16 +58,16 @@ We hope this list inspires you to discover these regional specialties in person 
 
 ## Related Posts
 
-- [why to visit istanbul](https://travel.allwomenstalk.com/inviting-reasons-to-visit-istanbul/)
-- [praga what to do](https://travel.allwomenstalk.com/brilliant-things-to-do-in-prague/)
 - [perfect pizzas](https://travel.allwomenstalk.com/places-for-perfect-pizza-in-america/)
 - [most popular museums in nyc](https://travel.allwomenstalk.com/top-museums-you-have-to-visit-in-nyc/)
-- [experiences berlin](https://travel.allwomenstalk.com/must-do-experiences-in-berlin/)
+- [praga what to do](https://travel.allwomenstalk.com/brilliant-things-to-do-in-prague/)
+- [african safari best places to go](https://travel.allwomenstalk.com/stupendous-places-for-an-african-safari/)
+- [why to visit istanbul](https://travel.allwomenstalk.com/inviting-reasons-to-visit-istanbul/)
+- [waterloo antique market](https://travel.allwomenstalk.com/european-antique-markets/)
+- [pictures of cool things](https://travel.allwomenstalk.com/totally-cool-things-to-do-in-south-america/)
 - [swedish sights](https://travel.allwomenstalk.com/sensational-sights-in-sweden/)
 - [the thatchers bures](https://travel.allwomenstalk.com/essentially-english-pubs/)
-- [pictures of cool things](https://travel.allwomenstalk.com/totally-cool-things-to-do-in-south-america/)
-- [african safari best places to go](https://travel.allwomenstalk.com/stupendous-places-for-an-african-safari/)
-- [waterloo antique market](https://travel.allwomenstalk.com/european-antique-markets/)
+- [experiences berlin](https://travel.allwomenstalk.com/must-do-experiences-in-berlin/)
 - [7 Most Exotic Delicacies in the World ...](https://cooking.allwomenstalk.com/7-most-exotic-delicacies-in-the-world/)
 - [7 Top USA Foods ...](https://food.allwomenstalk.com/top-usa-foods/)
 

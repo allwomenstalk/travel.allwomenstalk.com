@@ -1,9 +1,9 @@
 ---
 title: "What Happens When Tennis Meets Luxury at The Plaza..."
-description: "A Grand Entrance; Tennis-Themed Décor; Club Lacoste Corner; Exclusive Merchandising; Interactive Events; More ..."
+description: "A Grand Entrance; Tennis-Themed Décor; Club Lacoste Corner; Exclusive Merchandising; Interactive Events"
 url: "https://travel.allwomenstalk.com/plaza-hotel-lacoste-tennis-themed-celebration/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # What Happens When Tennis Meets Luxury at The Plaza...

@@ -1,9 +1,9 @@
 ---
 title: "20 off the Beaten Path Attractions of New York ..."
-description: "The Graffiti Wall of Fame; Museum of Sex; The Alamo; Fort Tryon Park; Alice Austen House; More ..."
+description: "The Graffiti Wall of Fame; Museum of Sex; The Alamo; Fort Tryon Park; Alice Austen House"
 url: "https://travel.allwomenstalk.com/off-the-beaten-path-attractions-of-new-york/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 20 off the Beaten Path Attractions of New York ...
@@ -134,16 +134,16 @@ Well that’s it. My pick of just 20 of the wonderful things to see, do and enjo
 
 ## Related Posts
 
-- [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
-- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
 - [art urban places](https://travel.allwomenstalk.com/best-places-to-see-urban-art/)
-- [world's best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
-- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
-- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
-- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
 - [what are the things that take you up a mountain](https://travel.allwomenstalk.com/wonderful-things-to-do-in-dubrovnik/)
 - [mythical places on earth](https://travel.allwomenstalk.com/places-of-myth-and-legend/)
 - [silvermine hotel sweden](https://travel.allwomenstalk.com/really-quirky-hotels-around-the-world/)
+- [best place to celebrate diwali](https://travel.allwomenstalk.com/top-places-to-celebrate-diwali/)
+- [things to do in rio de janeiro when it rains](https://travel.allwomenstalk.com/top-things-to-do-in-rio-de-janeiro/)
+- [bungee jumping royal gorge](https://travel.allwomenstalk.com/amazing-places-to-go-bungee-jumping/)
+- [where did portugal colonize in the new world](https://travel.allwomenstalk.com/countries-that-were-once-portuguese-colonies/)
+- [james bond movies locations](https://travel.allwomenstalk.com/stunning-james-bond-locations/)
+- [world's best](https://travel.allwomenstalk.com/of-the-best-shops-in-the-world/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 

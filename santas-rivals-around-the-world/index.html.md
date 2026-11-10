@@ -1,9 +1,9 @@
 ---
 title: "Santa's Rivals around the World ..."
-description: "Iceland Celebrates Christmas with Cats, Ogres and Yule Lads; Austrian and Bavarian Children Look out for Horned Krampus; Catalonia in Spain Has Pooping Logs for Christmas; The Three Kings Reign Supreme at Christmas in Spain and Portugal; Greek Kids Look Forward to Visits from Saint Basil; More ..."
+description: "Iceland Celebrates Christmas with Cats, Ogres and Yule Lads; Austrian and Bavarian Children Look out for Horned Krampus"
 url: "https://travel.allwomenstalk.com/santas-rivals-around-the-world/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # Santa's Rivals around the World ...
@@ -56,16 +56,16 @@ Which Christmas character means most to you?
 
 ## Related Posts
 
-- [can an ulcer burst like downton abbey](https://movies.allwomenstalk.com/questions-we-want-answered-by-the-downton-abbey-finale/)
-- [plastic surgery you can't hide it forever](https://beauty.allwomenstalk.com/youll-never-believe-these-plastic-surgery-stories/)
-- [17gifs](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-cancer/)
-- [marrige gif](https://love.allwomenstalk.com/the-first-year-of-marriage-a-trainwreck-fairy-tale-told-in-gifs/)
-- [bones vincent nigel murray death episode](https://movies.allwomenstalk.com/tv-deaths-that-left-us-heartbroken/)
-- [cheating girlfriend story](https://love.allwomenstalk.com/an-eye-opening-short-story-about-cheating/)
-- [kissing gif for whatsapp](https://love.allwomenstalk.com/pieces-of-pda-that-arent-at-all-inappropriate/)
-- [loreal paris riche le stylo vegas](https://movies.allwomenstalk.com/funny-superbowl-commercials-youll-crack-up-at/)
-- [squashed baby head meme](https://parenting.allwomenstalk.com/you-have-to-see-these-rice-ball-babies/)
 - [spin the bottle with sister](https://love.allwomenstalk.com/short-story-spin-the-bottle/)
+- [loreal paris riche le stylo vegas](https://movies.allwomenstalk.com/funny-superbowl-commercials-youll-crack-up-at/)
+- [marrige gif](https://love.allwomenstalk.com/the-first-year-of-marriage-a-trainwreck-fairy-tale-told-in-gifs/)
+- [kissing gif for whatsapp](https://love.allwomenstalk.com/pieces-of-pda-that-arent-at-all-inappropriate/)
+- [squashed baby head meme](https://parenting.allwomenstalk.com/you-have-to-see-these-rice-ball-babies/)
+- [cheating girlfriend story](https://love.allwomenstalk.com/an-eye-opening-short-story-about-cheating/)
+- [bones vincent nigel murray death episode](https://movies.allwomenstalk.com/tv-deaths-that-left-us-heartbroken/)
+- [can an ulcer burst like downton abbey](https://movies.allwomenstalk.com/questions-we-want-answered-by-the-downton-abbey-finale/)
+- [17gifs](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-cancer/)
+- [plastic surgery you can't hide it forever](https://beauty.allwomenstalk.com/youll-never-believe-these-plastic-surgery-stories/)
 - [Christmas is Pink This Year ...](https://allwomenstalk.com/christmas-is-pink-this-year/)
 - [Pink Chocolates for the Holidays ...](https://allwomenstalk.com/pink-chocolates-for-the-holidays/)
 

@@ -1,9 +1,9 @@
 ---
 title: "When Luxury Means Breathing Room …"
-description: "Luxury As Space Rather Than Spectacle; More ..."
+description: "Luxury As Space Rather Than Spectacle"
 url: "https://travel.allwomenstalk.com/when-luxury-means-breathing-room/"
 category: "lifestyle"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # When Luxury Means Breathing Room …

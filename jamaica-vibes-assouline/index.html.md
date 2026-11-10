@@ -1,9 +1,9 @@
 ---
 title: "Unveiling Jamaica's Secrets with Novia McDonald-Whyte and Assouline..."
-description: "The Lush Landscapes of Jamaica; The Rich Tapestry of Jamaican Culture; A Love Affair with Round Hill Hotel and Villas; Architectural Elegance and Timeless Beauty; Exploring with the Heart of an Adventurer; More ..."
+description: "The Lush Landscapes of Jamaica; The Rich Tapestry of Jamaican Culture; A Love Affair with Round Hill Hotel and Villas"
 url: "https://travel.allwomenstalk.com/jamaica-vibes-assouline/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # Unveiling Jamaica's Secrets with Novia McDonald\-Whyte and Assouline...

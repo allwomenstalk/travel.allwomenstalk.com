@@ -1,9 +1,9 @@
 ---
 title: "8 Vegetarian Friendly Disney World Restaurants ..."
-description: "The Yak & Yeti Quick Service Counter; Pinocchio Village Haus; Sunshine Seasons; Cosmic Ray’s Starlight Cafe and Pecos Bill's; The Hollywood Brown Derby; More ..."
+description: "The Yak & Yeti Quick Service Counter; Pinocchio Village Haus; Sunshine Seasons; Cosmic Ray’s Starlight Cafe and Pecos Bill's; The Hollywood Brown Derby"
 url: "https://travel.allwomenstalk.com/vegetarian-friendly-disney-world-restaurants/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 8 Vegetarian Friendly Disney World Restaurants ...
@@ -46,14 +46,14 @@ There we are, some of my favorite vegetarian friendly food options at Disney Wor
 
 ## Related Posts
 
+- [8 Things to Experience in Canada ...](https://travel.allwomenstalk.com/things-to-experience-in-canada/)
 - [what to visit in belgrade](https://travel.allwomenstalk.com/great-reasons-to-visit-belgrade/)
 - [8 Amazing Places to See the Northern Lights ...](https://travel.allwomenstalk.com/amazing-places-to-see-the-northern-lights/)
-- [8 Things to do in Ireland ...](https://travel.allwomenstalk.com/things-to-do-in-ireland/)
-- [12 Places to See the Top Sports Events of 2013 ...](https://travel.allwomenstalk.com/places-to-see-the-top-sports-events-of/)
+- [7 Haunted Places in New York ...](https://paranormal.allwomenstalk.com/haunted-places-in-new-york/)
 - [best cities to visit in canada](https://travel.allwomenstalk.com/best-cities-to-visit-in-canada/)
 - [7 Great Sights to See in Stockholm ...](https://travel.allwomenstalk.com/great-sights-to-see-in-stockholm/)
-- [8 Things to Experience in Canada ...](https://travel.allwomenstalk.com/things-to-experience-in-canada/)
-- [7 Haunted Places in New York ...](https://paranormal.allwomenstalk.com/haunted-places-in-new-york/)
+- [8 Things to do in Ireland ...](https://travel.allwomenstalk.com/things-to-do-in-ireland/)
+- [12 Places to See the Top Sports Events of 2013 ...](https://travel.allwomenstalk.com/places-to-see-the-top-sports-events-of/)
 - [8 Must-do Things in Milan ...](https://travel.allwomenstalk.com/must-do-things-in-milan/)
 - [top things to do in commercial drive](https://travel.allwomenstalk.com/top-things-to-do-in-vancouver/)
 - [8 Great Destinations for Vegetarians ...](https://travel.allwomenstalk.com/great-destinations-for-vegetarians/)

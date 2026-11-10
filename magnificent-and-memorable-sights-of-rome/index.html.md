@@ -322,14 +322,14 @@ I threw my coin in the Trevi Fountain but haven't been back yet. I hope those wi
 
 - [oldest place in the world](https://travel.allwomenstalk.com/of-the-oldest-cities-in-the-world/)
 - [best cities in the world 2023](https://money.allwomenstalk.com/cities-around-the-world-with-the-most-job-opportunities/)
+- [new england during fall](https://travel.allwomenstalk.com/breathtaking-examples-of-fall-in-new-england/)
 - [sights chicago](https://travel.allwomenstalk.com/sights-of-chicago-that-will-make-you-want-to-visit/)
 - [nassau pirate haven](https://travel.allwomenstalk.com/places-to-follow-in-the-footsteps-of-pirates/)
-- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
-- [central perk cafe from friends](https://travel.allwomenstalk.com/tv-show-cafes-and-restaurants-you-can-actually-visit/)
 - [twilight poem 57](https://travel.allwomenstalk.com/sights-of-ireland-that-will-make-you-green-with-envy/)
 - [india beautiful pictures](https://travel.allwomenstalk.com/pictures-of-the-beautiful-and-colorful-people-of-india/)
+- [gothic churchs](https://travel.allwomenstalk.com/examples-of-gothic-churches-from-around-the-world/)
+- [central perk cafe from friends](https://travel.allwomenstalk.com/tv-show-cafes-and-restaurants-you-can-actually-visit/)
 - [australia sights](https://travel.allwomenstalk.com/sights-of-australia-that-will-make-you-yearn-for-a-trip-down-under/)
-- [new england during fall](https://travel.allwomenstalk.com/breathtaking-examples-of-fall-in-new-england/)
 - [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
 - [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
 

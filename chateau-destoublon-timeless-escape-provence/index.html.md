@@ -1,9 +1,9 @@
 ---
 title: "Where History and Nature Dance at Château d'Estoublon"
-description: "The Enchanting Gardens of Château d'Estoublon; A Gastronomic Delight for the Senses; Spaces That Whisper Secrets of the Past; Strolling Through Time-Steeped Vineyards; The Allure of Timeless Elegance; More ..."
+description: "The Enchanting Gardens of Château d'Estoublon; A Gastronomic Delight for the Senses; Spaces That Whisper Secrets of the Past"
 url: "https://travel.allwomenstalk.com/chateau-destoublon-timeless-escape-provence/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # Where History and Nature Dance at Château d'Estoublon

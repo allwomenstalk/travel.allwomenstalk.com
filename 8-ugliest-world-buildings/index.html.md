@@ -1,9 +1,9 @@
 ---
 title: "8 Ugliest World Buildings ..."
-description: "Pompidou Centre; Sagrada Familia; Montparnasse Tower; Lloyd’s Building; The Pyramid at the Louvre; More ..."
+description: "Pompidou Centre; Sagrada Familia; Montparnasse Tower; Lloyd’s Building; The Pyramid at the Louvre"
 url: "https://travel.allwomenstalk.com/8-ugliest-world-buildings/"
 category: "travel"
-last_updated: "2026-09-02"
+last_updated: "2026-11-10"
 ---
 
 # 8 Ugliest World Buildings ...
@@ -44,20 +44,18 @@ The best thing about the Barbican is the arts centre it contains. The worst is t
 
 This can only be the tip of the iceberg of architectural monstrosities, so what other hideous buildings have you come across? Are there any cities that you avoid visiting, as they contain buildings you just can’t bear to come across?
 
-Top Photo Credit: [Dean Terry](https://www.flickr.com/photos/therefore/93792382/)
-
 ## Related Posts
 
-- [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
-- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
 - [10 Must-Visit Places in England ...](https://travel.allwomenstalk.com/must-visit-places-in-england/)
-- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
+- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
 - [10 Fabulous Festivals Happening in January 2012 .....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-january/)
 - [8 Places to Visit in Italy ...](https://travel.allwomenstalk.com/places-to-visit-in-italy/)
-- [see france](https://travel.allwomenstalk.com/things-to-see-in-france/)
+- [ckfpmzfwxqu -site:youtube.com](https://twilight.allwomenstalk.com/5-haunted-places/)
 - [8 Sights to See in Rome ...](https://travel.allwomenstalk.com/sights-to-see-in-rome/)
-- [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
 - [10 Things to See in Boston ...](https://travel.allwomenstalk.com/things-to-see-in-boston/)
+- [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
+- [most expensive city in italy](https://travel.allwomenstalk.com/fabulous-free-thing-to-do-in-each-of-the-worlds-most-expensive-cities/)
+- [7 Amazing Things to See in Florence ...](https://travel.allwomenstalk.com/amazing-things-to-see-in-florence/)
 - [8 Gloomiest Tourist Attractions ...](https://travel.allwomenstalk.com/gloomiest-tourist-attractions/)
 - [My Favourite 7 Fabulous Buildings ...](https://lifestyle.allwomenstalk.com/my-favourite-fabulous-buildings/)
 

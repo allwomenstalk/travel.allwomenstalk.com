@@ -1,9 +1,9 @@
 ---
 title: "7 Places for the Best Bird's Eye View of London ..."
-description: "London Eye; O2 Arena; The Shard; Parliament Hill; Greenwich Observatory; More ..."
+description: "London Eye; O2 Arena; The Shard; Parliament Hill; Greenwich Observatory"
 url: "https://travel.allwomenstalk.com/places-for-the-best-birds-eye-view-of-london/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 7 Places for the Best Bird's Eye View of London ...
@@ -56,16 +56,16 @@ These are the main places to get a bird’s eye view of London and they provide 
 
 ## Related Posts
 
-- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
-- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
-- [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
 - [seeing the world from a different angle](https://travel.allwomenstalk.com/ways-to-see-the-world-from-a-different-angle/)
-- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
-- [shoes in northampton](https://shoes.allwomenstalk.com/interesting-exhibits-at-the-northampton-shoe-museum/)
 - [neighborhoods now](https://travel.allwomenstalk.com/made-over-neighborhoods-now-worth-visiting/)
 - [lonely planet saudi arabia](https://travel.allwomenstalk.com/special-places-to-visit-in-saudi-arabia/)
+- [shoes in northampton](https://shoes.allwomenstalk.com/interesting-exhibits-at-the-northampton-shoe-museum/)
 - [best place to visit cotswolds](https://travel.allwomenstalk.com/places-to-visit-in-the-cotswolds/)
 - [the xianren bridge is located in guangxi province ...](https://travel.allwomenstalk.com/wondrous-natural-arches-around-the-world/)
+- [book bench](https://books.allwomenstalk.com/brilliant-examples-of-the-london-book-benches/)
+- [coromandel peninsula things to do](https://travel.allwomenstalk.com/places-of-beauty-and-attractions-of-the-coromandel-peninsula-nz/)
+- [bizarre the coffee bar](https://travel.allwomenstalk.com/bizarre-bars-around-the-world-you-need-to-visit/)
+- [places to visit in harmony](https://travel.allwomenstalk.com/places-where-nature-and-spirituality-meet-in-harmony/)
 - [7 Best Places to Visit in the UK ...](https://travel.allwomenstalk.com/best-places-to-visit-in-the-uk/)
 - [8 Places to Visit in the UK ...](https://travel.allwomenstalk.com/places-to-visit-in-the-uk/)
 

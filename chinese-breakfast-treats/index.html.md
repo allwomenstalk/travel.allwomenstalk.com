@@ -1,9 +1,9 @@
 ---
 title: "7 Chinese Breakfast Treats ..."
-description: "Steamed Dumplings with Porridge; Fried Dough Sticks with Soy Milk; Wonton Soup with Sesame Seed Buns; Savory Pancake; Roasted Barley Flour with Yak Butter Tea; More ..."
+description: "Steamed Dumplings with Porridge; Fried Dough Sticks with Soy Milk; Wonton Soup with Sesame Seed Buns; Savory Pancake"
 url: "https://travel.allwomenstalk.com/chinese-breakfast-treats/"
 category: "travel"
-last_updated: "2026-09-02"
+last_updated: "2026-11-10"
 ---
 
 # 7 Chinese Breakfast Treats ...

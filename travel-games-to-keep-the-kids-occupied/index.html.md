@@ -1,9 +1,9 @@
 ---
 title: "8 Travel Games to Keep the Kids Occupied ..."
-description: "Singing in Echoes; Buzz Words; Geography Games; Design a Map; Statues; More ..."
+description: "Singing in Echoes; Buzz Words; Geography Games; Design a Map; Statues"
 url: "https://travel.allwomenstalk.com/travel-games-to-keep-the-kids-occupied/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 8 Travel Games to Keep the Kids Occupied ...
@@ -47,20 +47,18 @@ Get your kids to look at the clouds and see what they can see in the clouds. Cha
 
 Of course, you aren’t limited to these travel games and some parents have the luxury of sitting back and enjoying the journey safe in the knowledge that the kids are happily occupied with their DS game or watching a movie on a portable DVD player. Travel games however, are simple ways of passing the journey and enjoying family time together.
 
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/8518786)
-
 ## Related Posts
 
-- [what can you do in the fall](https://lifestyle.allwomenstalk.com/things-to-do-in-your-city-for-fall/)
-- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/great-philanthropies-to-get-involved-with/)
-- [8 Wicked Ways to Get the Most out of Your Weekend ...](https://lifestyle.allwomenstalk.com/wicked-ways-to-get-the-most-out-of-your-weekend/)
-- [cheap fun things to do with friends](https://lifestyle.allwomenstalk.com/cheap-and-fun-things-to-do-with-friends/)
-- [8 Great Ways to Entertain Children Indoors ...](https://parenting.allwomenstalk.com/great-ways-to-entertain-children-indoors/)
-- [most fun 5k races](https://health.allwomenstalk.com/fun-5k-races-to-run/)
 - [5 Things to do or Make for Thanksgiving…](https://allwomenstalk.com/5-things-to-do-or-make-for-thanksgiving/)
-- [10 Fun Things We Did as a Kid That We Should do No...](https://health.allwomenstalk.com/fun-things-we-did-as-a-kid-that-we-should-do-now/)
-- [reykjavik new years eve](https://travel.allwomenstalk.com/ways-to-spend-new-years-eve-around-the-world/)
+- [most fun 5k races](https://health.allwomenstalk.com/fun-5k-races-to-run/)
 - [8 Fun and Memorable Things to do in Las Vegas besi...](https://travel.allwomenstalk.com/fun-and-memorable-things-to-do-in-las-vegas-besides-gambling/)
+- [8 Wicked Ways to Get the Most out of Your Weekend ...](https://lifestyle.allwomenstalk.com/wicked-ways-to-get-the-most-out-of-your-weekend/)
+- [8 Great Ways to Entertain Children Indoors ...](https://parenting.allwomenstalk.com/great-ways-to-entertain-children-indoors/)
+- [cheap fun things to do with friends](https://lifestyle.allwomenstalk.com/cheap-and-fun-things-to-do-with-friends/)
+- [10 Fun Things We Did as a Kid That We Should do No...](https://health.allwomenstalk.com/fun-things-we-did-as-a-kid-that-we-should-do-now/)
+- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/great-philanthropies-to-get-involved-with/)
+- [what can you do in the fall](https://lifestyle.allwomenstalk.com/things-to-do-in-your-city-for-fall/)
+- [reykjavik new years eve](https://travel.allwomenstalk.com/ways-to-spend-new-years-eve-around-the-world/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 

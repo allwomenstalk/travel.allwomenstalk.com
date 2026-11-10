@@ -1,9 +1,9 @@
 ---
 title: "What Awaits in the Lavish Cabins of the Orient Express Venezia"
-description: "The Art of Restoration: Bringing History to Life; Dining Like Royalty: A Culinary Experience; Luxurious Comfort: Where Dreams Take Shape; Engaging with History: Activities and Exploration; More ..."
+description: "The Art of Restoration: Bringing History to Life; Dining Like Royalty: A Culinary Experience; Luxurious Comfort: Where Dreams Take Shape"
 url: "https://travel.allwomenstalk.com/rediscover-luxury-at-orient-express-venezia/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # What Awaits in the Lavish Cabins of the Orient Express Venezia

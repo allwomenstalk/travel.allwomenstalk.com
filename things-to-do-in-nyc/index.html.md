@@ -1,9 +1,9 @@
 ---
 title: "7 Must-See Things to Do in NYC: The Ultimate New York Experience"
-description: "Statue of Liberty; Visit Chinatown; Ride in a Taxi; Go to a Broadway Show; Metropolitan Museum of Art; More ..."
+description: "Statue of Liberty; Visit Chinatown; Ride in a Taxi; Go to a Broadway Show; Metropolitan Museum of Art"
 url: "https://travel.allwomenstalk.com/things-to-do-in-nyc/"
 category: "travel"
-last_updated: "2026-09-02"
+last_updated: "2026-11-10"
 ---
 
 # 7 Must\-See Things to Do in NYC: The Ultimate New York Experience
@@ -54,16 +54,16 @@ New York City is certainly filled with so many things to do, I could never menti
 
 ## Related Posts
 
-- [places where they speak french](https://travel.allwomenstalk.com/la-francophonie-countries-where-they-speak-french-as-an-official-language/)
+- [10 Absolute Musts to do in Spain ...](https://travel.allwomenstalk.com/amazing-things-to-do-in-spain/)
+- [why visit vienna](https://travel.allwomenstalk.com/enthusiastic-and-convincing-reasons-to-visit-vienna/)
 - [athens consignment sale](https://travel.allwomenstalk.com/places-for-shopping-in-athens/)
 - [scenic cable](https://travel.allwomenstalk.com/magnificently-scenic-and-thrilling-cable-car-rides/)
-- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
-- [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
-- [10 Absolute Musts to do in Spain ...](https://travel.allwomenstalk.com/amazing-things-to-do-in-spain/)
-- [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
-- [why visit vienna](https://travel.allwomenstalk.com/enthusiastic-and-convincing-reasons-to-visit-vienna/)
 - [10 Top Places for Afternoon Tea in London ...](https://travel.allwomenstalk.com/top-places-for-afternoon-tea-in-london/)
+- [5 Most Haunted Places ...](https://twilight.allwomenstalk.com/5-most-haunted-places/)
+- [10 Fabulous Festivals Happening in February 2012 ....](https://travel.allwomenstalk.com/fabulous-festivals-happening-in-february/)
+- [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [cuba road illinois](https://paranormal.allwomenstalk.com/7-haunted-places-to-visit-in-illinois/)
+- [places where they speak french](https://travel.allwomenstalk.com/la-francophonie-countries-where-they-speak-french-as-an-official-language/)
 - [8 Things to do in Boston ...](https://travel.allwomenstalk.com/things-to-do-in-boston-2/)
 - [7 Things to do in NJ ...](https://travel.allwomenstalk.com/things-to-do-in-nj/)
 

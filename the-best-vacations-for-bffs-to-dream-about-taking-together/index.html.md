@@ -1,9 +1,9 @@
 ---
 title: "The Best Vacations for BFFs to Dream about Taking Together ..."
-description: "Omni Mount Washington Resort, Bretton Woods, NH; Montage Beverly Hills, CA; Enchantment Resort & Mii Amo Spa, Sedona, AZ; Dream Downtown, New York City, NY; The Dolder Grand, Zürich, Switzerland; More ..."
+description: "Omni Mount Washington Resort, Bretton Woods, NH; Montage Beverly Hills, CA; Enchantment Resort & Mii Amo Spa, Sedona, AZ; Dream Downtown, New York City, NY"
 url: "https://travel.allwomenstalk.com/the-best-vacations-for-bffs-to-dream-about-taking-together/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # The Best Vacations for BFFs to Dream about Taking Together ...
@@ -56,16 +56,16 @@ BFF holidays are a joy. Many years ago, I went to Ibiza with my best friends and
 
 ## Related Posts
 
+- [hipster chicks](https://travel.allwomenstalk.com/hipster-hotels-that-are-too-cool-for-school/)
 - [what is a goddess party](https://beauty.allwomenstalk.com/the-products-you-need-to-look-like-a-goddess-on-vacation/)
-- [beaches 777 deals](https://travel.allwomenstalk.com/dreamy-beach-vacations-you-deserve-and-can-afford/)
+- [drummond castle ireland](https://travel.allwomenstalk.com/jaw-dropping-castles-to-visit-before-you-die/)
 - [extreme travel destinations](https://travel.allwomenstalk.com/must-do-trips-for-adrenaline-junkies/)
+- [princesses castles](https://travel.allwomenstalk.com/vacation-fairytale-castles-where-princesses-feel-right-at-home/)
+- [beaches 777 deals](https://travel.allwomenstalk.com/dreamy-beach-vacations-you-deserve-and-can-afford/)
 - [places to go on your honeymoon](https://wedding.allwomenstalk.com/places-to-go-for-your-dream-honeymoon/)
 - [joys of camping](https://travel.allwomenstalk.com/camping-is-cheap-and-more-fun-than-you-imagine/)
-- [hipster chicks](https://travel.allwomenstalk.com/hipster-hotels-that-are-too-cool-for-school/)
 - [fiji hotels underwater](https://travel.allwomenstalk.com/underwater-hotels-you-will-not-believe/)
 - [can you swim in lake nyos](https://travel.allwomenstalk.com/amazing-lakes-even-mermaids-wouldnt-want-to-swim-in/)
-- [drummond castle ireland](https://travel.allwomenstalk.com/jaw-dropping-castles-to-visit-before-you-die/)
-- [princesses castles](https://travel.allwomenstalk.com/vacation-fairytale-castles-where-princesses-feel-right-at-home/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [8 Best Girlfriend Getaways in the US ...](https://travel.allwomenstalk.com/best-girlfriend-getaways-in-the-us/)
 

@@ -1,9 +1,9 @@
 ---
 title: "67 Wonderful Sights of India ..."
-description: "Taj Mahal; Shiv Mandir, Bangalore; The Golden Temple, Amritsar; Gateway of India, Mumbai; Mohabbat Maqbara, Junagadh; More ..."
+description: "Taj Mahal; Shiv Mandir, Bangalore; The Golden Temple, Amritsar; Gateway of India, Mumbai; Mohabbat Maqbara, Junagadh"
 url: "https://travel.allwomenstalk.com/wonderful-sights-of-india/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 67 Wonderful Sights of India ...
@@ -508,15 +508,15 @@ There are so many fabulous sights in India. Wherever you choose to travel in the
 
 ## Related Posts
 
-- [francis lee smith house](https://lifestyle.allwomenstalk.com/still-beautiful-abandoned-buildings-around-the-world/)
-- [pic of volcanoes](https://travel.allwomenstalk.com/pictures-showing-the-awesome-force-of-volcanoes/)
-- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
-- [london to visit places](https://travel.allwomenstalk.com/places-to-visit-in-britain-other-than-london/)
-- [new zealand sights](https://travel.allwomenstalk.com/breathtaking-sights-of-new-zealand/)
-- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
-- [how many bridges over the thames](https://travel.allwomenstalk.com/london-bridges-over-the-river-thames/)
 - [best expat cities in the world](https://travel.allwomenstalk.com/fun-cities-with-large-expat-communities/)
+- [london to visit places](https://travel.allwomenstalk.com/places-to-visit-in-britain-other-than-london/)
+- [francis lee smith house](https://lifestyle.allwomenstalk.com/still-beautiful-abandoned-buildings-around-the-world/)
+- [how many bridges over the thames](https://travel.allwomenstalk.com/london-bridges-over-the-river-thames/)
+- [new zealand sights](https://travel.allwomenstalk.com/breathtaking-sights-of-new-zealand/)
+- [pic of volcanoes](https://travel.allwomenstalk.com/pictures-showing-the-awesome-force-of-volcanoes/)
 - [britain castles](https://travel.allwomenstalk.com/british-castles-full-of-history/)
+- [sights in madrid](https://travel.allwomenstalk.com/super-sights-of-madrid-for-a-flavor-of-spain/)
+- [pod hotel 39 rooftop](https://travel.allwomenstalk.com/rooftop-bars-in-nyc-with-a-stunning-view/)
 - [estes park fall colors](https://travel.allwomenstalk.com/jaw-dropping-places-in-colorado-to-see-fall-leaves/)
 - [7 Jaw-Dropping Places to Visit ...](https://allwomenstalk.com/7-jaw-dropping-places-to-visit/)
 - [7 Magnificent Sights of Madrid ...](https://travel.allwomenstalk.com/magnificent-sights-of-madrid/)

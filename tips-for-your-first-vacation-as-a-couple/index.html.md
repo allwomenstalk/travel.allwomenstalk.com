@@ -1,9 +1,9 @@
 ---
 title: "9 Tips for Your First Vacation as a Couple ..."
-description: "Try a Mini-Vacation First; Keep the Schedule Simple; Flexibility and Compromise; Pick a Destination You Will Both Enjoy; Talk Money with Your Honey; More ..."
+description: "Try a Mini-Vacation First; Keep the Schedule Simple; Flexibility and Compromise; Pick a Destination You Will Both Enjoy; Talk Money with Your Honey"
 url: "https://travel.allwomenstalk.com/tips-for-your-first-vacation-as-a-couple/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 9 Tips for Your First Vacation as a Couple ...
@@ -51,14 +51,14 @@ Your first vacation as a couple is a very special occasion. I hope you enjoy it 
 ## Related Posts
 
 - [idyllic holidays](https://travel.allwomenstalk.com/ways-to-bring-paradise-home-after-an-idyllic-vacation/)
-- [low budget high rollers](https://travel.allwomenstalk.com/how-to-fly-high-in-vegas-on-a-low-rollers-budget/)
-- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
-- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
-- [best travel foods to pack](https://food.allwomenstalk.com/heres-what-to-pack-so-you-can-eat-well-on-your-road-trip/)
-- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
-- [beach vacation hacks](https://travel.allwomenstalk.com/vacation-hacks-for-better-beach-days/)
 - [what cruise line offers free alcohol](https://travel.allwomenstalk.com/ways-to-score-a-free-drink-on-your-travels/)
+- [hotel discount hacks](https://money.allwomenstalk.com/hotel-hacks-to-help-you-save-on-your-next-trip/)
 - [inspire staycation card](https://travel.allwomenstalk.com/cant-afford-a-vacation-then-take-a-special-staycation-with-these-trusted-tips/)
+- [beach vacation hacks](https://travel.allwomenstalk.com/vacation-hacks-for-better-beach-days/)
+- [luluelemon](https://fashion.allwomenstalk.com/this-is-what-you-need-to-wear-the-next-time-you-go-to-the-airport/)
+- [mini vacay](https://travel.allwomenstalk.com/ways-to-turn-a-business-trip-into-a-mini-vacation/)
+- [low budget high rollers](https://travel.allwomenstalk.com/how-to-fly-high-in-vegas-on-a-low-rollers-budget/)
+- [best travel foods to pack](https://food.allwomenstalk.com/heres-what-to-pack-so-you-can-eat-well-on-your-road-trip/)
 - [vaycay hat](https://travel.allwomenstalk.com/taking-a-vaycay-beach-essentials-to-pack-in-your-bag/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [7 Ways to Survive the Holiday Stress as a Couple ....](https://love.allwomenstalk.com/ways-to-survive-the-holiday-stress-as-a-couple/)

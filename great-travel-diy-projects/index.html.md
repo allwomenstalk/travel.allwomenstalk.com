@@ -1,9 +1,9 @@
 ---
 title: "10 Genius Travel DIY Projects and Crafts to Keep You Organized on the Go"
-description: "Tech Organizer; Art Kit; Pocket + Hanger; Sewing Kit; Drawing Kit; More ..."
+description: "Tech Organizer; Art Kit; Pocket + Hanger; Sewing Kit; Drawing Kit"
 url: "https://travel.allwomenstalk.com/great-travel-diy-projects/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 10 Genius Travel DIY Projects and Crafts to Keep You Organized on the Go
@@ -103,16 +103,16 @@ Which of these **travel DIY projects** will you be making before your next trip?
 
 ## Related Posts
 
+- [diy mini cake stand](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
+- [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
+- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
 - [suitcase cabinet](https://lifestyle.allwomenstalk.com/brilliant-ways-to-repurpose-a-suitcase/)
 - [home made shelf ideas](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
-- [artistic cutlery](https://lifestyle.allwomenstalk.com/creative-cutlery-crafts/)
-- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
 - [diy flowy skirt](https://lifestyle.allwomenstalk.com/sweet-diy-maxi-skirts-to-sew/)
-- [creative camping ideas](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)
-- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
-- [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
-- [diy mini cake stand](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
 - [how to make hats](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
+- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
+- [artistic cutlery](https://lifestyle.allwomenstalk.com/creative-cutlery-crafts/)
+- [creative camping ideas](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

@@ -1,9 +1,9 @@
 ---
 title: "The Cherubini Suite: Where History Meets..."
-description: "A Glimpse into Venetian Opulence; The Quintessential Bathroom Experience; A Serene Sanctuary in the Heart of Venice; An Oasis of Heritage and Comfort; Experience Venetian Grandeur; More ..."
+description: "A Glimpse into Venetian Opulence; The Quintessential Bathroom Experience; A Serene Sanctuary in the Heart of Venice; An Oasis of Heritage and Comfort"
 url: "https://travel.allwomenstalk.com/discover-venices-timeless-elegance-in-the-cherubini-signature-suite/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # The Cherubini Suite: Where History Meets...

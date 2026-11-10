@@ -1,9 +1,9 @@
 ---
 title: "7 US Destinations for 2015 as Recommended by Lonely Planet ..."
-description: "New Orleans, Louisiana; Oakland, California; Duluth, Minnesota; Mount Shasta Region, California; Greenville, South Carolina; More ..."
+description: "New Orleans, Louisiana; Oakland, California; Duluth, Minnesota; Mount Shasta Region, California; Greenville, South Carolina"
 url: "https://travel.allwomenstalk.com/us-destinations-for-as-recommended-by-lonely-planet/"
 category: "travel"
-last_updated: "2026-09-03"
+last_updated: "2026-11-10"
 ---
 
 # 7 US Destinations for 2015 as Recommended by Lonely Planet ...
@@ -57,15 +57,15 @@ I love the mix of destinations on this list but there’s nothing like personal 
 ## Related Posts
 
 - [east canada ski resorts](https://travel.allwomenstalk.com/top-eastern-canada-ski-resorts-for/)
-- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
-- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
+- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [modern hotel bathrooms](https://travel.allwomenstalk.com/coolest-hotel-bathrooms-in-the-world/)
+- [beaten off the track](https://travel.allwomenstalk.com/off-the-beaten-tracks-places-to-visit-this-year/)
 - [best skiing in eastern us](https://travel.allwomenstalk.com/best-eastern-us-ski-resorts-for/)
 - [best ski resorts western canada](https://travel.allwomenstalk.com/top-rated-ski-resorts-in-western-canada-for/)
-- [guoliang tunnel accidents](https://travel.allwomenstalk.com/roads-highways-and-byways-that-just-call-to-be-driven/)
-- [lesser known travel destinations](https://travel.allwomenstalk.com/lesser-known-destinations-that-you-should-visit/)
 - [safe cities to travel alone](https://travel.allwomenstalk.com/of-the-safest-cities-for-women-to-travel-to-alone/)
-- [maldives hammock over water](https://travel.allwomenstalk.com/reasons-the-maldives-is-paradise-on-earth/)
+- [hotel pools near me](https://travel.allwomenstalk.com/best-hotel-pools-in-los-angeles/)
+- [guoliang tunnel accidents](https://travel.allwomenstalk.com/roads-highways-and-byways-that-just-call-to-be-driven/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 European Destinations to Consider Vacationing in...](https://travel.allwomenstalk.com/7-european-destinations-to-consider-vacationing-in/)
 
