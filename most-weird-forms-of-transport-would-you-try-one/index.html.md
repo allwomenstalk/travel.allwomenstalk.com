@@ -3,7 +3,7 @@ title: "7 Most Weird Forms of Transport - Would You Try One?"
 description: "Madeira’s Toboggan – the Daredevil’s Transport; B-Bugs – Perfectly Suited to British Weather; Hippos – Stop Wallowing around in the Mud"
 url: "https://travel.allwomenstalk.com/most-weird-forms-of-transport-would-you-try-one/"
 category: "travel"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 7 Most Weird Forms of Transport \- Would You Try One?
@@ -54,20 +54,20 @@ The Cambodian bamboo train has been a popular way of getting along the backpacke
 Finally I bring you the Beer Bike. Typical of the eccentric lifestyle of Amsterdam, this type of transport will be something you are sure never to forget. Accompanied by no less than 30 liters of beer provided, you and up to 17 friends can travel through the city with a guide/driver that will peddle you along. No prizes for guessing which sex came up with this!
 That is my list of the 7 Most Weird Types of Transport completed. I hope that you do venture out and see some of these unique and fantastically designed pieces of work – just don’t blame me if you’re too scared to try the German monorail or get too drunk on the Beer Bike! Please do leave a comment to share some of the types of transport you have come across over the years, I’ll be fascinated to find out.
 
-Top Photo Credit: [BjГ¶rn Ole](https://goo.gl/UNIK0t)
+Top Photo Credit: BjГ¶rn Ole
 
 ## Related Posts
 
-- [bella chooses edward](https://twilight.allwomenstalk.com/should-bella-choose-edward-or-jacob/)
 - [how did edward cullen become a vampire](https://twilight.allwomenstalk.com/how-did-edward-become-a-vampire/)
+- [how did alice die in twilight](https://twilight.allwomenstalk.com/how-did-alice-become-a-vampire/)
 - [who did carlisle turn into a vampire](https://twilight.allwomenstalk.com/how-did-rosalie-become-a-vampire/)
-- [Where Have I Been?](https://allwomenstalk.com/where-have-i-been/)
+- [bella chooses edward](https://twilight.allwomenstalk.com/should-bella-choose-edward-or-jacob/)
+- [Please Help!! Im Confused?!?](https://weightloss.allwomenstalk.com/please-help-im-confused/)
+- [Would You Buy a Pen That Eva Green Was Promoting?](https://celebs.allwomenstalk.com/eva-promotes-a-pen/)
 - [christmas at the jersey shore](https://celebs.allwomenstalk.com/jersey-shore-christmas-ornaments-yes-or-no-way/)
+- [Where Have I Been?](https://allwomenstalk.com/where-have-i-been/)
 - [Candy?](https://allwomenstalk.com/candy/)
 - [Hand Care: do Your Hands Make You Look Older?](https://allwomenstalk.com/hand-care-do-your-hands-make-you-look-older/)
-- [Please Help!! Im Confused?!?](https://weightloss.allwomenstalk.com/please-help-im-confused/)
-- [how did alice die in twilight](https://twilight.allwomenstalk.com/how-did-alice-become-a-vampire/)
-- [Would You Buy a Pen That Eva Green Was Promoting?](https://celebs.allwomenstalk.com/eva-promotes-a-pen/)
 - [7 Most Weird Forms of Transport - Would You Try On...](https://travel.allwomenstalk.com/most-weird-forms-of-transport-would-you-try-one/)
 - [5 Weird Things: Would You Wear These?](https://allwomenstalk.com/5-weird-things-would-you-wear-these/)
 
